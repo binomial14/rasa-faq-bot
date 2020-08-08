@@ -5,7 +5,7 @@ import random
 
 data = json.load(open("./faq.json", encoding="utf-8"))
 random.shuffle(data)
-data = data[:1000]
+# data = data[:1000]
 for index, each in enumerate(data):
     data[index]['index'] = index
 qs = [each['q'] for each in data]

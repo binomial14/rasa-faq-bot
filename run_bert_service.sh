@@ -1,5 +1,4 @@
 bert-serving-start \
-    -pooling_layer -4 -3 -2 -1 \
-    -model_dir=BERT_ENGLISH_MODEL_DIR \
-    -num_worker=8 \
-    -max_seq_len=16
+    -model_dir=../cased_L-24_H-1024_A-16 \
+    -num_worker=1 \
+    -max_seq_len=24

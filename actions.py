@@ -5,6 +5,7 @@
 # https://rasa.com/docs/rasa/core/actions/#custom-actions/
 
 
+
 # This is a simple example for a custom action which utters "Hello World!"
 import json
 from typing import Any, Text, Dict, List
@@ -52,7 +53,9 @@ class ActionGetFAQAnswer(Action):
 
 
 def encode_standard_question():
+    print("in")
     bc = BertClient()
+    print("call bc")
     data = json.load(open("./data/nlu/faq.json", "rt", encoding="utf-8"))
     standard_questions = [each['q'] for each in data]
     print("Standard question size", len(standard_questions))

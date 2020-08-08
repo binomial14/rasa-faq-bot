@@ -5,6 +5,8 @@ intents:
 - affirm
 - deny
 - bye
+entities:
+- name
 templates:
   utter_greet:
   - text: Hello~

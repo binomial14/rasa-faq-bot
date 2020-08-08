@@ -1,1001 +1,8849 @@
 ## intent:faq
-- Now that "Nederlands" is used for Dutch in Dutch, what do Dutch speakers call German?
-- This system was a direct answer to what?
-- What technique do Daptobacter use in order to kill other microorganism?
-- Visual communication among birds may involve what kind of displays?
-- Why were laws limiting people of color passed?
-- What was the project that von Neumann first participated in government?
-- Who is the citys fourth largest employer?
-- Who takes care of the 132nd Street Community Garden?
-- Who are they descendants of?
-- What was the name of the strategic bombing of North Vietnam?
-- What scientist is most associated with the heliocentric worldview?
-- Where do many ground birds, such as quails and pheasants, roost?
-- In what country does Tito have a street named in his honor?
-- Who acts as a mentor during this deployment phase of the BMT?
-- Who represented Oribe's Blancos?
-- When did Roman Catholic Jesuits and Capuchins arrive in Tibet from Europe?
-- What year was Queen's third greatest hits album released?
-- How are digimon born?
-- What term followed "negro" and "colored"?
-- What did Beyonce and Rowland found in 2005?
-- With which type of government did Ortiz replace the old one?
-- When did the 1981 FIBA African Championship take place?
-- What philosophy is closely related to process philosophy?
-- When did "Superstorm Sandy" strike Atlantic City?
-- What is gustatory communication include in dogs?
-- Sanskrit is the primary sacred language of which religion?
-- Spectre passed which movie to have the largest per screen opening average?
-- Holding hands with one's partner and telling others about a relationship are examples of what kind of adolescent event?
-- What was the October 2014 purchase price of the Waldorf Astoria?
-- How many Russians were in defense?
-- Who made the first known clean slate decrees?
-- Did the FBI target MLK?
-- Where is the Romansh culture located?
-- What kind of printing press helped increase the circulation and influence of The Times back in 1817?
-- What is extremely important to prenatal and postnatal development?
-- About how many schools across the country is ICG active in?
-- What conflict affected Utrecht
-- How many local newspapers does the island have?
-- Which architects in the US and Britain still employ the Georgian style for private residences?
-- IBM committed to an expansion totaling this dollar amount in 2014?
-- What is another work of Avicenna that is said to not be his creation?
-- In the mountainous interior north of Portugal, between what degrees is the average temperature?
-- Who usually owns and manages National parks?
-- What does the "Fourth of June" celebrate?
-- What was the original term related to?
-- What does Běidǒu translate as?
-- What types of piety did the Puritans advocate?
-- What do some eschew altogether? 
-- Who was the first warrior to become imperial advisor?
-- What excluded a set from belonging to itself in set theory?
-- Which countries use the term chancellor to denote the head of government?
-- What is an insects head, throat, and abdomen called?
-- What is Rodman's Neck between?
-- What are other names for a control unit for a computer?
-- Who represented Rivera's Colorados?
-- Who was the ruler of China in 677?
-- From April 1854 to February 1857, what port did the British and French lock down?
-- How far back does the Jews' shared common genetic pool date?
-- What are the most often found rocks in Antarctica?
-- Which site removed the option of downloading youtube videos after 2012?
-- What is one of the sources electricity is being generated from?
-- What is the total length of the railways?
-- What is the guntiino normally made from?
-- In what state's supreme court was State v. Santiago decided?
-- What can the public and private sector offer employers that NPOs usually cannot?
-- Who called American Idol a conniving multimedia monster?
-- An uncertain relationship was held between the Slavs and who?
-- What party did the D.C. Statehood Party merge when?
-- What failure did Cruyff have in his last two seasons as manager with Barcelona?
-- What causes the behavioral adaptations necessary for migration?
-- What did older operating systems use to mark the end of the text?
-- What shape do glacial valleys have after being widened by glacation?
-- In what year did the U.S. Congress afford Connecticut the deed to the site at Fort Hale in New Haven?
-- In what part of the world did the fictional detective, Nero Wolfe, live in?
-- By what year did Japanese strategists expand their concept of the Greater East Asia Co-Prosperity Sphere?
-- Which campus holds the undergraduate schools, the Graduate school, and the Kellogg school of Management?
-- How was the lawsuit decided for Apple vs. Microsoft and Hewlett-Packard?
-- What is the current national rank of Brown School of Social Work?
-- When was the first madolin made in the US?
-- What was the name of Victorias eighth child?
-- When was the area incorporated into Northumbria?
-- What is the official dress code today at Buckingham Palace?
-- Who said that she is the reigning national voice?
-- Who did Price think should see themselves as citizens of the world?
-- Keyboard instruments included the pip organ, harpsichord and what other instrument?
-- Were the ealiest LaserDiscs in 1978 analog or digitally formatted?
-- The Tallgrass Prairie Preserve is the largest protected tallgrass prairie in what area?
-- How many new LDS Church wards were added during Wilkinson's presidency?
-- What is one country that contained considerable and prosperous towns during this time?
-- What was the economy of North Carolina based on after the confederacy?
-- What did American Idols first winner sing at the Lincoln Memorial in 2002? 
-- What was the average speed of a winning solar powered car by 2007?
-- Is all work done by children considered to be child labour?
-- What occupation did David Jones have?
-- What was the name of extinction level event that ended the dominance of the carnivores among therapsids?
-- Approximately how many phonograph records were sold in 2014?
-- What philosophy in the west was challenged by Whitehead?
-- Along with Guam, which other territories were in the United States jurisdiction before WWII?
-- By what other name were some Marvel-related comic books published?
-- What is the name of the city's public television service?
-- What is the biggest public park in the city?
-- Which church did the 9 founders of Northwestern affiliate the university with?
-- Which contestant had to go to the hospital during the week of the top 20?
-- On Neptune, which clouds cast shadows on the cloud deck below it? 
-- What continues in some circles at the discretion of the defining agency or academic department?
-- What is the word for a beardless, athletic youth?
-- The visible, ultraviolet and X-ray spectra are all above what spectrum?
-- How many restaurant are located in the center of New Haven's city?
-- What variables help the photographer produce the desired effect?
-- What leader started a mass movement against British rule?
-- What was the name of the building style that resulted from the use of brick?
-- From Thionville towards Trier, what was the final destination of the offensive?
-- Which color is opposite of red on the visible spectrum?
-- What do devout Muslims believe is the reason for the overlap of events and characters in the Bible and Quran?
-- Who was the JK Bridge named for?
-- In what country did FROLINAT operate?
-- How many people of Somali ethnicity live in Somalia?
-- As of 2008, geothermal power development was underway in more than how many countries?
-- Where was the library of Pergamum located?
-- Which dialects did not follow the Neoshtokavian retraction?
-- Where was the earliest church labeled "Baptist" traced to?
-- What percentage of the country does it make up?
-- What type of tall buildings are being planned on Southampton's waterfront?
-- When did Namibia obtain full independence?
-- Which country was being invaded when Daniel and his friends were captured?
-- When did Kerry join the Naval Reserve?
-- What is the main driver of the economy now?
-- How many inhabitants were left without shelter after the siege?
-- What writer fused humanism with the Dominican Order teachings?
-- The Principle Corridor features which type of doors?
-- What is a major barrier to videoconferencing between some communities?
-- When did the financial crisis hit its most critical stage?
-- Who as the last man to be eliminated?
-- What type of person is likely to replace zippers and buttons?
-- What does Planck's law correctly predict?
-- Which country's government wanted Samoa to grow bananas for them?
-- Who is regarded as a feminist during her time?
-- who returned to england after sailing around Cape Comorin?
-- What happens when someone tries to improve education?
-- What were the tesserae usually set in for miniature mosaic icons?
-- The infant brain contains more of what type of cells in the brain than the adult brain?
-- What can one high-power LED replace?
-- What percentage of applicants did BYU accept for it's summer term and fall semester in 2013?
-- Along with Tolkien, what modern scholar notably made use of Old English?
-- What did Paul VI want to keep open with the modern world and people from all walks of life?
-- What does the Duchy of Lancaster operate as?
-- Around how many soldiers were in each regiment of the Northern Army?
-- What newspaper was founded in 1935?
-- What example city service was cut back on in the Bronx?
-- What percent of Native American ancestry may originate through gene flow from the Mal'ta-Buret' population?
-- What governmental department contributed a grant to Schwarzenegger's hydrogen fuel project?
-- What is the process of producing a biologically functional molecule of either RNA or protein called?
-- What physical symptom accompanied Muhammad's revelations?
-- What is St. George credited with?
-- What is Miami's largest newspaper written in Spanish?
-- What do greenhouses do with solar energy?
-- The Super NES had how many pins in its proprietary connector?
-- What was the state of Utrecht 
-- Instead of work, how did most Western European peasants pay their landlords in this period?
-- Who, along with members of the South Korean government, fled South Korea?
-- Who led the rescue effort after the earthquake of 1985?
-- To Kill a Mockingbird is widely read in which countries schools?
-- Little River marks the boundary between Geelong and which other city?
-- Which borough can Fort Hamilton be found?
-- Other than Yale, New Haven has another private college in the city, it's name?
-- What percentage of BYU students are members of the LDS Church?
-- What is the ratio of young Estonians who speak Russian relative to those who speak English?
-- What is Whitehead's most famous statement on religion?
-- The record is part of what wind family?
-- What types of species are thought to still have been dominate until after the extinction?
-- On what date was the Treaty on the Creation of the USSR passed?
-- What connects continuous symmetries to conserved quantities?
-- Parque Batlle is named in honor of who?
-- What is an important Old English historical record?
-- During what seasons are courses offered at the Washington University School of Law?
-- ENIAC was constructed by whom?
-- To what type of theater is Seattle second to New York?
-- What is the estimated number of Buddhists in the world?
-- What was needed to replace an iPod Nano battery?
-- Who did the official from Myanmar meet with ?
-- Game animals were introduced here by whom?
-- What is one of the features that have come to be considered as an important part of the Gothic style?
-- How does the mental health profession approach efforts to change sexual orientation?
-- When were interceptors like the F-102 Delta Dagger first built?
-- What is a layer of meristem or formative tissue known as?
-- What were taxpayers free to do after they paid the Duke of York his local tax?
-- About what nearby planet could the Antarctic meteorites hold data?
-- What journalist did The Daily Mirror wrest from The Sun?
-- How many years does regular ovulation follow menarche?
-- When did Jewish law recognize copyright?
-- Late Caboniferous and Early Permain are what kind of orders?
-- What helped the industry weather the 2009 economic crisis better than other sectors?
-- In which direction have the British Isles been drifting?
-- Beyonce's first child is named what?
-- How does Czech mark subject nouns?
-- Where was the main focus of Pan-Slavism?
-- The Achaemenid Empire was the known enemy of what nation's histories during its existence?
-- What phrase did people believe Bell's dog could say?
-- What was the romance genre of Divan poetry known as?
-- Which dynasty restored and expanded the network that became the Grand Canal of China?
-- Which politican left the presidential race after supporting a boycott by voters?
-- The red and blue Chinese Luncheon Room has what as a main feature?
-- If recommit fails, then what choice needs to be made by minority representatives?
-- What company designed this interface?
-- What was Nasser's first title in the Liberation Rally?
-- How much of Estonia's native Estonians speaks Russian?
-- During what decade did the Seljuk Turks occupy Armenia?
-- When was the edict written?
-- At what pub did Ronnie Kray kill someone in 1966?
-- The Renaissance is generally used to describe developments in what areas of life in the Middle Ages?
-- How much were the vouchers worth that Nintendo sent out?
-- Generally, up-peak mode takes place during what times of the day?
-- How many students in total were at Notre Dame in 2014?
-- ABout how many people in the state of Montana speak Cheyenne?
-- Who was most critical of Nasser's rule?
-- What can not be undertaken n Security, at Immigration/Customs or in Baggage Reclaim?
-- When was the Oklahoma City Bombing?
-- What is the name of the company that managed the colony from 1615-1684?
-- What program did Creative join in order to make iPod peripherals?
-- What did Microsoft name the SKU that replaced the 360 Core?
-- How many routes to Canada does Detroit have?
-- Who has an active community of journalists and publishers?
-- When was the enlightenment of spiritual philosophy challenged?
-- How many Hollywood rounds were there in the first nine seasons?
-- What award was My Beautiful Dark Twisted Fantasy omitted from?
-- What is now located at the former centre of Valencia?
-- What can be attributed to BYU's high percentage of second language proficient students?
-- According to the 2014 census, how many people live in Houston?
-- What notable accidental fossil fuel discharge occurred at Newtown Creek?
-- How many periods of geology are within the Paleozoic era?
-- What is one of the famous Lima-based restaurants in Mexico City?
-- What is Musee national des arts asiatiques famous for housing?
-- What is the outcome when a curren is reflected>
-- What increased society's autonomy, self-awareness, and need for exchange of information?
-- What is the acronym for British Broadcasting Corporation?
-- What process replaces tissue damaged by TB?
-- How many kilometers of paved roads does Israel have?
-- What is considered to be the the Korean War's equivalent to Gettysburg?
-- Which ocean is on the coastal area of Namibia?
-- What borough was home to a notable population of free African-Americans?
-- Which inventor went bankrupt?
-- Serialization of comics became less popular when?
-- Which Cathedral is considered the first thoroughly Gothic cathedral?
-- What is breathy voice?
-- The Londre Centre for Nanotechnology was a joint effort between UCL and which college?
-- When was Phil Skinner awarded an MBE? 
-- What is another word for ligatures? 
-- How many contestants made it past the first round of auditions?
-- When hydrogen oxidates, what does it end up giving?
-- How many destinations does George Bush Intercontinental Airport serve?
-- What style of literature could commonly be found in Roman works?
-- Who persuaded the king to lock the wine cellars during WWI?
-- What was the most important Mahayana centre of learning?
-- With walnut, what's another tree in the intermediate group?
-- When did Beyonce become the first African American woman to win Pop songwriter of the year?
-- What is the syrinx?
-- What document teaches that Jesus' brothers and sisters were older children of Joseph from a previous marriage?
-- Which two groups of Marvel crimefighters are based in a fictional version of New York City?
-- What is a form of communication observed within plants?
-- What was also pushed for by result of sarmatism?
-- In what city did the standardization of red as a color of stop lights occur?
-- Which company pays Firefox to make their search engine the default on their browser?
-- Who does the Quran say was also from a pious family?
-- The Ottomans were portrayed as what?
-- When did Tito leave India?
-- What is one type of metal which the conducting plates in electrolytic capacitors are commonly made of?
-- in 1778 most of the troops that the EIC had were from where?
-- What are the sources of natural deposits of asphalt?
-- What is a well known Afro-pop artist?
-- What is a protein that carries copper ions in chelation?
-- When were all the lodges in Iraq forced to close?
-- How many days long is the growing season?
-- How many foreign governments maintain trade and commercial offices in Houston?
-- In what square do the bands all play at once?
-- When was clonal selection theory first proposed?
-- Why did the banner say that was unveiled during the temporary halt?
-- What news company  discovered visual evidence of the disdain exhibited by civil employees and civilians in Burma ?
-- How many nocturnes did Chopin compose?
-- 1.1 was the first widely used version of what?
-- Who met with Gorbachev on November 22?
-- How many spots did Southampton lose in the "fittest city" rankings for 2007?
-- Some records at NARA are legally protected by what?
-- What did Parsons believe made a functional society?
-- what new influences led to a new house sound?
-- How many bridges in Oklahoma were found to be deficient in 2010?
-- From what language does Universitas come from?
-- Elevator drive mechanisms have, in the past been, powered by what?
-- If the alleles on the chromatids are different, what effect arises from genetic recombination? 
-- What TV show lampooned one of Kanye's BBC Radio 1 interviews?
-- How did the Kazakh SSR government say the two protesters were killed?
-- In which states had Brincourt run military affairs previously?
-- Who conquered Panormos and briefly turned it into a Greek colony?
-- Where is the Art Deco style badge design used prominently?
-- An insects hard body parts are called what?
-- In how many countries does Shell have operations?
-- What kind of rules does a poly-sided match usually have?
-- What were rabbis from the ghettos forced to march through the city streets wearing?
-- When did the decedents of the Congo and Afro-Caribbean arrive in liberia?
-- What technology has become more widely available and affordable?
-- John followed in the tradition of who?
-- Why did post-punk fall out of love with punk?
-- What did Nintendo release in Japan only?
-- What is the legislative branch of Bermuda modeled after?
-- What are the 3 main department store companies in Denmark? 
-- What Era began following the defeat of the confederacy?
-- Who had a leading role in liberating Yugoslavia?
-- When did the Cimbrian War end?
-- What hardware component did CNET have the biggest problem with, even comparing it to an old credit card reader?
-- What apparitions reportedly took place in 1917?
-- What is being lead to specialty roles?
-- What group decided to keep the "African" in their name?
-- Who holds the legislative power?
-- How was the reclassification of documents in '06 revealed?
-- What treatment helps improve those with allergic rhinitis and asthma?
-- What event led to an increase in tourism in 2009?
-- In what year was the Pure Food and Drugs Act passed?
-- What congressional declaration gave President Johnson authority to send troops to Vietnam?
-- A partially full frame's ability to have part of the next frame's audio data is referred to as what?
-- Which notable New Haven resident inventor, credited with the cotton gin, is buried in Grove Street Cemetery?
-- What year did the Rugby Football Union form?
-- What sort of identity was promoted by the RCC?
-- What country is Saint-Barthélemy a collectivity of?
-- At what former lodging facility in New Haven were scenes from the 1950's classic, All About Eve, filmed?
-- How old did biblical scholars think the Earth was?
-- What is the coldest month in Boston?
-- What is one potential issue with drinking alcohol while taking antibiotics?
-- Are the vacuoles of plant cells larger or smaller than animal cells?
-- What value may clothing designed to be fashionable also have?
-- What significance does Dec 7/ 1948 hold?
-- During which time period did the legend of Virgil in his Basket arise?
-- What kind of linguistics is phonetics considered to be a part of?
-- How much of the population left after 1950?
-- What two companies worked together to develop the Western Electric System?
-- What 2 main weapons does Link use in combat?
-- What year were the elbow tablet first discovered?
-- When was The Scooter on Neptune observed?
-- What state uses as a motto a passage from the Bible?
-- Who is the Doris Leuthard?
-- How many seasons are there in Raleigh?
-- What would more people report themselves as if a more consistent report were considered?
-- In what city did the Romans use verdigris in murals?
-- Where was the Eton Mission originally to be located?
-- When was the Roman Empire split into western and eastern administrative divisions?
-- Where can fatty acids be found?
-- Among which builders was the Gothic style first used?
-- What neighborhood houses the headquarters of Miami Today?
-- Which museum is located at Ann Arbors historic downtown fire station?
-- What is the name of the upper house of the Marshall Islands Parliament?
-- Who was appointed satrap of Egypt after Alexander's death?
-- What publicly traded bank, also the second largest in Connecticut, is based in New Haven?
-- West and East Slavs are sometimes combined into a single group called what?
-- What was the name of the campaign by the British in Holland that created a second front in the war?
-- What programs did Milton Winternitz create?
-- What is the term for the head of China's government?
-- When did Nigeria's economy become larger than South Africa's?
-- Madonna is recognize as the best selling female music artiste by who?
-- The rituals for the correct way to enjoy Mass is listed in what text ?
-- what did knights of the turntable release in 1984?
-- What have a number of tourism-related organizations placed Greek destinations at the top of?
-- The ICTR was established for the purpose of convicting those responsible for acts of genocide and what other charges?
-- What did the V-12 program provide to interested pupils?
-- What is Yale largely known for?
-- In what year did the British defeat the Dervishes?
-- What is the term for Russian-speaking people?
-- How much money did Apple make in 2007?
-- During what century did the Seminoles enter Florida?
-- What is another name for Nikaya buddhism?
-- What is the area of land?
-- What inconsistency would be found in this explanation?
-- What must happen before the Supreme Court will reverse a decision by a lower court refusing to uphold a constitutional law?
-- What was the name of the "folk opera" based on 'Porgy'?
-- What was the main type of oil painting painted by Eisenhower?
-- What Tech company is based in Detroit?
-- When were the mosaics at Bizere Monastery created?
-- Belize, Chile and Greenland are just some countries with sizable populations of what peoples?
-- What is the collection of plants in the environment called?
-- What does PPE stand for?
-- How many public performances did Chopin do where he made his debut after completing his education?
-- Traditionally, what must a state do in order for an obligation to arise in international law?
-- THE SCN receives information from the optic nerves through what?
-- When did Japan formally have signed the surrender?
-- How old was Bell when he became a "pupil-teacher"?
-- In treaty negotiations, what trades did France hope to make.
-- The Sri Lankan Supreme Court's decisions override what?
-- What follows a geodesic of space-time?
-- What planet also gets it's color from atmospheric constituent? 
-- Where are XML databases frequently used?
-- During what years did Tito lead the Partisans?
-- What city and state does the interstate 10 end at?
-- What is the population of Beer Sheva?
-- What is one way that the Empire was described as it related to culture?
-- What is God in deism?
-- In 1763 what was the status of Frederick?
-- What is the literacy rate in Kuwait?
-- In Mahayana Buddhism, what are some Mahayana sutras that are believed to remove negative karma just by the hearing of the texts?
-- Wood fibers from wood strands, lumber, and what other source can be glued together to make larger units?
-- How much rain does Houston usually get per year?
-- What law regulated the rules for time shifts in Israel according to the Jewish calendar?
-- What language is the source of the term Catellain?
-- What president ignored Eisenhower's recommendations in regard to atomic weapons?
-- Insects have what kind of skeleton?
-- On what date did the Occupy Wall Street protests commence?
-- What book did Will Eisner create in 1985?
-- What was the name of Brian May's signature guitar?
-- In what year did a coup take place and new dictatorship form?
-- What was the look of the dollar based on?
-- What type of losses happen during conversion and transmission in wires and electronics?
-- What was the maiden surname of Gaddafi's second wife?
-- When did Arent Schuyler de Peyster visit Tuvalu?
-- From where did H.J. Porter hale?
-- What is the name of the dog that could ID over 200 things?
-- What was the name of the airport the United States built on Ascension Island?
-- What is one cause for Melbourne's fluctuating weather patterns?
-- What journalist wrote that Beyoncé was a "sex symbol"?
-- What event led to larger crop yields in the High Middle Ages?
-- Which already existing schools did Northwestern affiliate itself with in the 1870's and 1880's?
-- What office contains the FBI's administrative offices?
-- What biblical passage informs Jehovah Witnesses' refusal of blood transfusions?
-- What notable document was authored by Thomas Jefferson in 1786?
-- What substance is hemicellulose impregnated with?
-- What power can help someone overcome sin?
-- Where was it believed that that fight against Communism would take place?
-- On what day did Paul VI die?
-- What is 'a scrimmage' another term for?
-- Which street begins just North of East Huston Street and continues to Bowery?
-- What is the Gash Group?
-- What are the two exceptions to the voting rights in United Kingdom of Great Britain and Northern Irelandand Britain?
-- By the 2000-1 season what was the percentage of foreign players?
-- Which development in 1915 played a key role in developing Alaska?
-- What party lost control of House in 2010 elections?
-- How many states are linked to from highways in Hyderabad?
-- Where do the tourists for the Plum Blossom Festival come from?
-- After their agreement together, Beyonce's and Topshop" new business was called what?
-- At what point during season 9 of American Idol did Ellen Degeneres become a judge?
-- What does the study say in regards to boycotts?
-- Is much of Melbourne's metropolitan area characterized as low-density sprawl or high-density sprawl?
-- Where did Alexander's army finally mutiny?
-- When did Chopin's relationship with Sand start to deteriorate?
-- What was the name of the remake of Thunderball?
-- What was banned in Switzerland in 1955 after the Le Mans disaster?
-- What year did the Vienna Philharmonic first accept women?
-- What did the Boston Globe have to say about Yale?
-- How long were the units in inches of the Mohenjo-daro ruler?
-- What faith does Swayambhu belong to?
-- The Cubs built a substantial lead in what league under management of Leo Durocher?
-- How much of the economy was not controlled by Nassir's government?
-- What cabinet agency did Eisenhower make Social Security a part of?
-- Who were three Chicago blues players who influenced hard rock?
-- What type of geneticists have debates about what can provide a basis for a new conception of race?
-- What is defined as a way of filtering network data between a host or network and another network?
-- Which arrangement was used for Cook's version of Billie Jean?
-- The need to code excess energy in the frequency domain decreases what kind of efficiency?
-- On what date was the Communist Party of the Russian SFSR suspended?
-- When was the shooting?
-- Where did the Southeast Asians introduce their dance?
-- Who espoused the "national path to socialism"?
-- Who could a newly elected magistrate expect to be appointed by?
-- What power was Congress given by the Constitution?
-- What happened to Britain during the 17th century?
-- What percentage of 14 year olds said they were proud to be German in 2009?
-- What property of wood could we project some indication of by looking at its density?
-- What followed Jesus around?
-- Who traditionally paid for scholars to study natural sciences?
-- How many people were killed in the race riot of 1943?
-- In Eastern Europe, what is the word for an institute of technology?
-- Which town is Sicily's primary industrial and commercial center?
-- What happens after a bill is delivered to the OFR?
-- What republic had the Karachay Autonomous Oblast previously been a part of?
-- What states that any differentiable symmetry of the action of a physical system has a corresponding conservation law?
-- What did St Augustine believe that funeral feasts gave an opportunity for?
-- A Contemporary composition written in the style of an earlier era is described with what prefix?
-- What single year did Windows 95 use to apply rules to Israel's time changes?
-- What scientific discipline is still taught in modern madaris?
-- Along with Limburgish, what other Dutch dialect is spoken down into a lot of the southern Netherlands?
-- What late 1990s Chicago rap group was Kanye West a member of?
-- How much land did the Native Americans own in 1934?
-- Who gave the first live war report?
-- When did the uniform theory of groups develop from different sources? 
-- What does Coral Way connect to Coral Gables?
-- What was the cause of Lady Flora's death in July? 
-- What type of vehicles participate in the AG2R Race?
-- Estonia's constitution declares the division of what parts of society?
-- What position did Mee hold in the Arsenal club prior to becoming manager?
-- What part of the cotton plant is used for paper manufacture?
-- What aircraft did Alcock and Brown use in 1919 for their flight? 
-- Why did the Luftwaffe bomb the RAF Fighter Command?
-- Where did William Knibb work toward the emancipation of slaves?
-- What organization debates the rule of law?
-- Why did monasteries have gardens?
-- What are huge quantities of information stored as?
-- In 2011, England introduced a new away kit in what color?
-- What topic did Paul VI see as the most important to the church counsel?
-- What is a good technique to foster party harmony?
-- What law did Obama cite on Sep 9, 2014?
-- How many active programs does the foundation have? 
-- How many Pentecostals are there in the world?
-- What was Galileo's nickname?
-- What was the point of Operation Glory?
-- Where was Madonna raised?
-- Where can individual each USAF wing, group or squadrons individual motto be found?
-- How much did Germany pay in reparations to the Israeli state?
-- How much recoverable gas is still undiscovered in Alaska, according to the US Geological Survey?
-- Where was Calvin criticized?
-- What is the home stadium of the Hyderabad cricket association?
-- What LEDs have a very steep I/V curve?
-- Where did Feynman work at in Brazil?
-- Who has spread the teachings of the Baptists to each continent?
-- Troiden's second stage is referred to as what?
-- What was the name of the manor that previously existed on the site?
-- What sort of temperature is typical on a Kathmandu morning?
-- The largest Carnival celebration takes place in which city?
-- In what century did the European average annual temperature decrease?
-- What Super Bowl took place at MetLife Stadium?
-- What is the population of San Diego's urgan area?
-- An adult eusocial insect does not contact it's what?
-- Where was very expensive wallpaper imported from?
-- What is some factors in family communication that could affect communication between family members?
-- What is another name for roundworms?
-- What is Panentheism?
-- Which new governor was arrested by Ochoa and Bustamente?
-- Along with corruption, what were Libyans upset with in 2011?
-- Where did Nurhachi move his court to?
-- Which channel would not work in conjunction with AC-3 audio?
-- What was the transportation advancement made possible by Sprague's designs?
-- Are more rings necessary if they're narrow or wide?
-- In what year was Thompson v. Oklahoma decided?
-- Which cultures claim to be a dominant source of Bermuda's cultural heritage?
-- Around what time were the knights and szlachta very similiar?
-- After whom is the performing arts center in Midtown named?
-- Most Hokkein morphemes have what type of characters?
-- How many songs does Madonna have on the Hot Dance Club Songs Chart?
-- Where is the data for the NCIC located?
-- How is UTF-32 widely used? 
-- What solar process can be used to produce different fuels?
-- What are the giant, gaudily painted effigies of phalluses made of?
-- What market did Dell begin to compete in in 2009?
-- How far back does Egypt's history date back?
-- Who initiated a successful price war among PC manufacturers in 1994?
-- The Boston Public Library is located in what part of Boston?
-- What divides energy transformation into two kinds reversible processes and irreversible processes?
-- What can happen if species immigrate to a new location?
-- Who was the father of John Manners, Marquess of Granby?
-- Who described Armenian life in 401 BC?
-- Which works did Virgil model the Aeneid after?
-- What other injuries have been connected with wrestling?
-- Where do Swiss militia keep their Army issued equipment?
-- What size was Siddhārtha Gautama's birthplace?
-- Literary devices are employed for what reason?
-- When is it damaging?
-- What was the name of Queen Victoria's first grandchild? 
-- What was EU average amount of energy from renewable sources in 2008?
-- Which two countries sought to crush the nascent republic?
-- Most insects have what kind of vision?
-- What prize did the film Mortu Nega win?
-- What was ClarisWorks renamed beginning with version 5.0?
-- What did congress pass in 1830 
-- What caused Quaker and Methodist preachers to want to free slaves?
-- Wings from the paranotal lobes are based on what theory?
-- Who reigned during the most affluent period of Bourbon rule?
-- In what city did Dominic establish a school?
-- What company counts the votes on American Idol? 
-- What notable event occurs each August?
-- Into what 3 lists are legislation subjects divided in India?
-- What was the name of the book that Darwin wrote on emotions?
-- What did the island have an abundance of when discovered?
-- What was the name of the producer that helped Kanye West?
-- On what date was KU's Lawrence campus made official?
-- What should the driver do in order to open and close the circuit breaker?
-- What is the most efficient means of transportation into and out of Alaska?
-- What is Greece's economy classified as?
-- In what city was the 12 in LP released?
-- What model did Murray Gell-Mann develop?
-- What refers to the number of samples that must be analysed before a block of audio is processed?
-- The crew could be order to drop the bomb by what?
-- Who did Torii Mototada serve?
-- What type of powers were granted to Pompey by the senate?
-- What global agreement gives sovereign national rights over biological resources?
-- Which group officially chose the name "Laservision"?
-- Based on year 2000 data, where is GE ranked among the largest corporate producers of air pollution in the US?
-- Where did the Celts who settled in Galatia pass through?
-- What provoked the first request from Portugal for financial support?
-- What century saw more diverse industries come to Southampton?
-- What does diagnosis of an infectious sometimes involve identifying? 
-- What use the traditional radical-based character index?
-- In what year was the name Russian Soviet Federative Socialist Republic adopted?
-- What company bought the presidential Boeing 727 after Tito's death?
-- When assent is granted in person, when is it formally considered final?
-- What is the difference between multi-level political forms and federalism? 
-- Aside from consumption how are Guinea fowl  useful to humans.
-- What part of the life cycle of moths does Bt toxin effect?
-- Who performed live with Queen on The Show Must Go On in 1997?
-- What percentage of Plymouth consists of non-religious people?
-- Who said that the state would consider a referendum to end the monopoly that Atlantic City holds on casino gambling?
-- Where does the fungus Geotrichum candidum originate from?
-- What was the second time period that a significant change began to happen in Cubism?
-- In a realistic model of a capacitor, where else besides between the dielectric between the conductors might an electric field be found?
-- Which political supporter of Willett's proposal had already used the half-hour version of DST at Sandringham?
-- By who was the first record of solar distillation done by?
-- What kind of file sharing became popular due to the file sizes of MP3s?
-- Who was similar recommended intake volumes as adults?
-- What is the current station called?
-- Managers and support staff is considered what and thus cannot be shown a card?
-- How many men did he have?
-- How do Ismailis differ from Twelvers?
-- When did human rights for Aboriginal people begin to improve?
-- Is the division rate of the TB bacterium fast or slow relative to other bacteria?
-- What county is Charleston located in?
-- When did Chopin last perform?
-- In what year was an agreement reached to ban mining in Antarctica?
-- What did the use of Old Style and New Style cause?
-- What is the name of the millet based porridge like beer made in Kyrgystan?
-- What architectural style was Second Presbyterian Church built in?
-- Are the bacteria in caseous necrotic material living or dead?
-- The Frankfurt proposals sought to reduce France to what?
-- Where did Martin Luther preach a sermon on Marian devotion a month before his death?
-- What can the referee consider a pin attempt to be, even if the attacker is still on top of the pinned wrester?
-- What society is a strong contender for the common culture speaking Indo-Iranian?
-- What American invented the cotton gin?
-- Who was the target audience of natural history?
-- For what reason did CBC attribute to delayed upgrades?
-- Other than rice, what would be another example of an incomplete protein source?
-- What was the name of the man that tried to shoot Queen Victoria?
-- What is the danger to humans in regards to the spread of avian flu to humans ?
-- In what year did Tucson get the least rain?
-- What is the name of the first commercial hotel built in Atlantic City?
-- At what time did Paul VI die?
-- Bulgaria became independent within the Empire as the result of what war?
-- Who captured the border front of Saint Nicholas during a night attack?
-- What was the main opposition political party in 2011?
-- What is sheftalia?
-- Where was one female Dominican house located?
-- In what year did Konrad Adenauer first visit the United States?
-- Which person plotted to overthrew the regime of Empress Dowager Yan?
-- In what year did Canada beat USA 56–7 in a Rugby World Cup qualifying match?
-- How many people had their sentences commuted by State v. Santiago?
-- What was the result of publicly funded links among computers in government labs and reserach institutes?
-- What kind of an entity did Popper believe the universe to be?
-- Why do some regulatory regions of a gene not have to be close to the coding sequence?
-- Traffic patterns are usually flown at what altitude above ground level?
-- Are short-range bluetooth accessories able to be used?
-- Was there conflict of faith and beliefs at the end of von NEumann's life?
-- The international deal between the US, other countries, and what controversial nation is not a treaty?
-- Along with exhibition and distribution, what business did the Universal Film Manufacturing Company engage in?
-- During 1979-2015, Legislative Assembly terms lasted no longer than how many years?
-- What example did Darwin give of eyes evolving?
-- Why would this type be good for receiving but not transmtting?
-- Since 2011 direction has Forign direct investment gone?
-- In what city was Delany's New Mart opened? 
-- How did being listed initially impact species?
-- A media magnate from which country bought The Times in the 1980s?
-- what year did the EIC have 26,000 troops in their employ
-- What is the range of green wavelengths available when using DPSS technology?
-- What is the Alp-Transit project designed to reduce the time of travel between?
-- What was the average family size?
-- What was the value of the estimated 13 million substandard loans held by Fannie and Freddie in 2008?
-- Around the beginning of what two things did word universitas start to become prevalent?
-- Who was Victorias mothers comptroller?
-- When did the British government announce it would withdraw from Mandatory Palestine?
-- How many feet did the first photophone message travel?
-- When was the AFL's China project announced?
-- What brought the defeat of the Allobrogi?
-- When using a small loop antenna at a low frequency, what may occur?
-- When were the Benedictine monks required to maintain a charity school?
-- Is Hydrogen considered an energy resource?
-- What group runs The Procession?
-- What was Tennessee's population in 1980?
-- How important is Jesus' death to modern theology?
-- When were the immigration protocols relaxed in Norfolk Island?
-- How many shoulder buttons do SNES controllers have?
-- Who operates the parking meters?
-- Which contestant was disqualified because of an assault charge?
-- How was Victoria notified of her youngest son leopolds death?
-- Along with speed of the modern jet, what else limits target opportunities?
-- What are two types of railway transportation still use DC motor?
-- What park was developed between the 1950's and 1970's?
-- What is the MWRA?
-- Written IPA consonants use symbols for what?
-- What is the official name of the curricula that promotes nutritional education in schools?
-- What is pronounced [ɪ] in Moscow's dialect?
-- Where did the victory for Napoleon that secured his political power and increased his popularity in France occur?
-- What do archaeologists call the cultural phase of the inhabitants of Tennessee between 1000 BC and 1000 AD?
-- When did John Goldsmith share his work?
-- Where were court functions held upon the Queens return to London?
-- What does 'Praça dos Três Poderes' mean?
-- What was Kanye creating when he was five?
-- What year did the patent for lateral cut discs expire?
-- What is the name of the TCM spinoff channel operated in the UK?
-- What percentage of adults in the Netherlands spoke a dialect or regional language in 1995?
-- What's the equivalent of Universities of Technology in French-speaking areas?
-- In December of what year did intercommunal violence erupt?
-- What does radioactive decay of atoms in the core of the Earth release?
-- How many of the 12 Swiss universities are maintained at the cantonal level?
-- What metals were alloyed with tin to make it stronger?
-- What was the rate that the GDP expanded?
-- In Rome, what do historians consider to be a precedent for comics?
-- What did the National Guard refuse to obey?
-- What is the division of Catalan dialects?
-- Which college in Newham does Eton College co-sponsor?
-- What nonprofit did Schwarzenegger found in 1995?
-- Who took over the remains of the Western Roman Empire?
-- What do Jehovah Witnesses accept in lieu of blood transfusions?
-- Approximately how many people work in OU Health Sciences Center?
-- What types of child labour did Switzerland employ?
-- How did Syria and Jordan see Israel's plans?
-- What kind of training classes are offered at CTC?
-- What is the second largest Protestant denomination in North Carolina?
-- How do Jehovah's Witnesses see themselves in regards to the power structure of the church?
-- In 2011 what was Arsenal's estimated fan base?
-- What type of capacitor can cause signal distortion in the downstream tube?
-- How many geographic regions make up Greece?
-- What was later banned in public education?
-- When was the first ruby laser invented?
-- Sibley and Ahlquist' Phylogeny and Classification of Birds is a landmark work on the classification of what animals?
-- Who designed the chapel at Keble College, Oxford?
-- What have some of Czech's characters been used for by phonologists to denote?
-- How much did Taiwan fine Dell for its practices?
-- What is the national average for literacy in India?
-- What building provides the location of the Washington University School of Law?
-- Which music video contains the last footage of Freddie Mercury?
-- How many universities are in Switzerland?
-- Chopin was first in writing what for concerts?
-- what was the 1989 hit theme released by KMS?
-- Which part of Detroit has gotten billions in investment around the turn of the millennium?
-- Instead of rose windows, what type of windows do Italian cathedral facades usually feature?
-- After Antigonus was killed, what region did Ptolemy take over?
-- In what year was the Musee de quai Branly built?
-- Who is the director of the San Diego Symphony? 
-- Media production and media reception are examples of what type of context?
-- What kind of structure did the People's Committee system use?
-- What historical school claims that sentiments and meta-emotions can be learned?
-- What did the Vedanta school represent in Hindu philosophy?
-- What was in the first data dump?
-- Who thought the senses were more important, Aristotle or Plato?
-- Where is the the Umayyad Mosque located?
-- How many people are on the Territorial Council?
-- What historical event did Baker and Schwarzenegger watch on TV together on their first date?
-- What did Carnivore monitor?
-- What is the name of the campaign that Beyoncé and others are involved in that deals with gun control?
-- Who were the founders of progressive education?
-- When did the Hostellers of London become a guild?
-- What is Wayne Counties average income?
-- Which color of hair is most common among mammalian taxa?
-- In 1876 who lobbied for the construction of the differential analyzers?
-- Did Eran Elhaik, from Johns Hopkins University School of Public Health argue for or against Khazar descent?
-- What did the ninth century bring?
-- What nation provided the most legal immigrants to New York City in the Caribbean?
-- What role did Pelosi win in 112th Congress?
-- Planck studied what problem posed originally by Kirchhoff?
-- WHo is the nephew of buda king casimer III the great?
-- How many General Category properties does each code point have?
-- What will the project named CASA 1000 do?
-- What organization advises the Tucson government on bike concerns?
-- What are the names of the Conservative synagogues in Richmond?
-- What was the final track on Queen's The Game?
-- About when did architecture begin specializing?
-- What is evapotranspiration?
-- Which of the two systems, reward or punishment is better understood?
-- Which contestant came in third place?
-- Brincourt made preparations to invade which state?
-- What did Nasser's allies receive in the new arrangement?
-- When was construction on the Thames Barrier completed?
-- How had the Vandals earned their strong reputation?
-- Who is the only federal employee that can spend un-vouched for money?
-- When was the Premier League originally formed?
-- What did the published scheme attempt to do?
-- The political scene of Estonia is similar to other countries in what continent?
-- Burke was the only known writer for the Register until what year?
-- Where does a bill go once the President signs it into effect?
-- What type of alcohol is found in beer?
-- What is another name for steamer ducks?
-- What was the population of Guinea-Bissau in 1950?
-- The next layer's surface-to-air missiles are carried by what?
-- Who are the indigenous people of the Americas descended from?
-- Per Clayton's analysis of loans issued from January 2006 to June 2007, what percent of loans did not meet minimal standards of any issuer?
-- What is not very well developed in Peru?
-- One of Napoleon's primary goals was to enforce the Continental System against whom?
-- What did the Province of West Jersey specify there would not be for those running for an office, in 1681?
-- When were "Eisenhower Interstate System" signs first posted along highways?
-- What is the largest criticism leveled by consumers against Comcast
-- What is one disease that has been nearly eradicated thanks to vaccines and antibiotics?
-- What is a definition of signal-to-noise ratio?
-- On what date did the constitution of India become active?
-- What did Oberhauser call himself after he faked his death?
-- Who did Henry fight a short war with in 1183?
-- During the Middle Ages, who was no longer expected to stay behind walls away from the common man?
-- What percentage of Imperial's staff was classified as world leading in 2008?
-- Corrupt people may manipulate what to receive more assistance?
-- What victory strengthened John's position?
-- What caused many men to free slaves from 1782 to 1810?
-- What is the primary cue for migration?
-- Who was the most famous prose writer in early Estonian history?
-- Do all plants have male and female parts?
-- What rival did the Portuguese fend off in Guinea-Bissau?
-- The most expensive office tower built in the world today is what?
-- What era was Chopin active during?
-- Article 23, before it was rephrased allowed what?
-- What gods did Juno and Minerva replace in Roman religious practice?
-- These elements concern health related to reproduction and what else?
-- How many households have 5 or more people living in them?
-- What are groups other than blacks considered to be?
-- Besides Carnival, what other major cruise line parks its record-breaking cruise ships in Southampton Water? 
-- What organization sought to strip Washington University of its tax-exempt status in the 1940's?
-- What does Namibia protect in it's constitution? 
-- Is there anything that trumps state law?
-- What is the function of an Alaskan recording district?
-- When was Plymouth Gin first distilled?
-- What is ab example of a gender marked adjective?
-- Who was the highest ranking official killed in the attack?
-- What is one system that uses electromagnetic waves?
-- Where is the House of the Black Madonna located? 
-- The Pyx Chamber and chapter house are under guardianship of whom?
-- What did Feynman investigate while working on quantum gravity?
-- What happened to the cargo train?
-- There was disagreement between universities and scientists over schools focusing on science, and the idea of what?
-- What team pushed Barcelona out of the Champions League play?
-- What business organization is the Congo a member of?
-- How many hispanics live in the City of Boston?
-- Where does Mac harware boot directly to in most PowerPC-based Macs?
-- Where is the Church of the Holy Sepulchre located?
-- Who was the Trojan priest of Apollo?
-- MediaOne merged with what telecommunications company?
-- Where must enclitics appear in a sentence?
-- How long was the rule of the national democratic party?
-- What years were the Maccabean Revolt of Judas Maccabeus?
-- Where was Nigeria's second satellite launched?
-- What leader sponsored the expedition that discovered Cape Verde?
-- What is the purpose of polyribosomes in bacteria?
-- What sends a point in the square to the relating point under the symmetry? 
-- In degrees Fahrenheit, what is the normal range of high temperatures in Miami?
-- When was Bertrand Russell born?
-- What was Napoleon Bonaparte's nationality?
-- How does freeze drying, distillation and metallurgy benefit from a deep vacuum?
-- Why will water become concave, according to the relativity theory?
-- Who symbolizes the third lion not found on the Golden Boot trophy?
-- What type of sports are popular in Brasilia?
-- Cossacks came from what backgrounds?
-- According to the constructivists, what is an example of a learned meta-emotion?
-- What two districts are extensions of the Paris business district?
-- There are several religious group that have seem rise in demographics, one of which is popular among African Americans being?
-- Instead of faith, John Polkinghorne relies on what when it comes to the theory of materialism?
-- Two other major forms of nusach among Ashkenazic Jews are what?
-- What is Whitehead's most well-known critical statement regarding the Christian notion of God?
-- Who governs Northwestern?
-- John did not regard the loss of Duchy as a permanent shift in what?
-- The Opera feed reader is more what?
-- What is the term used to describe the obligation for humans to avoid disrupting the ecosystem?
-- What were multiracial children with a tribal mother considered to be in tribes of the Southeast?
-- Why is urban Melbourne divided into hundreds of suburbs?
-- What area copied Bismarck's social programs the most?
-- When was the first property for what would become BYU acquired?
-- Leibniz's example involves how many universes?
-- How many states does Nigeria have?
-- The Stonewall riots are named after what building?
-- What portion of students are native Utah residents?
-- In terms of teaching and research, what is the world's foremost institute of social science?
-- Where does London rank in terms of metropolitan area GDP?
-- What kind of bombs were effective in the beginning but became less so with time?
-- What industry are slide rules still used today?
-- How did Gaddafi's father earn a living?
-- Where did the torch relay finish in Turkey?
-- When was the administrative county of Lancashire created?
-- During what century did businesses move out of Boston to find cheaper labor?
-- When were the Chronicles of Huayang compiled?
-- Until when did Henry III continue his attempts to reclaim Normandy?
-- Which planet is compositionally similar to Neptune? 
-- What changed worldwide property drasrically?
-- Under whose reign did the last major building works take place?
-- In 1914, a separately paid-for supplement for The Times was a magazine that featured what kind of content?
-- What was Arsenal's league position ranking at the end of the last century?
-- Why has MTP become the primary storage access protocol of the Android operating system?
-- What was General Hodge appointed the head of?
-- Besides in treating human disease where else are antibiotics used?
-- What is the relationship called in a navigational model?
-- In what year did apple release the special U2 model of the iPod?
-- What type of Ottoman poetry is ritualized?
-- Which religion will have the most followers by the year 2050 if trends continue?
-- Who is considered the enactor of laws?
-- Why was this constitutional convention held?
-- What is the 10th Amendment in the United States?
-- What have Jehovah's Witnesses maintained we are living on the precipice of since their formation?
-- What is listed as the sixth of the six paramitas of the mahayana?
-- Which host quit after the first season?
-- How long ago has circumstantial evidence has been found for the existence of angiosperms?
-- What's the estimated populace of Greeks on the isle of Cyprus ?
-- Who assumed power in Saudi Arabia after the failed assassination attempt?
-- By what means did locale people travel between Pacific islands?
-- What aspect of the PS3 Slim was CNET unhappy was missing for PS2 games?
-- Assistance from what country is an important part of the Marshall Islands economy?
-- What did the European Commission review 
-- What part of Europe was split up by the pact?
-- Who wanted the CIA to have a central group that organized information for him?
-- What kind of plants are common on Saint Helena?
-- What was often deployed when trying to gain power?
-- In what year did the Ostrogoths settle in the Roman Empire?
-- What was the diagnosis of Chopin's health condition at this time?
-- What does SWS stand for?
-- What year did Nintendo's market surpass all computer software?
-- How many governments are apart of federalism?
-- What language does Dutch get its second highest percentage of loanwords from?
-- Who was the king of Belgium  in 1918?
-- Hayek believed the state could aid the economy by doing what?
-- What weather factor produces a great variance in local climates in the Seattle area?
-- Who ate the meat of the sacrifice during the after sacrifice  banquet?
-- What is the second most common language spoken in Montana?
-- When did the inaugural  FA cup tournament take place?
-- What is the annual turnover for the trust?
-- When did a similar revolt occur in Castile?
-- What year did the Chicago Cubs' name become official? 
-- What is one who replaces a player during a game called?
-- Other than "taler", what is the other name of the German coin?
-- Who issued the Plan de Guadalupe?
-- In what year did the earthquake in Sichuan occur?
-- What was Montini accused of being by the Italian government?
-- If a carbohydrate is not a simple monosaccharide, what else could it be?
-- How big is the largest copper crystal that has been found?
-- What is the largest populated city in Arizona?
-- How could have more been achieved in the air offensive?
-- What is the compilation and codification of all federal statutes?
-- A legislator said that by allowing Farrow to enter Hong Kong while denying others was a violation to what policy?
-- Where was the epicenter of the earthquake?
-- Where was Jesus Crucified?
-- With what type of insect is a dicondylic mandible associated?
-- What was the original size of Dunstan's original monk community?
-- What name does the Boston School for Deaf Mutes go by now?
-- Do a teen's friends have a large or small impact on their social development?
-- How many people competed to be Brasilia's urban planner?
-- When was Morrisania created?
-- When was the first Queen Bluray released?
-- In what month was the second generation of the Digital Monsters Released?
-- what year was the Treaty of Paris agreed on?
-- Who became chairperson of Universal Pictures in September 2013?
-- What gospel singer did Freddie Mercury cite as an inspiration?
-- Who supported the Magisterial Reformation?
-- When was Cork believed to have been founded?
-- What is the largest base of shooting films and TV dramas in China?
-- What year did Lord Kinnard die? 
-- What does the concept of "full faith and credit" protect?
-- When was the first constitutional convention held in Montana?
-- When was Fort Hamilton built?
-- What did the Manchester police say about these claimed attacks?
-- Which conquistador from Spain conquered the Aztec Empire?
-- How old was Tikhonov when he stopped being Chairman?
-- What is the high wind speed on Neptune's cloud tops?
-- What type of a cappella music is specific to American culture?
-- How did Bush try to convey that he was the stronger, tougher candidate?
-- What specifically did his son work on?
-- Who revealed the starting points of this evolution to be economic deterioration and political confusion?
-- When did the Great Fire of London occur?
-- How many volumes was Queen Victorias journal?
-- Why was there a photo of the Boardwalk if it wasn't actually damaged in the storm?
-- Which monarch granted assent reluctantly under the advise of his ministers?
-- What phenomenon did the Reformation bring about?
-- Apart from cutting the frequency fidelity in half, what else was cut in half?
-- What law protects the teaching of Arabic and Islamic traditions in Mindanao?
-- What year did the CAF leave Europe?
-- How did Bell's reworked melodeon send music?
-- What are the names of the two states that are sovereign in the British Isles today?
-- When did the first Rajput kingdoms emerge in India?
-- Who retains ownership of the collateral until the debt is paid?
-- What is the name of the romantic drama film that Madonna starred in?
-- How could someone learn more about how to safely use and handle an unknow pesticide?
-- How many sales of Keeping Up Appearances have been made to non-British buyers?
-- What kind of Republic did some insurgents declare Alsace-Lorraine?
-- How much of the Bronx speaks African languages at home?
-- Why were ports better targets?
-- What video game did Beyoncé back out of?
-- What is Charleston's seasonal record of snowfall?
-- What song did Madonna release for the Live Earth series of concerts?
-- What day is the Santa Monica Feast held on?
-- What do people typically call a web browser?
-- What is reinvent the toilet trying to develop
-- The French Marines and naval infantry were dispatched to reinforce what?
-- What is a common background for a Japanese wrestler? 
-- What principles usually govern the Estonian orthography?
-- A patent issue much later than normally expected can be referred to as what?
-- What is the capital of Massachusetts?
-- In which year did Imperial merge with St Mary's Hospital Medical School?
-- Insects have what kind of protein content?
-- What is the tallest mountain in Greece?
-- Who considers animal fur to be cruel and unnecessary?
-- In what year did Frédéric obtain citizenship in France?
-- What branch of gevernment is responsible for ratifing treaties?
-- What other colony was taken by the British from Spain?
-- What is a component that all CPUs have?
-- What country did Montini visit as Cardinal?
-- Who establishes the executive branch of Estonia?
-- When did Japan adobt the name for the war?
-- When does infection begin?
-- In what year was the Plebiscitum Ovinium initiative enacted?
-- What award did American Idol win for its Idol Gives Back charity work?
-- Performers can use their knowledge of what to help interpret a written score?
-- What are some other causes of airway obstruction?
-- What European national ancestry was claimed by 45% of Tennessee residents in 1980?
-- What percentage of the top 100 world chess players come from the Ashkenazi Jewish community?
-- Who released the Internet Explorer browser?
-- What does Link help Midna find?
-- What is the primary race of the population of the Randolph neighborhood?
-- Did everyone agree that Amendment 36 was a good idea?
-- Who was Eli Lilly's work based off of?
-- What was the highest temperature recorded in Houston?
+- will this fit Thermador (OEM: Bosch) older cooktop?
+- what is the GPM......gallons per minute of this filter?
+- I bought this and tried to install it. There are gaps just at the rounded corners between the cooktop and the granite. Can anything be done?
+- Once ice is made does it start melting or does it stay frozen? I don't want to sit and empty small containers all day...
+- I saw a response saying this has white spots on it. The original does not. Is it correct that it has white dots on the glass?
+- is this filter compatible with samsung rf260beaesl
+- Does this work with a Kenmore Refrigerator Model 51562103 ?
+- what gauge steel is this?
+- will this part fit on model FER211AS2?
+- Do these have the small rectangular hole so the burner clip will fit through.
+- does this filter fit model BCM7910PF?
+- filter shows hexagon shape will it fit the round one that is in my humidifier?
+- Is it reliable? Does it need freqent repairs?
+- Would 4396096rbc griddle be compatible with my flat top electric stove #D41717691?
+- I have a Roper by Whirlpool dryer Model Red4440vq1 I need the timer switch for it. I am asking you to make sure that this is the part I need. Thanks
+- Do you have any issue with the grates sliding around and/or do you see issues with the glass getting scratched up over time?
+- What are the dimensions? I would like to know if it would fit in my kitchen
+- Electrolux: EW28BS71ISC - does the ice maker work?
+- Does this fit SCM7809 which requires an "E"?
+- Will this fit a kenmore elite 665.16463300?
+- Will this work for WFW9250WW01?
+- How much does it weigh?
+- is this compatible with replacement part Hotpoint part # WBK 5012 ?
+- Looking to see if someone make a grill part for the jgb870 not griddle. Does one exist?
+- Hey Owners, what does "Power Outage Compatible" mean? Range top works without A/C? I hope..I have no idea is not an answer. :-)
+- Have a Roper electric dryer...looking for a heating element and theromostat...Model # of dryer is REX3615EW2. Will this part fit.?
+- Will this fit my Maytag cooktop model number CSG7000CAE?
+- will this element work for my model fefl67hcb ?
+- WB13K21 for GE does this have two side attachments? the last one I orderered fr. another company showed a picture with two attachments but came with 1
+- Is this the unit that operates with a wall switch? I don't want the one that uses the switch in the drain plug.
+- I am not familiar with propane refrigerators, but need a small unit for an off-grid cabin. We have no electricity...is this a problem?
+- Can this product be used in an incubator? I like to count my chickens before they hatch.
+- Could I bag the ice every day to have 6 bags for the weekend or would it freeze together?
+- Has anyone purchased this oven recently?
+- Does this model display wet bulb temperature?
+- what are exact dimensions? all the other postings have the exact dimensions. "standard size" doesn't really help much.
+- Will this work on my range with mfg id E25378?
+- Serial number on my GE Profile refrigerator is TFX26PPDAWW Serial RZ 240781. I need to replace the tray with the automatic dispenser. Is GE WR17X11419 correct model?
+- Do you have the dryer matching? bouth in same grey color???
+- What benefit do the sensors provide (supply, discharge, ourdoor)? Does this thermostat provide any utilization/temp reporting like the Nest?
+- How many of these parts do I need for the LG dryer. I want to order them before I start the work. Do I need two or four?
+- Although I have changed the rubber gasket inside the nozzle, I still have a leaking problem. Do you have any suggestions?
+- I have a Kenmore refrigerator Model 25378832790. What ice maker kit do I need?
+- What is the coldest temperature this unit will cool to?
+- How do I know that the bottle is empty and I have to replace it?
+- Humidistat keeps blowing my furnace breaker. Is this a bad humidistat? Turned to off and the furnace works and water keeps flowing to aprilaire.
+- Will this fit with model WSSH300GOWW? Is this the only part I would need to replace the rubber gasket or are there other parts I need?
+- 19.8 x 17.9 x 33.7 inches? What is the hight, width, length and depth?
+- One review said this frige is taller than labeled. What are the exact measurements?
+- I friend of mine had a kegarator with Beer on one side and root beer on the other. Can I do that with this?
+- What is the size / are the dimensions of the box?
+- griddle
+- How do you know it is correctly calibrated?
+- Will it fit model# 11027612600
+- How can additional branding plates be bought?
+- is it a self cleaning oven?
+- is it quite
+- Unit depth measurement?
+- how do you reset the filter light for the Carbon and the Hepa?
+- What is the hazmat code for this device? I need to ship it to Tortola.
+- How wide is the large section of the interior floor ( not counting the step up part, that hides the compressor.)
+- Does this Broan QS230SS come with air filters? Picture does not show all details.
+- What are the box measures, for shippment cost calculation purposes?
+- Is it true that it is completely vibration free?
+- does the door require space to oen or does it function within the 15 inch space?
+- does this fit v3700 with Starry Night Light model?
+- Is a water drain to the outside required?
+- does it fit french door
+- I have model JTP20B0F7BB will this work on our oven?
+- Looking for ventless, I need to know where to buy charcoal filters.. Expensive? Work well?
+- what are the dimensions of the small drip pans?
+- does this filter fit the LG model LRFD21855ST refrigerator?
+- After I plug the lamp into the timer device should I manuially turn the lamp on or leave it off?
+- Some reviewers talk about grilling and others using a griddle. Are there different parts that swap out in the middle or are they the same?
+- Why can't I smell the fabric softener after the wash is done?
+- will this work with whirlpool dishwasher model #DU1100XTPT3 ?
+- Has anyone experienced problems washing waterproof/water-resistant clothing in the LG WT4870?
+- How thick is the gasket that seals around the door? If I had a bottle that would stick out about 0.2" when pushed up to the back would it still fit?
+- would this be ok for testing water in my tropical fish tank,thanks
+- Did anyone use it with model MH6150XMS?
+- Is this a replacement for Samsung part# DA29-00020B? Thanks, Ann
+- freezer door is not closing. what do I need to repair the hinge? appears some piece is missing and I don't know what it is
+- Will this fit a LG WM2233CU?
+- Is this used to replace and existing coin-operated box or can it be installed to convert a non-coin-operated washer and/or dryer? Big job doing so?
+- How does one separate the first and second filters to remove the lint (not the felt circle but the first two)?
+- Is this hard-wired or does it plug in?
+- Kitchenaid dishwasher Model KUDS30IVSS4 -- is this fuse compatible?
+- can these be used on Vick V790
+- Do I need to buy clamps for the installment ? If so, what type should I buy? TY Consetta
+- Will this change my dryer from LP to natural gas??
+- Is this roller OEM part,with blue color? Does it work with LG DLE2516W,I want to make it clear because people received a wrong parts.(Red color roller
+- Does this have a cello tuner setting?
+- What is the size of the vent?
+- will this sensor work with bar938hga
+- What exactly does the 'Hydro Cell" do? --with reference to it being an advanced water maintenance system with 'activated carbon technology'?
+- Is this ductless too?
+- does this slider door handle come with an exterior lock?
+- How many racks come with this oven, Can more racks be ordered?
+- Height of this item?
+- Can I upgrade drip tray to one that has a drain?
+- I have a G.E. wall oven jgrs14 gep. the oven does not light the broiler does but only for a few minutes. is it the Ignitor ? is there two ignitors?tha
+- Does this fit a Bemis 821-000? Thanks.
+- If I used this Refrigerator at the max power setting, how much would I pay monthly energy wise? (AZ)
+- Will this cooktop fit and work where there was a JennAire 2 burner/grill with the downdraft?
+- The product dimensions are listed as 7 x 7 x 7 inches. Is this correct? If not, what are the actual dimensions?
+- Will this docking system work through the laundry floor? Have short space from bottom of dryer to wall. Flex hose to crawlspace and alum.pipe out.
+- I am undecisive between 4.5 cu. ft vs. 4.7 cu. ft. Are there big difference in 2 cu.ft in terms of what I can wash and not wash?
+- I own the mk5 TT. Do you also sell the correct hinges that mate the mk5 with this dust cover? Thx.
+- Does the finish match Samsung's stainless appliances?
+- Can this thermostat be the cause of the timer not advancing ?
+- Must this vent hood be venter to the outside air? I live in a condo and am not allowed to break walls leading to the outside.
+- i have a frigidaire refrigirator will these fit model frs23r4aq6
+- is this for propane or natural gas?
+- will this unit replace part # 696579 5400 Watt? Thanks.
+- Does this include installation and removing old oven
+- I'm debating between this and the Panda Small Mini Portable Compact Washer Washing Machine 5.5lbs Capacity. Which one is better??
+- What size is this element?
+- WHAT IS THE WATTS?
+- How do you defrost the freezer...where does the water go??
+- Capacity: How much clothes fits in a 6LB washer?
+- I've installed this valve but it didn't fix my problem. Included is plastic tubing and fitting, but no instructions on how to install.
+- loud noise inside when turned on. sounds like blades are loose
+- I need a drain pump. This looks suitable. My Washer is a Kenmore ELITE OASIS HE bought in late 2006. Troubleshooter guide shows W10026571 for washer.
+- Will this element,thermostat combo fit a Roper model no.-REX3514PQO?
+- I don't know how to set the timer.
+- will this pump work with wm2101hw
+- Will this fit my Kenmore 110.67072600?
+- I have Whirlpool TRS22AGXTQ000 and need the upper (not bottom) crisper pan. Is this the correct on for that model?
+- Will it work with kitchen aid kuds30fxpa8?
+- The description of this motor states it is .5" x 1" x 1.37". Is that right? It wouldn't be much bigger then a bottle cap.
+- Is this equivalent to Whirlpool Model ED2VHEXVQO0
+- I am interested in buying the "Avanti 110-Volt Automatic Dryer". Do I need this vent as well? I figure I purchased both if needed and save some time.
+- Can I see more pictures?
+- hello This Burn is for a stove GE JBP80W0H1WW in 8 inch, i need one this and anothe 6.5 inch?
+- Is this it? The only thing I can find on my Estate is PT. NO. 3196685 REV. REL.
+- Does this work in a sub zero 550, mine is from about 1994, the switch says littelfuse on it
+- will this vent fit an electric 3.4 Cubit ft. whirlpool dryer?
+- Do the wine glass holders work well? Is it gentle on china?
+- I see two boards in the online photo. Do two boards come with an order qty (1)?
+- Will these knobs fit a GE Model JB630RFSS
+- Why can't it be used in an unheated area, as one person commented?
+- does it fit kitchenaid ykhms1850ss-2
+- I'm looking for a variable speed control for a 3.5 amp 1/3 hp induction motor, will this one work?
+- What makes it cyst-reducing?
+- Will this work with Fridgidaire M/N: frs6lf7fma?
+- I just ordered the three pack (Part Number 5231JA2006B). I read all the bait &amp; switch stories. Are they still sending the A model instead of the B?
+- Does anyone use this for the Kenmore Filter#9915? I believe the other # is 2300655.
+- does it include outside handle
+- wiil this work for model jgbp3dbew1ad
+- Will this fit a Kenmore HE2 plus model 110.47511702?
+- ow much soap shall I use for one load of wash
+- What are the NSF Certification numbers for this filter, and where is it made?
+- Will it hold up under repeated use daily. What about a family with 3 small kids. The mini washer and mini spinner will be used daily.
+- Does it come with propane converter?
+- Will it work with Kenmore 106.57079601 model?
+- Does the washer move around a lot when in operation? Anyone tried the Laundry Alternative mini washer plus with rinse cycle?
+- Accessory Type ,Installation accessory. Parts &amp; Accessories,any parts are needed to install this combo in my new condo unit. such like: electric
+- How many bulbs need to be purchased for this range hood?
+- Can the lights be replaced with brighter ones?
+- Will this work for Maytag Neptune MLE2000AYW ?
+- Does this element fit model # FEF352DU?
+- Is it made in USA
+- Measurements, needed also! This isn't much help...
+- does this combo have to be installed in a drain pan. Does all of the water discharged from the washer go out the hose or is a secondary drain required
+- fan ices up stops working in ice maker model fghb2866pf2
+- does this fit a model 60 with dark top?
+- How long is the cord? thank you
+- does it come with damper for backdraft and bird mesh
+- what is the replacement part # for door boot seal?
+- my Kenmore ice maker part is 106. 67292790 or 106.77292790 the ice tray leaks water, do you have a replacement for the whole unit?
+- Does the display time out or does it continuously display temp and humidity without pushing any buttons? I want to use in jars but don't want to open
+- will this kit fit model #LGR7646JQ0
+- Anyone know if this can be shipped to Australia??
+- I ordered and received this water filter, but I can't seem to get the old one out! Is there a trick that I'm missing? I tried pushing and turning.
+- does this fit a maytag 3000 series dryer?
+- Does this have USB port for data logging like theGlobal Sensors Green Eye Version?
+- how wide is it ?
+- Not working
+- Will this fit I have a 1800-1001 maytag filter now would this fit?
+- Kenmore dryer thermostat
+- what kind of filter is it?
+- will this fit a frigidare model # frs23kr4a
+- Accuracy is +/- what for temperature on this device?
+- does this fit model ATF6000FS2
+- what is the energy star rating? How many watts is it? Is it high-efficiency?
+- Does this have the stinky smell that other front load washers have?
+- What is the length of this gasket? Can't seem to find it listed and some people report it being too short for their model.
+- Can this measure differences between points less than 6 inches apart?
+- what are the dimensions of this item?
+- I am looking for a filter to screen out weed seeds from ditch water, will this do the trick?
+- In the picture looks like the shelving is made for wine bottles and for them to lay down. I would like to use as a beverage cooler and have cans, water etc. Does it have flat shelving that I can set cans/bottles upright? If not can I order replacement...
+- Is the griddle insert for the middle burner included with this range?
+- IsThis part work with Amana model ART 6001W ?
+- will this work for Rinnai RU98i? (requires 3/4" internal diameter hose)?
+- Is this part compatible with whirlpool dryer model wed5200vq1?
+- Can you wash with hot water? By hot meaning as hot as the faucet can provide, which in my case can be hot, but not burning hot. Thanks.
+- I have a 9000 BTU Frigidaire mini split with heat pump that need recharge. Any one has any idea how much refrigerant I need using manifold? Thanks
+- Does anyone have problems with the ice being knocked out of the ice box when opening the freezer?
+- Where are they made?
+- Should I take out the charcoal filters if I'm venting to the outside?
+- What method/s work best to drain the unit? It was mentioned that a filter slowed the process, is it removable?
+- are they 3/4 " connectors
+- where can I locate an owner's manual?
+- Does 3485ED1002B is equivalent to 3485ED1002A?
+- Is there any way to set calibration?
+- where does the temperature sensor clip at on this unit
+- Will this work on model # LFTR1814LBJ Top Freezer?
+- Will this work with model number: LDE5910ACW Maytag
+- going on vaca with no stores to get ice need to bring my own and keep frozen will this do the job?
+- For those of you who had parts AND labor covered by Samsung on your out-of-warranty DV330AEW, any tips? I can only get them to cover parts right now.
+- just bought a new alum Pressure Cooker/found in manual that it shouldn't be used on my ceramic stovetop.Any ideas? do I have to get a hotplate or a ..
+- Will these filters work with the KitchenAid Model #KCM223CU0?
+- This is for non ducted hoods right? Does it have the charcoal in the filter?
+- does this actually work as an amp ?
+- what temperature does it go down to celcius or farenheit? is it adequated for breastmilk?
+- will this kit work with Cabrio WTW6400sw1?
+- will it fit in a 29" door way ..with the doors and bottom frezzer drawer removed ? thank you joe
+- Im looking for a Inverter Board A71FCMUT for a Emerson LC320EM82S will this one work? I notice your not mentioning the MUT number in the description
+- How does this spin dryer compare to the mini dryer in size?
+- how does the self cleaning preform
+- my jenn-air cartridge is a conventional coil model A100 will this fit?
+- Will this grill fit model #FGGF3054MF?
+- I have a Kenmore side by side ref. It's part# is the same 2186443. Picture looks the same too. Is this compatible?
+- I need this for an old GE refrig that need a 1/4in and a 5/16 water outlet...I bought it guessing it would
+- Is it stainless steel silver color or copper color
+- Can I mix-up the black and white wires on the disposal unit when hooking it up with this power cord? Does it matter?
+- does it work with any brand of stove.
+- Does this meter track the CO2 level over time? or only tell you what the current level is?
+- I have the Panda washer, which does not spin. Do you put the clothes into the dryer dripping wet?
+- Do this fits Maytag MDB7600AWW?
+- Does this filter connect to this faucet (http://amzn.to/1GiSrMi) with this kit (http://amzn.to/1ySuhFM)?
+- Will this work with the amana model adb1500aws?
+- Does the black one come with predrilled holes for installation?
+- does this handle fit Frigidaire (Electrolux) Model LFHT1817LW6?
+- I wish this had a black cooktop...for practical reasons. Is the stainless impossible to wipe/keep clean from spills and fingerprints????
+- Does this come with the full manufacturers warranty? Do you deal with GE directly if there is a problem?
+- this is the same part number as the one Sears says is the substitute for a Kenmore smart reach. Is this correct?
+- what is recommended space from range/countertop to bottom of cabinet?
+- Will this work in the Keurig Vue V1255?
+- Will this part replace 2182104 ?
+- Is it 100% Stainless steel? I have seen so called Stainless units that have only the walls in stainless and the top of it is not stainless and rusts.
+- I need a shorter length. What is the best method for cutting the plastic to avoid cracking and an unsightly edge? A jigsaw?
+- Does this have hidden heating element or exposed? Thanks.
+- Will it fit Series 3000 Maytag washer and dryer?
+- Is there a sealed protective covering on the filter like shrink wrap? Mine had none. Other brands I purchased before all came in a sealed bag.
+- What thickness are these bags? (4.5, 5, 7 mil)?
+- Will this fit WHIRLPOOL model number ET1MHKXMQ00
+- Does this part is a replace part for A PC BOARD 6000499 ?
+- will this belt work for the GE model WJRE5550K2WW I am having a hard time finding an exact match?
+- can this be calibrated?
+- What is the shortest height that the chimney can be adjusted to? Thanks!
+- Will this fit a Whirlpool cooktop module model RCK986?
+- Does this come with a cord-and-plug assembly, or do I have to hard wire it in?
+- Does this have a grease collection tray or tunnel? if not how does the grease get collected and cleaned?
+- We need a Kenmore Refrigerator CYST Water Filter 46-9010 ... don't see the word "cyst" in product description. Is this the "cyst" we need?
+- what are the real measurements? "product information" says 15 x 30 x 26 inches
+- Does a filter come with hood
+- 4 humidity sensors around the house (Honeywell IAQ tstat, Accu-rite sensor, and 2 Nests) all read 45-48% RH. Amprobe reads 57-59%. Did I get a dud?
+- Will this work on a Bosch Nexxt 100 series front loader washer WFMC1001UC/06
+- hello, are these nachi bearings? thanks
+- Will this replace a ZEM200SY 002 I currently own that is not working IN the space I currently have?
+- is there a matching range hood?
+- Will this fit the old Jenn-Air range A100?
+- Any issues with using this to exhaust a bathroom fan?
+- Will this product replace GE # WR30x10093 ice maker in my Whirlpool fridge?
+- Rather than ask if they'd fit my brand range... may I ask how they're measured? Is it rim edge edge, inside lip to lip, or bowl edge to edge?
+- If this item does not have a CO2 detector, can you set the time for CO2 production and the CO2 production cycle?
+- Will this ductless installation kit work for a Golden Vantage 30-inch OSWRH198KZ4-30-GV Stainless Steel Wall Mount Range Hood?
+- I have small rental units. a couple of questions- where does the unit drain? Are there drain hoses? Do you have to continuously connect to faucet?
+- will this thermostst fit a model JKS05GP oven?
+- 1. Does the on off switch turn of the freezer portion as well as ice making? 2. LxWxH=15.1 x 17.4 x 24.5 inches? Thanks.
+- what is the warranty? mine is 11 monrhs old, and it cracked .
+- is this product made by watts or anderson barrows in the usa or made in china
+- How is the water pressure from the standard (non-carbonated) dispenser? I have this fridge and it seems to take forever to fill a cup of water.
+- to confirm, the refrig will be delivered into the kitchen and debris removed?
+- Is this a genuine Whirlpool Water Filters P/N 4396510? I do not want a generic or non Whilrpool brand.
+- Is it possible to safely make ice without the small clear plastic gasket in the drain opening? Or will it leak all over?
+- Think this would work on a GSH25JFXBB?
+- what is the upper limit on the new part as opposed to the older version as far as temperature is concerned
+- If the rack is facing the sink it drains into the sink, how/where does the extra slide out tray drain?
+- does this work on the WM2487HM?
+- Is this unit for ductless ventilation.
+- Blue wire burnt into what do I do?
+- will this filter fit model kenmore #59673503201?
+- Does it keep the ice frozen like a freezer after the ice is made
+- Can these be used on a solide wall or only dry wall?
+- I am looking for my main refrigerator door to swing back and close by itself.. after I open it. What do you think is wrong and which parts are needed
+- Do the filters have expiration dates? I'm wondering if it's worth buying more than one at a time if they are only good for a certain amount of time.
+- Does this work with Thermador Freezer?
+- I have a 110.45081404 Kenmore Washer will this pump work?
+- how long is it?
+- Anyone know if this will fit in a Vicks Starry Night Cool mist humidifier?
+- Does the packaging that comes with this supply hose state that it is lead free? Does it meet CA Prop 65 requirements for lead free?
+- Does anyone else think it's noisy/loud?
+- does a speed queen dryer with a drop-down door exist?
+- I'd like to use this hygrometer to keep track of the humidity in my acoustic guitar's case. Do you think it would work well for this purpose?
+- can this unit be used for re-circulating filters or ductless.
+- Why is this $4.99 for shipping and does this come in black?
+- is this big enough for a queen sized comforter?
+- Is there a way to add water while it spins, essentially using it to rinse out the clothes before eventually spin drying them?
+- Will the Frigidaire hand magnums?
+- Is this 15.5 inches?
+- Will this part fit LG LSC27914 ?
+- how to use it without getting caught by the owner water usage i want to buy one
+- Do they fit kitchen aid KGCS105GSS11?
+- Will this work with Frigidaire FRS26LF8CS1 ?
+- Is this available for pick up? Where in New York as I am in NJ
+- Will a 4 5/8" pot work on the 6" burner?
+- The bottom oven light stays on even though the top oven light is off. It doesn't matter that we touched the keypad to turn the oven lights off! HELP
+- How does the door attach to the main unit?
+- does the unit shut off just by moisture or wiping the glass at the controls?
+- Is this product suitable for attaching to fridge and tiny cold water tap on wall behind fridge? Apt. plumbed with tiny tap.
+- Is this the same as Frigidaire part PS 2332301? My range model is LFEF3011LBD.
+- How to replace Light
+- Does it matter what color wire is connected to the pins on a GE WR57X10033 water valve?
+- Will this work on a "bottom mount" whirlpool fridge. I'm currently using a stock Whirlpool Filter # 4396701
+- What are the real height, width and depth of this range hood?
+- Will this hose work for a steam dryer?
+- Can this unit be vented directly through an outside wall like the one it will be replacing?
+- Can this unit be vented out the back?
+- can I hook this up to a 20 lb propane tank?
+- is this freezer self defrosting
+- Is there a different part number that will mount on the right side of the frig when viewing from the rear?
+- very noisy on last spinning cycle????
+- there are two "on" positions on the switch... the "manual" doesn't specify - what's the difference between them?
+- Is this 3.5" high or 3.5" wide ? By the picture, It appears to be 3.5" wide.
+- how do i tell when the filter needs to be changed? -puresource ngfc 2000
+- How much water is needed to fill the reservoir? How much ice will this make?
+- Does it have a 5/16 vent hole?
+- Where are the models listed that this filter fits as I have a Samsun RF4287HARS 4 door?
+- Will this fit my Kenmore 790-41019800 slide in ?
+- I have the worst sewer smell coming from this machine. What gives?
+- Does this fit model FDB251BLCC1?
+- What is the water source for the ice?
+- does this work on a kenmore elite freezer ice maker model25344733100
+- Hi, the specification says it is 30 inch. My old range is actually 29.75 inch. Has anyone actually measured the exact length? 30 inch won't fit.
+- Will this unit 626636 replace my Kenmore side by side icemaker #626603? I can't seem to find that model # anywhere. Thank you! Marianne Largo, FL
+- How do I mount it?
+- What is the actual depth?
+- Is the overall width 30" from one side of the glass to the other? or is it just the metal under the glass that is 30"?
+- I Have LG LFZ 25975 Will these fit?
+- Do they bake well? I have double ovens now,but cakes fall before they are done
+- does this ice maker fit Kenmore 106.56722602
+- Will this work as a replacement for my invensys 2188708 valve to my fridge model #10655242400?
+- Is the splash guard 3" in outside diameter?
+- Is this element compatible for a Kenmore 400 dryer model # 11069422801? the Sear part number is 3403585 but your element was linked to it on a google
+- For the 1/8 x 1/16 in.(3 x 1.5mm) can you use it to make fake earrings?
+- Will this fit my Kenmore Elite HE3t Model #110.44932200?
+- does this fit model 795.74043.410
+- I have an Air King hood range that needs a power supply cord, would anyone know if this power cord could be used across a different brand?
+- Will the "running low on eggs" feature be interfered with when being handled by a woman in her mid thirties?
+- My original knob has KIP 5D75 with a 'D' shaped shaft and a notch at the flat side of the 'D'. Would this knob fit my stove?
+- Is this compatible with Frigidaire model FRT18HS6JW2?
+- Will these knobs fit shafts shaped like an 8 (fill in the loops) seen from above? Please only reply if you have DIRECT knowledge to answer. Thanks!
+- our Dacor hood is about 10 years old, would this be the same bulb as shown? Also, do you have the suction cups to screw it out?
+- Will this fit a NuTone 663L/669L/"A" Unit circa 1995? I can't tell from the Broan parts guide either. Thanks!
+- installed my ice maker and ran it over night but no ice what did i miss
+- I know the washer has a manual override where you hold the knob so it will fill to the top. Do you have to hold the knob to fill on rinse too?
+- Hi I have a 70 series dryer model 110.66732500 will this work on it? Thanks
+- Does this product work with Honeywell HZ311 damper system? I will have two zones, hence two thermostats...
+- 1/2 vs 3/4 horse power
+- Where do I replace the water filter? Sounds dumb, buy sorry. I have replaced the easy to find air filter!
+- is this the right valve for sf362lxsy0 (whirlpool model #)?
+- Can someone tell me if this Ice Maker will fit my fridge model RS27FGRS? Thanks.
+- Is it black?
+- What is the difference between this and model 10140917? Thank you
+- Will this fit a Kenmore Model 11045872404?
+- What model number does it fit?
+- Is the CO2 canister included?
+- I see conflicting answers to dimension. One says 20 inches high while another says 19 inches high. Which is it? My opening height is 19 inches.
+- I will need a 60 mesh filter with this system when I order. How do I go about selecting that specific filter when I order?
+- Does the Broan F403023 has a round hole on the tope which can attach a duct to the wall outlet&#xFF1F;
+- will this kit fit a maytag bravos mod. med6400tqo
+- Does this unit have an agitator
+- How many cleaning pads are in this kit?
+- Mold/mildew an issue?
+- Does anyone have a problem with the drain parts?
+- What is the country of origin?
+- Can it to be installed above an under-counter fridge?
+- What kind of water filter setups do you use? Does it matter.
+- Why is the 3 pack more expensive than 3x1 packs?
+- Would this be an effective devise to control the temp in my smoker which uses a electric smoke generator.
+- Does unit automatically display all three remote zones? What is the battery life? How often is humidity read?
+- I want to give sealed (quart) gift bags of buttered, seasoned popcorn to friends. How long will the 100cc packets keep the bags fresh? HELP!
+- Will this fit a Whirlpool duet GHW9400PLO ?
+- i heard it stop without the buzzing. since then, it is rotating and gets hot, not as loud or effective?
+- Will this fit KitchenaidKUDMO1TJBLO?
+- is everything needed for operation included with this unit?
+- will these grates fit model VGRT480-4GSS?
+- How does this compare to the GE Profile Induction Range? Better or worse?
+- Can anyone tell me how to turn off the annoying beeper? The instructions - which are full of poor grammar - doesn't help.
+- What is the manufacture warranty on both motor and parts?
+- Whirlpool XHP1550VW 15.5" Storage Pedestals (White) If you have both the washer and dryer do you need to order 2 of these or does one support both appliances?
+- does it keep recycling water once ice melts?
+- Mine is kitchenaid KUDS01FLSS6. Tha manual says the part number is 8535568. But your item says Whirlpool. Is it the right part for my washer. Thanks
+- What size of fitting does this tank take? like thread size. I need to be able to siphon into my small tanks for gas blowback airsoft in cold weather
+- will this fit GE JBP22BK1CT stove?
+- Will this work with a Kenmore Model # 41153 side by side?
+- can it be used for dooor bell
+- Will this part on a Kenmore refrigerator as well?
+- I'm think aboit buying this washer but I just don't know if its large enough. there isn't anyplace near me that I can look at one in person. anyone know how many pair of jeans can fit in one load? We Have a large family.
+- Is the ice clear or the more typical "white ice" that most tubular shaped ice-makers produce?
+- Can it be installed over ceramic tile?
+- I just received mine and it seems to run a little loud...constantly humming...is this normal?
+- Will this fit my washer model #WCVH6260FGG?
+- does the ice stick together after i put it in the freezer?
+- will this part work for model WGD5000VQ1?
+- Do these come shipped in one tube? I'd like to gift to two people. Thanks!
+- does it fit model # JSI26
+- Does the delivery include the hose connection as well? If not, was it easy to connect all?
+- Will this belt work for model MDG9706AWA?
+- will this part work on an amana model #abb2522few ?
+- Product Description: Does not include the silicone gasket that seals the spill proof lid. dose that mean the gray or Clear cover on top of the chamber
+- Can the alarm be set to sound based on temp or just humidity?
+- Is this compatible with model number: RFG298HDRS/XAA ?
+- Does this refrigerator also filter the water used for ice and sparkling/still dispensers? If so what kind of filtration?
+- My spin dryer made a "clunking" noise from the moment I used it. Also the brake did not work. After two weeks I found a loose washer on the floor. At a closer look I found a loose bolt and also a loose part that functions ast the brake. I took the...
+- Does this part fit model no. FEF366ESF?
+- Where is the unit made?
+- Is it energy star listed?
+- Can you fit a standard sized coffee pot under the spigot?
+- color and price
+- Wiil this filter fit Kenmore part 10656536400?
+- Is the Product Description Accurate with regard to Capacity .... indicates 750 gallons, almost twice as much as most others ????
+- Will this work on a Kenmore coil range/stove? Will it actually prevent white area around the element from discolouration when canning?
+- Does this replace the FILTER ASM AND TUBE fpr GE LSS25XSW?
+- what is the black rubber piece for. When I took my other one apart it didn't have it??
+- will it fit a roper stove?
+- What if I put it at 0% or 97% relative humidity, will it break the hygrometer, or is it just not-measurable?
+- does it come with a filter?
+- will this heater element fit a maytag dryer model de612
+- What are the measurements of the large drip pan?
+- what are the demensions
+- My ice maker is making really loud high pitched noise when going through its cycles
+- Some say it's 110 and others say it's 220....so which is it? I need a 110.
+- Is this a complete operating cook top unit. An earlier question states it is only the stainless cover. If the unit is complete, what are the drop in dimensions? Thanks - Greg
+- Will this be accurate if I live at 5,000 ft elevation?
+- Is the listing accurate in saying there are four LED lights? I only see two lights in the center strip in the pictures. Where are the other two?
+- will this belt work on my model no DV219AEW/XAA samsung
+- This thi mother board work on GE Profile Refrigeration Model # PSF26N6TDBB? Does it take a technician to replace this board?
+- If maytag lists 8054952 as the bellow part number, this will work right?
+- How to Calibrate??? Does anyone know if this can be calibrated ? 'Removed board; no means of setting temp.
+- If I install it level with the driveway, is the inside pitched to carry away the water?
+- does it test Coliform/ E. Coli ??
+- How can I get instruction book to install the hood, therewas no book in a package?
+- can you use this freezer overseas on a 220 Volts?
+- Will this fit Frigidaire Electrolux model FRS6R4EB5?
+- does this unit have filters that need to be changed?
+- What is a good serving pressure (psi) and how can i tell if the flow is right?
+- Does this knob fit model RF363PXPT-0?
+- Is the rack adjustable to lower one side for tall glassware?
+- does this replace kenmorepure 46-9999
+- Will this cap fit model MDB4709AWQ1
+- why is there condensation moisutre after my cycle is done in my stainless steel inside dishwasher
+- what is the vent size to outside?
+- At what minimal height do we actually need to install this filter, to allow for clearance to change the cartridge?? We'd like it under the sink.
+- Do the halogen bulbs ship with the product? Also, I noticed that someone had previously indicated replacement with LED bulbs worked fine. True?
+- how long is the hose
+- How many test kits are there in a box. How mant times can I test the water
+- Does it come in package of 1 or 2 units? the picture shows 2 but I just want to validate my understanding.
+- does this unit have the very large fan blade in it ? over 10" in diameter ?
+- Will this therostat work with the nexia zwave system
+- For how long do I have to put the bag in the sun to refresh ?
+- Can it be used as a kitchen backsplash?
+- I have a whirlpool LGR7620LWO Serial # mr1017157 will this fit my dryer?
+- Are these stackable? Is a stacking kit needed?
+- What does free shipping include? I want it delivered inside my house which is a one story ranch
+- could this be installed on 7' ceiling?
+- Does this work in model LSC26905TT
+- Will this work in a Frigidaire ES340 gas range
+- does it have separate temp controls for white and red wine
+- How many decibels does this emit when the vent is on the highest setting?
+- Does this range require a 220v outlet? (Like the kind a clothes dryer requires?)
+- I have 30" wide.space. Will I be able to open the doors within that 30" Wide space.
+- has anyone installed it specifically to prevent mice from coming into dryer vent? if so did it work for that? thank you,
+- I have a 20 gallon tank for my soon to be corn snake, and I need to know both Temp. and Humidity. Would you recommend?
+- Where can I get an extension for 11' ceiling
+- Is this kit the Thermostat and the Thermal Fuse as show in the picture?
+- What items are included with this? Power cord, connections, drainage hose, silverware basket? What's in the box?
+- Do I need to soak the new GSWF water filter in water before installing? If so, how long?
+- problems with fans?
+- will the fuse fit a kenmore 665 15895790 thanks
+- How well does the autofill work? Does it work with most glasses? Does it work with stock pots?
+- is it NSF approved
+- not fitting my Kenmore frig ... any suggestions??
+- What is the separation of the holes in the back plate where the two screws go in?
+- Warranty on refurbished?
+- I just need the air gap cap. Can it be easily removed from the rest of the assembly?
+- Please confirm this is an official H65-C. That fits my unit. Another vendor did a replacement that doesn't fit.
+- does this fit the momentum vaccum? Model: 82G7-1?
+- This product is described as 16" in 2 places and 15" under product dimensions. Which is correct? My bin is 15" and I can't seem to find it.
+- Does this have a vent to the outdoors?
+- Is this the grease filter?
+- what are the dimensions
+- Will it call out if temp drops below a set point (freeze alarm)?
+- does the filter indicator light in the door panel stay lit all the time? does it fade in color when new filter is needed?
+- What about snow? Any problems I should know about?
+- Is the valve air tight? Can it be used in a low pressure air system?
+- Does this part fit a GE model refrierator model GSH22JSDD SS?
+- Can you replace the center grill with a griddle? Is one included or is it an accessory you buy separately?
+- How do you install the 4317943 Whirlpool icemaker?
+- Can I install this over my old one? The old one is in concrete
+- I have a question for anyone that may know. Has anyone used this device on a house that has well water and a water softener?
+- is the manufacturer's warrenty intact?
+- Does this include the clear part of the bin as well? Does it include all that is pictured?
+- What is the energy use?
+- Does this dryer have a steam dry capability to remove wrinkles?
+- what is the depth without handles?
+- How many RPM (revolutions per minute) has this washer? Does anyone know?
+- having problems with the function. Comes on and in about ten seconds shuts off then the lights start to blink off and on. Is this fixable or defective
+- will this work in Bionaire model no. BCM658?
+- I have a maytag. Whirlpool model #rf367 lxkt. Will this fit?
+- What is the finish, chrome or satin?
+- will this work with kennmore 10659509990?
+- I have Maytag refrige with no ice maker. On model number plate, this part number is for ice maker. Can I install new, or only replace existing?
+- does this dispense the water without it being plugged in
+- do you need one for each shelf or only one for on bottom shelf??
+- Will it fit a Jenn Air JE3842XRW
+- Is it suitable to use as a window alarm for a pool. Is it UL 2017?
+- How has this refrigerator been working out for you? Any regrets?
+- Will this fit Whirlpool model number GH6177XP?
+- is this ventless?
+- Is there an expiration date on any of the tests?
+- I want to buy a few of these and a water filter but I cant get it to combine shipping, will you do that?
+- Will this magnetic door plunger work on a LG Washer model WM2701HU1?
+- This is good for Model JGBP79WEB3WW? Thanks
+- If I purchase the carbon filter with the hood does this need to be vented to outside?
+- We have 10-foot ceilings so we need an extension. What are the chimney dimensions? Which extension from therangehoodstore.com would work?
+- Can you put the CO2 tank inside the kegerator or does it have to be mounted on the back?
+- How to clean the oven
+- My LG refrigerator model is LFX31925ST . Will this filter work ?
+- Can someone tell me Im trying to change my dryer from LP to natural Gas is this the right part?
+- power outage or surge. we get them a lot do I have to reset it, when it happen? I hate to come home and find it off
+- how many days it will be delivered?
+- We have a solar and battery setup with charge controller and inverter. Can we hook freezer up to charge controller or do we hook to batteries?
+- differences in models, how well agitators work, spin speeds etc
+- will it replace WR30X0327 icemaker
+- is it propane gas
+- Is the power hard-wired? Where does the power cord run?
+- Anyone know - Can this paint safe with high heat, as the two big chips I need to fill are along the top edge next to a burner?
+- Wow the price was $118 with free shipping, then it went to $143 with free shipping and now today it's $105 and cost $40 to ship. All that in 4 days?
+- how can i soak items
+- will this work on a whirlpool LLR8245BW0 washing machine
+- Is this a universal part for GE Profiles? I have model # TFX22PRB. It's 15 years old. Thanks!
+- will this fit model no.QL 100 series Broan range hood.
+- does it work with an RF24FSEDBSR
+- How do you clean this cooktop?
+- Can this unit display the actual real time temperature and humidity in the space?
+- How is this different from WSW1 model
+- avaini not cold enough
+- how wide is this extender
+- Is this vent meant to be installed under a cabinet or can it be freely mounted?
+- is itsimillar to the 285805 valve
+- DOES THIS WORK WITH MODEL #JGB500SEP1SS
+- is this the same filter as the LT700P
+- can this unit be for a 10ft ceiling height?
+- Can anyone tell me IF I can use this hose to extend a 6 ft washer drain hose that is already attached?
+- Are the dimensions similar and can this model be mounted under counter as the Spacemaker II series?
+- After installing new filters, do they need to have water run through them before they are used for drinking?
+- Does the crimped end fit inside the 4" pipe that vents to the outside? If so, how do I secure this connection?
+- Will this fit a Maytag washer model MAV95010EW?
+- Have a Kenmore Elite side by side refrig/freezer. (Model #10654603300). Will this fan/motor kit work with my refrigerator?
+- Are there supposed to be instructions inside the box? We didn't get any, just the basic "read warning before operating" instructions on the box .
+- Will this filter work for a Bosch, 2-sided, refrig model number B20CS80SNS? If not, which one will?
+- Is this a quiet fridge?
+- What is the minimum height at which this product can be installed?
+- which one is the door gasket for bosch nexxt 800 WFMC8401UC109 cloth washing m/c?
+- What are the 2 different shaft lengths?
+- Can this be used with a normal washer hose hookup?
+- Where and how do you buy the chimney extension?
+- I would like to use this to control a vent fan in a crawl space. I also don't see how to tie in power to the unit or out put to the controlled device.
+- Is it 3 individual pieces that, put together, equals 10'?
+- what size is the co2 tank?
+- does this fit ED11 600 device?
+- Will this fit Maytag Performa PAVT234AWW?
+- Will this kit work for Samsung front load washer WF210ANW/XAA?
+- Are all edges the same..could I mount it "long side going up and Down" and it will look the same..
+- Does it sing at the end of a cycle?
+- Is this the standard size for installation
+- Can this unit run on 12V DC?
+- Do I need one for a crested gecko tropical terrarium?
+- I have a amana arg7102lm, will this work on it?
+- In the middle of the night, our newly installed vent lights go on. Have to turn off with remote; panel controls flash for 15 min afterwards.
+- My rinse cycle does not fill it just puts a little amount of water then spins it out, then does this two more times
+- What does continuous feed mean?
+- Will this work on a Convection oven model# JVM192002?
+- will knobs fit kenmore#362.75275692
+- I have a Kenmore regrigerator which uses a water filter with a replacerment part # ADQ36006102. Is this part a replacement?
+- will this replace a frigidarre 5304442620 ?
+- Does it come with the filters? Finding info on the web that says it does..but others here are saying it does not.
+- Does this work on model FAFW3511KR0?
+- How would you describe the stainless? Matte or shiny?
+- WILL THIS FILTER FIT IN MY KITCHEN AID?
+- Ignitors say manual, so you have to use a lighter every time for flame?
+- Is this the set of both the little board and the small board as shown in the picture, or just the big one?
+- Does this product have three sides or four sides? I need to know if the back is open or closed in?
+- I see it has a removable shelf. Can it be adjusted higher or lower than just in the middle
+- does it come in black or stainless steel
+- I have a whirlpool quiet wash i lsb6200kq0. is it compatible?
+- can it be place on a ge coin operated electri dryer model DCCB330EJWC
+- Will it fit model FEF352AWF
+- Does the dishwasher come with a warranty separate of the warranty you can purchase at checkout?
+- How easy is it to clean? Does food get struck in between the cooktop and stainless steel trim?
+- I have a GE side by side refrigerator with filter model RPWF. Could you let me know if your filter work? Thanks.
+- Is the MINIMUM height 16" or does it have to be 32"H?
+- Is the ice maker still an issue with this model?
+- Assurance protection available on this purchase?
+- The description says it fits all "795" Kenmore models. I have a 795 and there's no way it fits. My filter is like half the size of this one. Am I doing something wrong? Planning on returning this due to the incorrect description unless someone has some...
+- Is using bleach and hot water an issue? Or is the alternative Oxiclean? I have a lot of whites that need to be thoroughly cleaned.
+- how long does it take to deliver to zip code 98333?
+- my dishwasher has a piece at the bottom where it opens and then there is another small piece of metal. Has anyone had to cut it? can you send pics
+- WILL IT FIT MODEL BCM7309?
+- How fast is the agitation? I want it to be very delicate for my valuable clothes and I'm worried it will be to rough...
+- I bought this 4 months ago and the "REPLACE" light has already come on. We don't drink a lot of water each day. How long is the filter supposed last?
+- how often do you change the filter?
+- Can this one replace GE WB30X5154?
+- Will this work with the RF4267/HARS/XAA?
+- Please help my portable haier inlet hose leaks.the end going into the machine. Just bought my machine yesterday. Any suggestions?
+- i need the part that fits on top where the mist come out where and who may have this part?
+- Will it fit my Maytag MEC5430BDB cooktop?
+- What are the dimensions of this dispenser? I don't see that anywhere. Thanks, Barb
+- I have 9' ceilings. How high does the vent go?
+- I purchased this filter on 12/31/14. Now there are black particle in water. What's happened. Defect products?
+- How easy is it to thoroughly clean the inside of the water tank? Every humidifier I've every had became slimy and mildewy, and most of them had areas
+- is there a problem with the flapper on the ge refrigerator model pse25kgh?
+- Hi: How long is this part? We have a Samsung fridgel RS265TDRS and are plagued with the freezing problem. Thanks!
+- Does this machine vibrate much? I live on the third floor, and can't have it banging, or movind
+- What are to over all dimensions for the 1041 filter
+- How long is the cord?
+- what clothes dryers can be vented directly from the side?
+- Is this humidistat compatible with an older GENERALAIRE 1040? Will it replace MHX3 humidistat from GENERALAIRE?
+- Will this work in an evolution disposal?
+- Will this rack fit a WB48T10095? Whenever I put in that # I get this oven rack.
+- does it come with a power cord attached ?
+- Do I need separate filters for my kitchen sink water and my ice maker line or will one filter both?
+- how much $ for both part #2159080-fridge, and freezer part #2159081 black gasket seals for whirlpool?
+- What does the 5 year warranty cover? Wanted to make sure it covered the parts along with the housing.
+- Can I have two different flavor kegs and have each valve give me a different flavor beer? Also can I change the tap handles?
+- Does this have all electrical wiring connected, I need to replace that as well
+- will they fit a glenwood gas stove,and what size are they
+- Does this part work with model #KHMS155LSS - 1?
+- Will this machine automatically restart after a power outage?
+- commercial gas range
+- Will this fit FFGF3019LWE
+- Will this unit work if it's mounted sideways in a cabinet? I realize I'd probably need to support the end of the filter, doing this to make sure it's level and no side load maybe causing a leak. It's very difficult to get my side by side out, I want to...
+- Is this just one or a pair of these extenders?
+- how many filters in package
+- i have ice and water under the deli drawer
+- Will this adapter work for a refrigerator that takes the GWF model?
+- the title says freezer, but the description says refrigerator. Which one is is?
+- can this be vented through the rear
+- What PSI do you have your's set too, as well as how long do you let your keg sit before it should be good to go? I'm getting a lot of foam on pours,
+- Is the stainless traditional style which shows fingerprints, or does it have any type of smudge-proof coating?
+- Hi, can you tell me about shipping charges if I want to order 5 pieces?
+- does this have two sprayers? one on top and one on bottom?
+- Is this product frost free or not.. The reviews say it is not?
+- Is this product's exhaustion method ducted or ductless?
+- How do you use this portable washing machine?
+- Does it have an audible alarm? Can I change the set point?
+- Are the dimensions of 7 x 5.5 x 0.8 inches listed in the product description correct? The part I am looking to replace has a part # of 531182 which measures approx 1" x 1".
+- what is better on a oven glass top or burners
+- What size are the cubes &amp; are they soft or hard?
+- Would one of you check to see if the wattage draw is on the label on the back of the machine?
+- Thanks to all who responded to my previous question about the burner. It did indeed work in spite of the fact I discovered my gas stove is a 1991 model!
+- What if you need to incorporate a heater? It seems the temperature control is for only turning a cooling device on, am I missing something?
+- while washing does the machine make load noises
+- difference between Avanti VM302W1-1 2.8 Cu. Ft. Vertical Freezer - White and Avanti VM302W1 2.8 Cu. Ft. Vertical Freezer ?
+- will this work on a wsf26c3exf01 whirpool model .
+- how do you add water
+- Hi, can you give me the shipping rates for France please ?
+- Can the sensor get wet? Live on south side of a apartment, but our mail box faces the north. Am I correct, the most accurate reading is from North?
+- Is this washer come with hose that connect to the sink and tap? If I need to get it where do I get it???
+- What does Non Ducted mean?
+- Is me, or does the plastic top turn yellow after a couple of years? mine has!
+- [is it frost free
+- will this work on a 1968 whirlpool stove?
+- What are capacities of washer and dryer
+- Is the griddle integrated?(that is can/do I remove the iron grate from the center burner then place the griddle in place to get a level sturdy fit?)
+- I have had conflicting reports - one says it works with the French Door Samsung Model RFG238AAES/AA and another says it won't.Who is right?
+- I have GE profile oven. Will this rack fit
+- Does this work for GE Model # GSS25TSRD SS?
+- Where do I find the part number for the fridge or the missing shelf?
+- hi does this truly stay really cold because im going to put dead rats in it and i really dont want them heating up and stinking
+- Is this motor compatible with Whirlpool model GGQ8821LL0?
+- Can this go on the front end of a jet pump to protect the pump from sand and sediment. I intend to add more filters after the pump.
+- are they stackable
+- LP gas users (Propane users) how would you rate the output of the burners? Who did your conversion to propane?
+- When they say turn the water off first, is that behind the fridge or MAIN water line?
+- what is the measurement with the door open 90 degrees?
+- lint screen stuck/broken: Any suggestions?
+- I have a Kenmore model 665 17032402...will this be the correct one?
+- If you want can you hook this up like a built in dishwasher?
+- can this be used for refrigerator ice maker
+- WILL THESE FIT GE STOVES UNIVERSAL DRIP PANS
+- Is the filter a number 94124 for models 33201,33202,33222,37201,37202?
+- I bought these for the Honeywell hwm-950 humidifier and they don't 'fit' well anywhere. It moves off the heating disk when you replace the tower. help
+- I have a Whirlpool Duet GHW9100 LW1. I only want the pump motor not the whole assembly. Is this the right whole assmbly? Can I get just the motor?
+- I am looking for an ice maker for the bar in my media room. How quiet / noisy is this ice maker?
+- Is it possible to install the water and waste lines directly under the sink
+- I'm looking for a cooktop that is solid black. Some of them have little speckles in them. Is this cooktop solid black? Thank you
+- WILL THIS FIT BOSCH MODEL SHE58C06UC/50 DISHWASHER
+- how do you set the clock on the led display?
+- Can I vent this through the ceiling or do I have to go through the wall?
+- will this fit a Maytag dishwasher model number MDBTT60AWW also is it white ?
+- I have a Maytag SAV4655EWW washer. It takes forever to fill. I have removed the filter screens and it did not help. Can you give me the GPM stats?
+- How long has it lasted so far for your use?.
+- will this attach to a standard 1/4 compression fitting or if the nut on one end is cut off will the tubing attach to a 1/4 shark-bite fitting.
+- Does this switch fit the Kenmore Electric Range 79097453804?
+- balance of washer
+- Does this include all parts for a standard installation? Like water and power connectors, water lines, and cabinet mounts.
+- Does anyone know WHERE can I find replacement cutters for a Titan T-1060 food waste disposer?
+- Which dimension is high, which is wide, and which is deep?
+- where is this filter made at ?
+- Can you buy this stove for propane? Or is there a conversion kit? How Much $ ?
+- the description is WRONG. It can be used on models other than the badger.
+- will this unit fit Amana TXI21A3L refrig.?
+- I have a 2010 maytag centennial washer w10140921 and need a pump.can you tellme whichpart Ineed?
+- Will this cover work on the older Technics SL 1500? Can you give me the dimensions of the cover, I can not find them in the descriptions. Thanks
+- I have a low celiing and it is 7 feet and 8 inch from floor to the celing. Is there shortenning kit?
+- How long does it take to do a standard wash load?
+- What is the difference between model AWN542S and model AWN412S?
+- resetting the Oregon Scientific thermo sensor - Can anyone help?
+- What size/diameter is the connection line to the water supply?
+- I need a device to let my dryer vent out, I live in small apt, very hot-humid weather, No AC. Would u recommend me this?
+- Does this work with standard kegs?
+- Will I need to pre-rinse dishes in the sink before putting them in this dishwasher, or can I skip that step? Thanks!
+- Will this part fit Frigidaire model# FERB6600ESO
+- Actual size: Does anyone know which is correct?
+- Any manufacturer warranty?
+- Will this coil cartridge fit my Jenn-Air Range JES9860AAB?
+- difference between Avanti VM302W1-1 2.8 Cu. Ft. Vertical Freezer - White and Avanti VM302W1 2.8 Cu. Ft. Vertical Freezer ?
+- The smoke is discharge from the top or from the back.
+- Will this work on ed5hhaxv003?
+- what is the most time that you can set on this unit
+- I need a pigtail plug in for lid switch my other one melted
+- filter for vicks3
+- Will this ice maker work for my Amana Model # TSI18A3L / Mfg # P1182107WL Top frezer refg. Should I expect any instalation problems.
+- these are used for hot and cold water coming into the washer - what do I need for water being pumped out of washer? thanks in advance
+- How do I turn off the light as it is locked on and I can't get it to unlock? Tried to hold the two buttons for thirty seconds but nothing happens?
+- can i adapt this to vent thru a widow?
+- Where should this filter be installed?
+- can I reduce the 8' VENT OUTLET To 5" existing duct
+- Can this hood be connected for rear exhaust or only vertical?
+- Will this thermostat work if you only have central electric heat and a central AC as in a mobile home.
+- What clear coat should be used, brand wise? Clear coat is usually for metal and we are talking about multiple types of material on the panel???
+- Is it better to use distilled water ordoes tap water give the same clear ice? Thanks
+- What did you use to cut the netting into sheets? I have the round trays and since it is black, I cannot mark it with a Sharpie and cut with scissors.
+- Will this fit &amp; work with a Whirpool model # 106.55242400?
+- whats the weight???
+- what is the warranty on this item?
+- jeans
+- I have a whirlpool sf3020ekw0 will it work
+- Are the bulbs included? Do we have to buy separately? Thanks!
+- Does this require to be defrosted to remove the ice build up in the freezer? Does it have a drain pipe?
+- same as Kenmore?
+- will it fit a kenmore he2 model 8540302
+- What color is it
+- I need a fridge this size for my bedroom, can it be plugged into a normal wall socket?
+- The output socket for 100V seems to be Europe standard, while Japan plugs are US standard. How it works with Japanese appliance?
+- what does the warranty cover?
+- This knob is compatible with a GE Profile gas stove model PGB975SEM1SS correct? GE Parts wants 3 to 4 times this amount and they were poorly made
+- IS THIS THE SAME FILTER LOWES SELLS ?
+- what broil element for GEmodel JBP24BY1WH electric range
+- Is this made out of alumium metal?
+- Does the spoon holder have holes in it?
+- Does this filter fit a whirlpool side by side model #W10325109??
+- Is the finish a "real" stainless look, or just silver colored?
+- Does this sump assembly fit on the LG dishwasher model LDS4821ST ?
+- will it fit whir;pool model # wtw5640xw0 ?
+- Has anyone found this to fit a Maytag Model# CRE 7500 ACW? It's not on the list, but looks possible. Thank you.
+- My contractor asked if this hood is "self-ventilating"?,he says my old hood was self ventilating, so there is no venting to outside of house.
+- How many glasses of beer is in mini keg
+- I am frustrated that the opening (the collar) in my sink is so small with this model that I can't get my hand in there to get things out! Help!
+- Is this compatible with part number 101443-A, have Thermador T361T70NNP/05
+- Is it possible to order a second indoor receiver so we can have them in two separate rooms? thanks
+- The product lacks of instruction of installing rear venting range hood. There's no accessories come with it. Please help!
+- What kind of batteries does it use?
+- hI there, do these knobs fit Jenn Air JGC8430BDS
+- What are the internal dimensions?
+- does this fit Kenmore model 106.60192000
+- Can your plastic freezer bins withstand a freezer temp of -80C?
+- will these fit an older maytag? My apt.has a beige and black maytag with a self clean, but has the old style clock, want to make these will work, haven't seen any other sizes so these are probably it. thanks for any info.
+- How are the TWO water lines removed from the defective valve? I couldn't remove the lines. Mine is passing water and not making ice. thanks
+- what is the width of these?
+- How much does the actual temperature fluctuate as it cycles on/off throughout the day? If I set it for 55F, how close does it stay to 55?
+- Are the fingers removable? If so, does that leave a hole where water could drip through to the counter below?
+- Can this griddle be used with an electric range (Model PB915S-T1SS)?
+- Does this kit include - both the Coin slide on top and the Locking coin vault below it?
+- How full does the washer get with the Deep Fill option? Water to the top of the drum?
+- the full width drawer is stuck help pleaseon our Samsung 297hd
+- Can you tell what base this bulb has, Med, Min or sub min.
+- Will this fit a maytag dishwasher which uses part # 1547252?
+- Is this a compatable replacement for Maytag Model # MTB2156DEW
+- IS this compatible with model number RFG29THDRS/XAA?
+- My water panel has a spray paint mark on one of the edges. Does this mark indicate the top or bottom of the panel?
+- What's the Rpm on the spin cycle?
+- How much clothes can it hold?
+- what is the procedure for batteries?
+- I don't have much space on the countertop (tiny kitchen), but can free space under the sink. Has anyone tried to put it that low? Will it drain?
+- Model # KUDE20FBWH reviews?
+- Does the unit come with a plug? Or do you have to buy the plug separately?
+- How does the water hook up work? Can I use a faucet? Can you add water manually?
+- Will this fit my KitchenAid Superba KUDS01DJWH1?
+- where can i get a timer switch for whirlpool washer
+- Does this shelf fit model #lffh20f3qwa
+- Can this unit convert to ductless operation?
+- Does this come with a carrying case?
+- Does this kegerator hold colors light or rubber kegs?
+- Does the shipping package say what is in the box? Or is it a nondescript Amazon box?
+- Will this pulley Whirlpool 21001108 fit a Maytag Washer Model mav6000aww
+- Hi, Would this fit model # VGSS3606VDSS ?
+- Will this kit (roller wheels &amp; belt) fit my Maytag MDG7658BWW?
+- Does the "reset" or "off" button cancel and drain the dishwasher when it's running?
+- Can the knob be oriented with "off* at 9 o'clock rather than 12 o'clock position?
+- I need 2 1/2 sediment 1micron for reverse osmosis
+- Will this hood QS330ss fit an existing 3x11 retanguler duct.
+- does anyone have a rattling noise? 2 years old and i have never replaced belt or filter. love the machine.
+- Is this the part I need for my Maytag dishwasher, model MDB4621AWS0?
+- How much current does it draw on DC?
+- How does the filtration of this compare to others as far as what and how much is filtered out? We were using Pur and Culligan filters most recently.
+- Does this work as a ductless range hood? Or does it have to be vented outside
+- My filter is actually a 5231ja2006B (instead of 2006A) but I don't see those for sale anywhere. is the 2006A model interchangeable with it?
+- is this an aftermarket or original .
+- Is the fan really noisy? I was set on buying this but read the reviews about the fan being really noisy. We have an open kitchen/living/family
+- What are the dimensions of this filter? I am looking for replacement for sunbeam model 1119, filter part sunbeam 1173.
+- will it fit general electric jgb630defww 30" free standing gas range?
+- can this be used on plaster walls
+- Can door hinges be reversed to allow opening of door to left? Thanks
+- does this come with a warranty? If so how does it differ from a new dryer?
+- My previous filter is Whirlpool 4396395. Will this work?
+- I have a 7 foot ceiling. How tall is the housing without the extension?
+- WILL THIS FIT MODEL # PLHS39EESS9?
+- Do you have to have a down draft with this cooktop?
+- Will this work on maytag model #LDG9206AAE
+- Will this work for model # MTW 6700TQ1
+- Is this cartridge a replacement for Jenn-Air AC 110 B cartridge?
+- Will this work without an external duct (i.e. ductless)?
+- what volt electric, this is a very important piece of information that none of the manufacturers include in product specificaytion. DAH!!!
+- I have a Kenmore dishwasher with the same part number and it looks exactly the same as this whirlpool part. Will it work for our Kenmore dishwasher?
+- Does this have continuous grates, or four individual ones?
+- will this fit model FSC23F7DB5?
+- found the f/c button on the back under the fold out stand can anyone read and understand those instruction?
+- Do I have to change the whole part or can I just replace the motor part?
+- Is it heavy?
+- is there a way to tap both keg at once for use
+- Ordered this for DU1055XTSQ3 that the whirlpool said should fit, but the shaft is too short to reach the teeth of the impeller. Did I get wrong part?
+- Does a GE washer model HDRE526E1WW have both the WH38X10002 Transmission and Brake Assembly AND the WH38X10017 Shaft and Mode Shifter Assembly?
+- Will it fit a Samsung RS261?
+- I am looking for a replacement for something that was in the door of the dryer. It was like thin waffled cardboard that disintegrated over time.
+- What size air duct vent does this require, or accomodate?
+- What are the interior dimensions of this freezer? Also, is there a "hump" at the bottom?
+- Where does this product come from?
+- how long is the cord
+- Does anyone know why this product is no longer available? The latest review was only a few days ago (March 25, 2014 - today is March 31, 2014)?
+- is this a replacement for a whirlpool 4392857 filter?
+- does it have a drop down shelve for taller glasses
+- What are the outside dimensions of the freezer?
+- is power cord and fill house included ?
+- Can I get a block off cap instead of using a filter, do they make one to replace this filter?
+- would this battery work for a devilbliss unit?
+- how do I turn on the drying cycle?
+- How many gallons does it filter?
+- What's the best way to clean the "white residue" that builds up on this? Had this for months now and I love it. Just want to clean the "hard water"
+- Where to insert the cartridge? Can't find screw-in place. Thanks.
+- DOES IT BEND UP IN THE BACK?
+- will this part fit Bosch model SHV99A13UC/31?
+- my fridge uses filter 9030, will this filter fit mine? If so do I use the little ends from the old filter to connect this one?
+- Is this dryer considered an Energy Star appliance?
+- Will this unit work as a direct replacement for model DSC601?
+- What is the water capacity in this unit?
+- will this work with my amana Model srd26vw refridge?
+- Does this front load washer have the typical problem of water and moisture sitting in the front seal causing smell and possibly mold?
+- Do you need to buy the power plug separately for this appliance
+- How do you clean it? Do you use a stainless steel cleaner or just windex it?
+- Some water has collected in the bottom of the dishwasher. How can I drain that water before carrying it downstairs?
+- Does this work for Kenmore?
+- how high do the grates sit above the countertop? we need to determine the clearance if we add an over the stove microwave.
+- How fast does it change?
+- can be used for washing shoes?
+- I have an air duct outlet hook up . do you I need Charcoal carbon filters? I notice that without the Charcoal carbon filters, the suction is stronger.
+- How long is the probe cord
+- dear sir how many kilo metres
+- I have a Kenmore that says Stock #16033 and Type #575-0. Will this fit?
+- parts included: Does this come with the 6 pin to 4 pin adapter plug?
+- Are there two, one for each side or is this the price for just one and therefore you have to order two?
+- has anybody bought some rings yet? where are you finding them. ty.
+- It says Clean Sense charcoal filters change color when replacement is necessary. Do u actually replace the filters, or just clean them?
+- If I set the size to large will they all be large or will some be small?
+- Hi I need this part for a GE fridge in Venezuela (model GST201BMBW). Is this part the right one?
+- removable shelves?
+- Can I get an extension for a 10 foot ceiling?
+- Where does the water come in on the back of this unit? We were trying to prep the area for the water and didn't know where do put the water lines :o)
+- I have a weird need for a extremely flexible hose (OUTDOORS). Does anyone have a guess if this will hold-up well outdoors? Weird I know.
+- can i use it for 7ft ceiling?
+- Is it OK to clean the filter element manually using clorox?
+- Is it AC powered, or can it connected to 12/24 volt battery or both?
+- would it work for a very old double wall oven Fridgidair model RBE-97N ? Thanx
+- will it work on a 10" ceiling?
+- Will this work with a Broan 683L-A
+- I have to put it under a shelf. What is the total height with the top opened to maximum height? Thanks.
+- Noise level ?
+- Is this range LP or Natural Gas?
+- How long and how many water refills would it take to fill a side-by-side in-door ice bin?
+- Would it be safe to plug in a JP powerstrip into this or should I buy two of these? Two JP devices into JP powerstrip into transformer into wall
+- What does this warning mean? BUYER BEWARE: Only Beverage Factory sells this genuine Kegco kit as pictured. What's missing if you from someone else?
+- Will this fit for a Whirlpool duet GHW9100LW1?
+- Can I get the refrigerator in white not stainless steel?
+- Will this fit for the Kenmore 665.16039402?
+- How many watts?
+- Im looking to replace water supply line and water dispenser for kenmore 106.59592992
+- Does this filter out radon?
+- What washer pan can fit this washing machine?
+- Is this a brand new unused part (Whirlpool Dishwasher Fill Valve W10158389)?
+- What are the exact dimentions of this filter ?
+- Does this include propane conversion kit? If not, do they manufacture such a kit?
+- Will it fit GU2200XTSSO, Type 575-0?
+- Will this part fit Emerson LC320 EM 82 note there is a number A71FFMUT is this board compatible with your model up for sale on amazon?
+- Hard to tell from picture..does it have 2 doors? Almost looks like is only one door that covers both compartments?
+- Does this cover work for the SL-1210 MK2? (It appears it does. Just want to double check)
+- Can by wave pots be used in regular stove
+- Dryer heats but wont turn off just keep running. Not sure what part I need thermostat?
+- What is db level?
+- would it fit for a frigidaire dishwasher? My dimensions are 21" 71/2" and 4"???
+- I've read that the dimensions online (which vary from site to site) tend to be off. What are the exact dimensions for width, depth, height?
+- is this correct part for whirlpool model number lsr7233dq0
+- Did anyone find out the actual length of the handle?
+- IS THIS THE RIGHT ELEMENT FOR JBS02BB1
+- would this work with glass , say a bottle of Heinkein
+- are any of these treatment products suitable for built in (the heating system) humidifiers?
+- Will this fit Maytag MFW9600SQ0?
+- Does this work with a 5 Gal ball lock Cornelius keg?
+- Will this part fit a samsung washing machine model number wf337aar/xaa
+- Will it work for Whirlpool RF3100XPN?
+- what is the dimension of the bottom of the dispenser?
+- What do I do to clean the hose filter screens
+- If I were to stack three same size binz one on top of each other, would I be able to slide the middle drawer in and out easily
+- Can you fit 2 1/6 kegs in there with the tank on the outside?
+- Can I use it on a fridge with curved edges?
+- how do you set it to display degrees F ??? mine does not have any push switches under the stand
+- will this item fit in a tappan range???
+- is it possible to split the invoice in two? i am from Venezuela, and my currier can not import any product above 2000 $
+- Will the 2198597A Ice Maker Kit work on my Kenmore Model No. 10655613400
+- This item will fit my oven. Numbers and measurements match up. However, it is not marked "self cleaning" as some elements are. My oven is "self cleaning". Is this lack of marking an issue?
+- I ca't tell the color of the Hood? Cooper?
+- would it work on a spot on a sink or tub?
+- How hot does it get on the outside? I'm keeping it inside the house not in the garage, so it is a concern
+- What is minimal Redlink thermostat system I can use to control the temperature of the room I am in with the Portable Comfort Control?
+- Is this replacement for GE WR30X10061 as well?
+- RS2530BBP- why is door seals HOT to touch? and ice maker inop?
+- How long are each of the utensil holes in the flip top? I have large utensil (1" base). Thanks!
+- Want to drop into my counter top. My counter is 29" wide and want to know if 2 will sit within 29" side by side? Do nOT want counter top model.
+- What is the overall length of the unit to the ceiling
+- fit samsung rs265tdrs
+- what is the height when the top is open?
+- lg website shows this model as not having door in door. can you confirm please?
+- will it fit my Kenmore side by side model # 56532400
+- will this fit a Frigidaire FGF348KGN
+- Will this fit a fggf3054kf?
+- does this come with an LP conversion kit?
+- will this fit model ksbs5wh3?
+- do I really need a venting hose?
+- does this unit heat water or is it only the temp of our house hot water?
+- Can this unit be wall mounted?
+- will the extender work if my stove top is slightly higher then counter top?
+- power outage or surge. HOW DOES IT WORK AND DO I HAVE TO RESET IT IF IT GOES OFF ?
+- Should you/must you wait until the adhesive on the seal is dry BEFORE using or even testing the machine...perhaps overnight?
+- is it easy to install
+- how many 12 ounce cans will it hold
+- will this fit ge profile model # pss266ngsc cc?
+- commercial gas range
+- Is the stainless steel door magnetic?
+- does this come with pedestal ?
+- Will it fit model number jgbp28teh3ww
+- Can this run a pair of ceiling fans with full vari control and no humm? Can you get it made to fit a slot in a rec wall plate?
+- Will this work on Premier stove top?
+- can you use this for outdoor too?
+- What is the total height measurement of the hood from the bottom edge (where the control panel is) to the shortest setting of the chimney?
+- Will this work with a GE dryer Model # DDE5300VELWH
+- I have a Frigidaire FPHF2399MFO will this replace my leaking tank?
+- Several failures; I wonder if they were related to not allowing any space in the back of the unit once installed. Any comments from users?
+- Does this mount to the wall without a cabinet? And does it come with the mounting kit?
+- Will this replace the coils for Maytag Model # LDG8420AAL?
+- Is the underside one flat plane so that this is easy to clean? Is it otherwise easy to clean the underside?
+- Hi All: My ceiling duct is 3 1/4" x 10" rectangular. Is there room in the "chimney" to fit an adapter to accommodate the 6" round duct? Thanks!
+- dimentions?
+- What color are the sides
+- can this washer dryer be plugged into a regular outlet or does it need a special outlet?
+- Do whirlpool bags fit viking compactor
+- Does it come ready to install, or do I need to other parts?
+- what are the inside dimensions for the cut out?
+- How wide is it?
+- Is there a filter to keep clean or any other maintaince called for? (I bought a used one w/o user manual)
+- Is it just internal or outside handle included?
+- Temp
+- The title of this product is Set Of 4 Containing 3 Units P119, 1 Unit P120, Black, however the technical details state 2 6" and 2 8" which is it?
+- Does this come with hanging basket inside?
+- Is the cooktop surface scratch resistant? - something similar to the glass that smartphones use these days?
+- is this the correct heater for a roper model res7745rq0
+- Will this work with dryer Kenmore model 110C66682500 ? Guaranteed authentic OEM ?
+- I am currently using BB10GAC Big Blue 10" GAC (Carbon) Cartridge 4" Diameter. Is this the same filter I could use?
+- can you screw off the black tap handle and put on a different one?
+- Will the LTF Lint Dryer Kit work on a gas dryer?
+- Part number in product description does not match product title. Is this part number 154866702?
+- can I get this unit in 220/50 circle
+- Is anyone that's given a positive review using them against an uneven wall? Like typical vinyl/wood clapboard siding
+- what is the deph without door ?
+- are fridge water filters universal? I have a kenmore fridge - and the filter is on the bottom left of the fridge look like what it is shown in the pic
+- will knobs fit kenmore#362.75275692
+- Is this model compatible with samsung RS21HDUSW1 ?
+- Is a wick type humidifier soppose to set in the water?
+- Will this fit GR Model # GSD2350R00CS? Thank you
+- Is the width exactly 30"? I'm installing wall cabinets now while waiting for shipment. Thanks
+- Do German kegs (ie. Spaten, Paulaner) fit in this unit?
+- is the door reversible?
+- Will it work with a Plrs267zab7?
+- would this thermal fuse fit my whirlpool dishwasher model# DU950PWKB0
+- will it fit my Kenmore 25368842790
+- What are the substantive differences, if any, between this model and the 350CPG, other than pricing?
+- Does this heat up your kitchen? My Electrolux EW30GS75KS heats up my entire 1st floor to the point I won't cook in the summer. My oven has a fan that blows between the door and just under the electronics to prevent them from burning up. I want to avoid...
+- Will it fit Fridigaire model #PLHS67EESB9? It looks like the same one I have, but I don't see it listed.
+- I wish to know if this or any variant of the 1.6gpm Excel Water Heater works with LPG Campingaz (Butane) ? Your kind help appreciated, Nick Wells
+- Will it remove fiber reactive dyes?
+- What are the interior dimensions?
+- Will this part work on a front loading model wm2688?
+- I want to put this in my office of about 80 people - is this one too small?
+- In case something goes wrong, has anyone returned this heavy unit to Amazon? Do you have to pay shipping?
+- can you use this non-ducted?
+- Model QS2 36". Will it fit I measure 12 x17
+- Hi. Does this comes with instructions to remove the old seal and intall this one? If not, any tips?? Thanks!
+- are these reflector bowls 8 inch and 4 inch in size? What is the lowest shipping cost of this package to the Caribbean island of Barbados
+- can you cook a turkey in any of these ovens.
+- Can I use this dryer in a room with no windows? Will I have to buy a vent kit? Many thanks
+- Is this a direct replacement for a Littelfuse 125V 2.5A 250VAC refidgerator door light switch?
+- Can you put it on a stackable piece?
+- I have a Frigidaire model number: FRS23LH5DB2. Will this water valve fit it? Sears website says it will. Thanks!
+- i have a sears kenmore model 253.68809015. yours measures about 19X12X14. mine is a few unches smaller. will this fit? according to sears. this is the correct model number.
+- Does it come with good directions?
+- how do you override door lock?
+- Is this a Nelsen scale prevention system?
+- is this really easier and/or more effective than just agitating the laundry with your hands or stomping with your feet?
+- how long will the pure wash last
+- Does this fit JBP78 broiler element? looks exactly the same. Mine caught fire,like welding machine, saw there is a lot of complaints about these oven.
+- Can you tell me which end rotates? The plug or the outlet?
+- when the ice melts does it remake or drain out?
+- Do the valves need to be installed right side up to work? Do they still work if they are installed upside down? Has anyone installed them upside down?
+- Will this fit Maytag model MBR2258xes1
+- will it fit mdbh965awb ?
+- What is meant by "silver" -- is it shiny or will it match pretty well to stainless steel appliances?
+- Will this Whirlpool crisper pan (part no. 2188656) fit my Kenmore Coldspot refrigerator (same part no.)?
+- I replaced my H300 filter with the Omnipure ELF-5M-KDF-P Carbon Block Filter, but I see particles floating that weren't there before. Is that normal?
+- Is the unit light weight enough to install without additional support. I've read comments where some customers had to install wood supports.
+- Do the eggs still have to be in their shells for this to work?
+- Will this fit my Frigidaire Affinity Front Load Washer Model #LTF6000ESI ? Thank you
+- Does it come with any wiring harnesses? If so, are there any drawings or specs on WHICH harness it comes with?
+- how long to deliver to 53118
+- Does it have built-in downdraft ventilation?
+- What is the cutout width and depth?
+- my filter# is 4396841 - it looks like the above but a different #. It is a Whirlpool. Are they the same?
+- Is the steam feature optional for this product?
+- Is this an electric start range?
+- What are the INTERIOR dimensions of this product? I need to know if it will accommodate my large dinner plates. Thank you!
+- What kind of batteries does it take?
+- is it loud?
+- dimensions?
+- where can you buy speed queen in Mt.
+- Can anyone please tell me how to program the clock on the range hood?
+- Has anyone had this fridge for a while and if so how is it holding up?
+- If I order seal do I need new ring clamp as well?
+- I have whirlpool model wtw 6400 sw1 and the control panel shows uL and the machine doesn't finish cycle. The machine is level. Is this s sensor proble
+- What are the measurements?
+- Samsungrfg297hdrs
+- Will this fit an HC1600 model?
+- What size drain pan will pit under the washer?
+- I ask this item washer and dryer or only washer
+- What is the interior made of? Is it painted? I ask because many reviews of the similar GE Spacemaker 2 mention the painted interior flakes off.
+- I just want to be sure it is a 6 month filter.
+- what is the ice maker PN so I can order a new one for my 12 month-old fridge????? the water passes through it without forming ice &amp; drips...
+- I have a model gss23wgsc refrigerator will this work?
+- Can this be kept outside on a patio? It's a covered cement patio if that makes a difference.
+- Would this boost the flow of exhaust out of an electric LG dryer with Flow Sensor? Currently, my vent is too long for machine to function properly.
+- will this fit Thermador (OEM: Bosch) older cooktop?
+- Does this filter eliminate fluoride? I hope not!
+- is it replacement for kenmore drawer #10655642501??? thank
+- How can I get a Frigidare filter as pictured and not some knock off?
+- Is an airwasher the same as a dehumidifier?
+- What's the difference between the Pro Essential and just plain Essential?
+- what are the actual measurements? is it really 36" or under, most cabinets cant fit exactly 36"
+- Will this fit a kitchen aid ksfs25fkwh01? It currently has a filter maytag pur 8212652. fridge is a kitchenaid side by side with filter bottom left
+- does this work with model jpb66w0k1ww?
+- The pictures in your two places for this part are different-which is correct? The one here looks ok but if you click on the name, you show a different part.
+- Can you cut these to fit a "u" shaped wrack?
+- I've used these, but only get a couple weeks out of them before flow is REALLY slowed down. Anyone else have this problem? Is this typical?
+- What does "lifetime" mean. If I am 25 and it konks out when I am 50, what do I get? Is it pro-rated?
+- will it fit ed5dhexwq oo
+- my filter is a 49-9006 will this mine?
+- In terms of the depth dimensions, is the bottom back recessed or will I need to add an additional 3-4 inches for the vent? Thanks!
+- do these fit a thermador gas stove top?
+- Is this bulb for Interior Light for Model JVM132K0003 GE Above Stove Microwave?
+- Does it take a long time ( hours ) to pre fill?
+- How does the stool roll on tile floors?
+- Can someone give me a concrete estimate of how many pieces of clothing this can fit? How many shirts, how many pant, how many towels etc.
+- My 20 year old Amana Icemaker (Part number 10834701) needs replaced. Is this model compatible as a replacement?
+- Can I buy only the part with the green wire attached ? I have everything else.
+- There is no ice coming out of the door dispenser and I can't pull out the ice bin. It seems stuck, or is there a latch that I need to pull or press?
+- I thought this had been endorsed by epa or state of OH as a home test option, but now I cannot find that on their websites. Does anyone endorse it?
+- Will this work on jenn air down draft model c103?
+- Does the LG LFC25765ST 33-Inch Width French Door Refrigerator, Stainless Steel have an ice maker?
+- is this part, w10158389 water inlet valve for sure in stock?
+- How many racks are in this oven?
+- My Kenmore drawer part number is about the same as this Frigidare, is it the same drawer? (#2403371)
+- Does it require make up air per building code
+- will it work on frigidaire model FGF350BBWA
+- Can these be mounted separately?
+- How difficult is it to change the filter?
+- Is this the filter for Kenmore part number 569AF12538AEB
+- I understood this part nis a replacement for the GE Profile PSF26MGW auger and ice bucket, but I do not see that model in your list. Will it fit or no
+- can the unit be vented out of the wall and not the roof
+- How can I add water manually? I tried to put water directly but it goes away
+- Will it fit LG LFX28968ST?
+- I understand it only displays military time, but have had no success even setting that correctly.. Any advice..?
+- my tap water (carbon and sediment filter) reads 000 . does that mean the tds is not working (just receuved it)
+- Does this knob fit Jennair cooktop model jec8430?
+- Please verify that this Cover part # 240350702 will or will not fit my FRIGIDAIRE fridge model #PLHS267ZAB5
+- Can I purchase the extension for a 10 ft. ceiling from this site? Unable to find.
+- how many in pack
+- HI! Is this hard-wired or plug-n-play? Also--are you still happy with the fan after time has passed?
+- noisy
+- will this FGF5303935066 fit a Tappen oven w/part #WCI5303935066
+- Actual length? 23" or 19"?
+- dOES THIS WORK FOR SELF CLEANING OVEN?
+- Will this item work for my Kenmore dryer model #11066652501?
+- I have a kenmore elite he3 model number 11042822220 will this pump work for it
+- Can the gray water from the washer be used to water plants or will the change in pH affect the plants?
+- how do you clean the duct?
+- what would we need to do to keep it from rattling once installed - my wall is dry wall in the area of hanging &amp; 2 studs identified -
+- Can you turn the lights off?
+- Does the power cord wire come with it?
+- how is this range hood horizontal
+- Will this work in a kenmore top mount model 795.7943*
+- Is this the satin stainless steel or the matte brushed nickel finish?
+- is there a delivery fee
+- Does this make "soft" ice (easy to chew instead of solid blocks)?
+- Why does the filter in the photo look twice the height?
+- I have a Kenmore Model # 362.75875690 Will this part fit? Thank you.
+- It is listed as .7 sones in one place and 7 sones in another. Which is right?
+- Is the stem on this D shaped or double-flat sided?
+- My GE Double Wall Oven has the oven temp about 50 degrees to low, is there an easy fix?
+- Does this unit have a lock?
+- What is the filter material?
+- what are measurements?
+- does this fit the A100 model
+- I purchased this filter on 12/31/14. Now there are black particle in water. What's happened. Defect products?
+- What shape of ice does this make?
+- does anyone know if this will work if the dishwasher is sitting lower than the sink?
+- DOES IT FIT THE KSRA25CNSS01? IT REQUIEWS THE 4396509.
+- I checked my manual but it didn't list a part number. Will this work with model WM3550H?
+- Is this 4 inches wide? Is it a slightly different width at the bottom vs the top?
+- how does pump come off
+- how many sones is the noise level?
+- Can you clean the blade easily? I quit using our old one because I could not remove all the food crud. Best way to clean it?
+- Does this fit my Maytag Bravo MGD6600TQ0?
+- this part it equivalent for whirlpool model 7ED2HCQXSL00 part 2309523
+- Does this fit graco cool mist humidifiers?
+- I am looking to use a ring to get meat out of crab legs. Anyone try it with this product&gt;
+- How do you install it to get it watertight? Looked for youtube videos - no luck!
+- I have a Whirlpool Model LSV8245AW0 Agitator Replacement Part PS334650, will this item work as it comes up in my search.
+- in one spot it says the dimensions are 9.8 x 9.3 x 1.7 inches but in another spot it says they are 8 7/8 x 8 1/4 depth: 1 9/16 inches. which one?.
+- Does this unit have a fan in it? Does this unit stay cool enougth on the bottom/sides to use on a dinner table? I want to use it for Shabu Shabu.
+- i note these answers are from Goedeker but item is shown as shown by Urgent Liquidators. are they the same?
+- 1) Heard about bad smell in filtered water; also, (2) about difficulty in installing the replacement filter; (3) is changing every 6 months necessary
+- How "brainless" is it to turn the light / fan off? I like simple pushbuttons for "off" so I can jab at it, no thinking. How EZ are rocker switches?
+- Do you need to chill it down on AC before switching to DC? Will DC bring the temp down from room temperature?
+- Can this be used in a garage. Is it ok in the winter? It would be against the inside wall of the house in the garage?
+- Can you tell me the size of the louvers inside I'm looking for ones that are 51/2 inches to replace the ones I have and I would buy the whole piece
+- I bought this washer 5 months ago and my white laundry doesnt seem to come our very white. Anyone else have this problem?
+- whats the storage capacity
+- Will this work on Maytag PTB1919GR
+- What are the measurements? I have a Maytag 8114P732-60
+- Does this filter replace the Samsung Filter Part Number DA-29-00020A/B?
+- Hi, I looked on the Akdy website and this model number doesn't come with the stainless baffle filters, but rather some kind of mesh. Which is it?
+- Will this also fit Washer Model GHWP1000M0WW?
+- what are the dimensions of this item?
+- What is the minimal ceiling height supported? Keep in mind that the ceiling will need to drop by about 6" to bring in the duct.
+- I just received my water filters for my Kenmore refrigerator. I received the 469991 but my old filter was a 469905, do I need the adapter.
+- size of these filter
+- Does this work on a WD-12326RD
+- Will this work in model 110.45872401?
+- We found this to fit our Thermadore. My question is--how does one reset the "change filter" message? We don't see anything in the manual.
+- Can you easily remove the dryer once mounted?
+- what is the size of this product?
+- Will I need to order the chimney extension separate or is this the complete deal? My ceiling is 10 ft. 3 in.
+- What whirlpool refrigerators is it compatible with?
+- i want something to stamp small carvings. are these about an inch wide?
+- How does the spin dryer drain? Does it utilize the hose?
+- Will my cast iron cookware mar the cook top surface?
+- This is a 1 gallon bottle?
+- Has anybody converted this to LPG? Wondering how that went and if it still has plenty of BTU's?
+- Will it fit my Kenmore dryer length of felt is 77 "
+- Does this have the smudge proof finish?
+- I have Kenmore Refrigerator model #10655234400 in white color. any idea about color and if it will fit kenmore
+- will fit modal lg lsc27931st
+- Will this part definitely fit my Kenmore Model #106.57442700?
+- Is this compatible with my whirlpool LXR7244JT2?
+- Does this kit fit the WED4850XQ1? Does this kit include both the cut-off switch and the 3977767 Thermostat?
+- If I have to shorten a piece to fit my dimensions, how does one attach the end outlet accessory? No groove to fit into if I shorten.
+- will this fit Whirlpool ED5GVEXDOO?
+- The front of the filter says it will fit Samsung DA29-00020A, will it also fit Samsung DA29-00020B?
+- Can this be vented from the top OR the back? I need an insert that vents from the back.
+- Will it vent out the back?
+- Does the vent exit from the top or back of the hood?
+- What are the dimensions
+- Will the doors come off easily so we can fit it through a 30" door?
+- How about a griddle for this unit
+- Will this work on a wm2010cw?
+- Is it direct wire or plug in?
+- Can this ice fiter fix on LFX31945st
+- Is it accurate?
+- Does it need a threaded flange? I am considering getting a separate flange to math the finish of my sink. It fits units, 4-1/2" diameter, 1-5/8" depth
+- Does this come in a 3.5" hole model for 1.5" doors?
+- I plan to mount this unit outside on the brick wall. OK?
+- does this fridge have one of those shelves that could slide in to make space for taller items like the ge space saver shelf?
+- Can this unit be vented up through the ceiling and roof? Is there an option for this?
+- Looking to Replace my Crisper for GibsonGRT18C6AWE. Will it fit?
+- Does it fit Kenmore Model 110 13202200?
+- Will this work with a Kenmore Refrigerator #106.50522100 ?
+- Will this replace W10144820 Rev. B on a Maytag Centennial?
+- Does this item come with a broiler pan?
+- What is the dimensions (width and length) of the glass shelves?
+- I have a Kitchen Aid Fridge Model # KTRP18KDWH00, will this ice maker work for it?
+- The description says ice maker included. Is this correct?
+- Will this work on a DLGY1702V Steam dryer?
+- Is this for the Right door or the Left door? I cannot find the Ref code in your descripton
+- WHERE CAN I FIND THE MODEL NUMBER
+- why will it not fill with water? I checked all ie codes and can not find the problem
+- does this have a check valve on it? Water pours out of the housing during a filter exchange.
+- How many inches in distance is the hood from your range? Thank you,
+- I have a progress light that has a greenish (very slight) tint to the glass. Does this rangehood have that quality?
+- I have the filter; I need the bracket that holds it onto the vent. Have you one? This size. Thanks!
+- Will the GE WB13K21 igniter fit GE Profile slide in gas PGS975SEM1SS? Thanks!
+- Is the inside bottom smooth or have ridges?
+- Is this the correct element for GE Range JBP80SK2SS?
+- Why is the size so small? 3.3 cu ft seems pretty small compared to what is on the market. I wash pretty big loads of clothes.
+- Can anyone please tell me the size of the dish rack alone? I would not use the tray, I have funny shaped Blanco sink. Tray would not work. Thank You
+- Does this vent outside?
+- why does presssure cooker stick my roast and burn to bottom of pan
+- can fit with Whynter ARC-10WB? Thanks
+- Does this unit have to be used with a booster fan
+- Could it be used if you have a 7' ceiling?
+- The 240337103 is the same part # but will it fit my frigidaire model frt8s6esbg?
+- Will this fit fisher paykel dryer model DE08 US2
+- does it make crush ice
+- Is this correct part for GEW9250Pw1 dryer? Thank you
+- Is chimney on edge of back side? From the picture, it looks like the chimney is not at the center. A side look picture would be very helpful.
+- What is the granularity of the time setting on the Lyric? With Nest, each temperature change event has to be at least 30 mins apart.
+- Hi. Which way does the motor turn? clock or counter-clockwise? Thanks in advance! (model #833697).
+- What are the actual dimensions of this shelf?
+- What is lowest temperature?
+- What is the size of the refrigerator shelves?
+- will this fit my jenn air s-160 range?
+- Are there 2 large and 2 small?
+- is there a warranty on this item and extended warranty spt18...sd9239w
+- Can the 2w leds be replaced by higher power like 10 or 20w?
+- What is the +/1 screw for, ie what does it do
+- Has anyone installed this with the duct that came with it (the plastic one) or has everyone gotten a different metal one?
+- Is this the replacement motor for a Broan 663-C/688-C? My condo was built in 1985 and the original motor is starting to make a clicking noise.
+- My gutters turn down on the inside of the gutter at a right angle for about 3/8 to 1/2 inch. Will your #854054 clip on to this type gutter?
+- Will this work for model # 106.59429801?
+- Is the Panda Small Mini Tumble Dryer ventless? I have no way of venting a dryer and I don't want lint flying all over my apartment. Any input?
+- MY MODEL NUMBER 3385820 WILL THIS WORK?
+- Am I correct in assuming that I do not need to also order an impeller kit with the pump/motor replacement??
+- What is the actual depth of this hood that will be attached to "under the Cabinet"? If 18" is the depth, is that the measurement from front to back?
+- From the picture, the controls appear to be underneath. Is that the case?
+- Can any 3 gallon water. Container fit
+- this is put together correct?
+- NEED PART FOR DC330AEW/XAA DRYER - PART # DC067-00180B
+- Are there controls on both side of this unit?
+- Does the unit come with the adapter for the faucet?
+- i m looking for a fan sl 6200 hood
+- I just replaced the twist and lock filter.but it makes a lot of noise when I open the tap ? can anyone help?PL?
+- Does this part work for the 36" side by side refrigerator? In the video, they talk about a 30" and 33", 36" part. Which one is this?
+- This items states free shipping, but when I go to check out it is adding a shipping cost of $5.58. Is this a free shipping item?
+- Hi - will this boot 12002533 suit Maytag Neptune Washer model MAH7550AAW with boot part number 22003070?
+- Will this item fit my Inglis Model IT18TKXSQ?
+- What is the propane gas "operating pressure" needed by this cooktop (should be listed as: WC=water column inch, mbar, or PSI )?
+- Does this product come with all the items shown in the picture?
+- Is this made in China?
+- does it come with seal and bearing
+- Do you have an electronic control panel for Model #LFFH21F7HWE Frigidaire Upright Freezer?
+- Will this fit whirlpool duet dryer GGW9250SU0
+- Is this a Genuine OEM Whirlpool part? Mine (from Supply Edge) was not Whirlpool branded on part or bag like the rest of my Whirlpool repair parts.
+- What is the weight of this rang hood?
+- My Haier beverage fridge built up a lot of frost in a short amount of time. How is the frost buildup with this one?
+- says filter is with the manual, but wasn't. There's a blue housing with mesh cover installed. Is this the filter or housing for an insertable filter?
+- Will this work on Maytag dishrack?
+- How long is the power cord?
+- How tall is the unit with the door opened?
+- I want to convert my dryer from lp back to natural gas..are the orifices for natural gas?
+- where is this made?
+- how long does it last?
+- I need to replace my Filter assembly . What tool do I need to use. Do I remove the white plate in the front where filter screws into or does it just slide out? thanks
+- dimensions of freezer
+- will this kit work on whirlpool lg5701xswo dryer
+- Washer water level does not cover a large comforter that is set to "super" water level. Can I add water on my own?
+- will this work for kennmore 110.45088404
+- how does the water stop when washer is full
+- Can I either choose or change which side the door opens from?
+- Do you "have to" turn off the household water in order to replace this filter in an LG frig?
+- Does the CW mean only cold water wash?
+- is there another filter that fits a KCM1202 coffee maker?
+- my washer will not come on. it makes a humming sound like it wants to come on and spin but it do not. have this happened to anyone else.
+- Cleaning this product -- besides the Cerabrite -- can a glass cleaner be used to removed grease stains
+- whats the watts used for the dryer...?
+- how do I get door panels, not sure my old Dometic Americana panels will fit.
+- After reading the reviews, some people say their plates don't fit in...would someone know what size plate will fit in? What the diameter max is? Thanks
+- Is this designed and sized to be aconmidating for use in an RV or Travel Trailer?
+- My dryer goes for a few minutes and then shuts off. It will go back on when button is pushed. Code E 1 Agree?
+- if it appears F06 and E02 how do you know why it means?
+- is this "Tall- 18" drawer unit?
+- This listing says the width is 14-1/2 ". Is this correct? The element in my range (for this replacement) is 12" wide.
+- How long does the washer cycle take?
+- Hi. I looking for small washer for my apartment. Its good for ~400-500sq ft apartment. And what dimensions are? or you know better the this model ?
+- Will this work with my Lennox Healthy Climate - Model WB@ - 17?
+- i have a Kenmore model # 362.75501990. Will this work and easy to install on mine
+- Is this compatible with t36it800np?
+- Is it true that light indicating "change water filter" has nothing to do with whether the filter needs to be changed or not - just a timer? Thanks!
+- Which ice bucket do I need for Model#GSS25WGMD, Serial#MD263355? Tks
+- HELLO, I HAVE A SAMSUNG DRYER, MODEL # DV306LEW/XAA. Will this heating element work for my machine? Please let me know, thanks!! Sussie
+- I need to know if this item is the washer Door Seal and fit model WFW9150WW00
+- What's the diameter of this element?
+- How do I measure for drip pan size?
+- where to buy parts
+- Will this kit (roller wheels &amp; belt) fit my Maytag MDG7658BWW?
+- When I tried replacing this filter in GE refrigerator #TFX25PRBBB, no water came out of the plastic tube supply tube. How do I flush the new filter?
+- how much ice does it make
+- I bought this version but it didn't fit. I need a Pure Source Ultra. Check what version "Pure Source" you need.
+- Is this compatible with samsung rfg237aars/xaa ?
+- Will 4" schedule 40 PVC pipe connect to the end?
+- What are the dimensions of the hood ? 30" by what ?
+- this prduct is made by us?
+- Does this part fit Whirlpool Dishwasher DP840SWSX0? It looks identical, but I would like to know for sure.
+- Anywone have the GE Gas Cooktop JGS750SEFSS - Do you like it and how hard is it to clean the stainless steal cook top?
+- i have this washer and was wondering if anyone else has eperienced the soap not seeming to make it to the tub. i dont see any suds in the machine!
+- Can I change the light so that it is brighter inside the refrigerator, it is depressing
+- will this fit Kenmore 596.52673200
+- Does it fit model 18B4AW6
+- what are the exterior dimensions?
+- does this refrigerator come in stainless steel
+- The description says it fits all "795" Kenmore models. I have a 795 and there's no way it fits. My filter is like half the size of this one. Am I doing something wrong? Planning on returning this due to the incorrect description unless someone has some...
+- I have a Roper FEP320KW, will this fit?
+- does this replace a thermadore water filter cartridge # 00750673
+- How much water does it take to fill it?
+- Do you have to hold down the IS button or does it stay on after you press it one time?
+- How flexible is the duct? Is it possible to push it radially?
+- What are the interior dimentions?
+- any plastic parts, i.e. case body.=?
+- Will it fit model KUDT03FTSS3 ?
+- will this kit fit my samsung model # DV220AEW/XAA
+- What are the measurements?
+- Will this work for my maytag oven model CRE9600CCE?
+- Need door latch assembly for FDB251BLCC1 MFG# 74005675?
+- will this fit my 1998 sears kenmore refer model 106.77292790
+- do you attatch it to the one on the washer already or to the washer directly? will it fit on a whirlpool?
+- Is this the entire heating element as pictured, or just the coiled wire part? Also is it a genuine part? thank you
+- What is the stainless steel gauge thickness? Is it 19 gauge thick
+- what is the overall minimum height on this? I am looking for 22-24" high. Diagram ht seems to point to chimney ht not overall ht. thank you!
+- In determining what you are and are not selling, can you advise if I get the full assembly in the right side of the picture? I find it most confusing
+- Does the basket come in gray
+- Does this double wall oven come with a warranty?
+- Ok - a little dumb here - can the vent duct run up the standard height then turn and go out the back of the wall it is on? Does an "L" duct come with
+- Will this replace an Amana 106 626639 ice maker?
+- Is this the appropriate item to order if I have the Z-Line KB 30" (ZLKB30)? I'm not ducting the range to the outside.
+- does this tv have a sleep mode?
+- does this filter work for model 70443 Kenmore Elite?
+- I am having mold problems with this wick. Every four days, green and black mold grows on it and my house smells like an ocean marina when I turn it on. I have been buying new filters every week! Alternative wick brands or solutions to the mold issues?
+- This unit has lighting ? I seen no info stating such
+- Will this part fit Estate washer modelTAWS800JQ1
+- Our low limit thermostat went out on our Kenmore. The part number matches this one (3977393) but wrong dryer brand. That doesn't matter does it?
+- Your description states 8 to 8.5 telescopic stainless steel chimney. I have only received 2 stainless pieces measuring 15 3/4 inches each.
+- Water Pressure: Does anyone know if this filter is related to low flow?
+- does this filter fit into the drop humidifier EE-5301?
+- Does this hood come with a standard 110 plug or does it need to be hardwired? Will the plug need to be in the attic?
+- can you order these separate I need 3 6" and 1 8"
+- When does the thermostat switch the aux heat on? Does it switch when there is a two degree differential or after a certain amount of time?
+- Does this collect the grease anywhere? How do you clean it?
+- I have found that the plastic of some appliances gives off a very strong chemical smell. I had a Panda washer and had to return it for this reason. Does this spin dryer have this problem?
+- Will this kit work on DLGX5171V
+- We have an older whirlpool compactor, with measurements 16x20-1/2 x 9 inces...do you have anything that would fit this?
+- Does it serve crushed ice?
+- AP2135128
+- Can I use this for a 65" tv ?
+- How much noise does it make?
+- Is it compatible with the Maytag LDE 713 model? It appears to be the same size and shape.
+- What is the shipping cost?
+- balance of washer with load
+- will it operate on 110 and 240 volt like the CF 110?
+- So do you roll it out towards the sink when you want to run it? The hoses come out the back of the unit, right?
+- What is the Energy Star Annual Kilowatt rating for this unit?
+- will this filter fit an LG DLE5977W
+- anyone know which of these darned filter pods is the smaller one????
+- I currently have a GWF flter in my fridge. I just ordered this and it says MWF on it. Does it fit my GWF fridge?
+- will these fit a Bosch 500 series gas range ?
+- Does this fit or have adapters for threaded in-line fittings (1/4" FNPT)?
+- What is the diameter the 7381 range kleen element?
+- Do the whirlpool drip pans fit a Caloric electric stove?
+- anyone know what the average wash and dry times are?
+- Now that some of you have had oven for a while, would you still recommend it? How is the noise level? My LG is extremely noisy-fan runs entire time.
+- what size is the filter?
+- what is the size of the clock?? Length*height
+- Will this work for GE PDW9980L0055?
+- Does the fridge buzz at all? How quiet is it?
+- what is the hose i.d. size?
+- What is the actual height of the refrigerator? I can see this in the spec but some customers claim it is wrong. It is important to me
+- Will this work on a Kenmore Elite HE3t Washer? (Model #11045966404) Thanks!
+- Do I have the capability to lock it?
+- can this fit whirlpool model #8053621 240v-1200w (2) 6.5" inches
+- what is the dba level for the amount of sound for this model when it's running?
+- I feel stupid tonight. Is that one inch or 1/10 of an inch thick?I want to lay it on a counter. Thanks
+- do you think the netting holes are small enough to keep wheat berries from falling through?
+- Only a 90 day warranty. Doesn't sound too reassuring. Any long term use examples?
+- Does the oven come with a propane conversion kit?
+- whats the W size of the water pipe
+- installation
+- Is it nessary to have a venterhood for the cooktop?
+- is it possible to take the wheels off? if so how high is it without wheels?
+- Hello, I am looking for a replacement icemaker for my Kenmore side by side model # 59021991. Will this unit work with my fridge? Does everything I need for the replacement come in the box? thank you!
+- Does this motor come with a small drive pulley that goes on the end of the shaft for the belt? I don't see one in the picture...
+- Can anyone help with info to disconnect wire connector from oven to connector on sensor; this type has no clips on the outside to squeeze to release?
+- Can this cooktop be converted to use propane?
+- Does this easily fit two 5.5gall kegs inside?
+- what size is the d-shape, i got two that is too big and the d-shape shaft is too small.
+- Does the hood come with the stainless steel chimney or is that separate?
+- does this switch need to be wired by that I mean hard wired into the wall ?
+- Do you remove the filter when cleaning the humidifier with vinegar water? Or leave it n to be cleaned too?
+- will this replace part # PS2356987? I have a stove model # JGR8855BDS
+- What are the overall dimensions of this range hood?
+- Im from Costa Rica, I need 2 of those coin machines, But I need to know if this mechanism works with a special coin, or if only works with dollars?
+- what are the dimensions?
+- Will this gasket work for Amana model bx22s5w?
+- With the controls can you turn them without pushing down?
+- on the GTEN5650FWS 3.9 CU FT. can any one tell about washing King size bedding? I wash it in my old one just fine,but dont know what size it is.
+- Does anyone know the size of these cutouts which hold individual spoon? I would like to confirm they can indeed fit the spoons I have...
+- this looks just like the probe for my kitchenaid # 9755542. Does anyone know if this would work for a replacement?
+- I have a Samsung washer 27"W and 29 1/4" D and the DRYER the same measurements Will This size fit? Also can I use This under the Dryer??????
+- Will this element work with other stoves?
+- Is this compatible with a roper rgd4640yq to convert it to LP?
+- Lights flash and won't reset??
+- Does this stove come with the broiler pans?...if so, is there a bottom broiler pan and top broiler grill pan set?....tkuu
+- does this come in white and how long are they
+- Would this pan (with washing machine on top) slide over carpet easily?
+- I'd like to know more about the interior lights. Just one, or many? Are they deep inside, or in the door? I'm looking for lots of lights. Thx!
+- Earlier I asked whether this was standard size (for washer). Duh. What I meant was standard dryers. Is hole standard diameter?
+- How long is the warranty on this item?
+- Will this work with straws, or will they fall through the bottom/sides?
+- Do you need any additional items for the installation of the downdraft?
+- Is professional setup or installation required? I already have an installed Redlink thermostat.
+- Is this valve for use on an LP stove
+- I have a kenmore side by side model # 57398601 will this control board work with it?
+- does it fit Whirlpool dryer WED9400SW
+- What is the length of the rack? The product description says 35 in. but mine are only about 24 in. However, the model number matches up.
+- How can I tell what color this unit is? I need white
+- Do these work on induction cooktops?
+- What are some compatible filters in this size?
+- Do you know what is the clearance between this unit and the cabinets (top and sides)? Thanks.
+- Do you know if this fits a Whirlpool model GU2700?
+- Will this fit a whirlpool wfw9150ww00?
+- How often is the filter cartridge supposed to be changed? My humidifier did not come with a manual and I can't find one online. Can anyone help?
+- Does anyone know a web address to get a manual? I just bought a home and this unit is installed but no manual left by prior owner.
+- How do you dry your clothes after using this? Do you ring them dry with your hands and then hang them?
+- height?
+- Keggermeister KM2800BK Kegerator, Tower mounting flange or hub is broke on the one I have and I'm looking for a part supplier to replace part.
+- Is this one work with model RCC3024
+- Same as Thermador REPLFLTR20
+- Are these filters 6 or 12 month filters?
+- Will this fit a GE TBX20ZG Frig.
+- Does this fit a Frigidaire range?
+- My Broan only has a rectangle vent at back of rang hood, does this one fit my wall vent? Or do I need extra dry wall work to fit the round hose pipe
+- How do you know these are New filters? How are they packaged?
+- Does this fit PFE28RSHSS? I have the GE french door fridge.
+- Does it come with the spacer for the top of the counter
+- Insinkerator Evolution Essential: What is the difference between the Essential, and the Pro Essential?
+- Is this the part for myRFG 298 space ice maker? Writing too small for me to find part number
+- Will replacement knobs fit?
+- How long is the power cord? Is it a typical 3 prong cord? Thanks
+- Will this W10189966 work for maytag MTW6500TQ0?
+- does anyone know of a stainless steel edging that fits over and under the sides of a glass cooktop? I guess sit would be almost a squarish C shape
+- The "Product Feature" and the "Product Description" above list different dimensions for this product. Can you please verify which is correct?
+- Is there six filters included like the picture?
+- Can Jifram hooks and components be used on Proslat system walls?
+- Does it soak the surface you place it on?
+- How do you un plug the electrical plugs? Mine will not pull off
+- How long is this cord?????
+- GE WR55X10552 Main Board for Refrigerator card is identical to the one you see in the picture? wonder why they are making a purchase was not equal to the image.
+- Does it fit the Holmes&reg; HAP1200?
+- Is the crisper remoavable?
+- Will it fit my Keurig coffe maker?
+- if its stainless why the grey color is it painted?
+- Is this an interchangible part with part # 240323002?
+- Loyal WMS4-C000674 Braided 3/8-Inch Washing Machine Connector, Stainless Steel. $6.21 Is this sold as ONE hose or TWO hoses? Is it a set? Thanks
+- Will this fit a Kenmore Elite 110.26962502?
+- Can this be used in a room you want to be used as a root cellar?
+- How many burners?? I am looking for a commercial type range for my church. Is this in that leage?
+- How long is the drain hose? Would it fit into a wall drain for a regular washing machine?
+- Is it necessary to use the Finish brand soap &amp; drying agent for the Bosch dishwashers?
+- Why is this stove $1795 w/ free shipping on Amazon, but $1696 w/ free shipping on the Goedeckers site?
+- is one end crimped? It looks like both ends are male?
+- Does it use 220v or 120v?
+- Can the cooking grate be removed from the ring?
+- is it for a stainless double oven?
+- How quiet is this compared to a regular refrigerator?
+- How Do You Drain the LG WM2016CW Washer? I plan to do this once a month, but even that is a lot of additional maintenance that I didn't have to do with my old washer. :( Anyway, my questions about draining: How much water will come out of the machine...
+- Does this price include the power cord and flex duct?
+- I am putting exotic wood down and I would like to measure not only the moisture content of the air but the wood itself?
+- warranty
+- What is the size of the packaged product to be transported?
+- what is the diameter of the element and the total kit
+- same part as the fan switch??
+- How much water pressure does it take to ignite the flame? Between___and____!
+- Are light bulbs LED ?
+- the range hood is defected. What to do???
+- Can it be used on wood door/cabinet? Will it stick well on wood material?
+- As a DIY install, can the Evolution Compact 3/4hp unit replace an Insinkerator 1/3hp model w/o modifications?
+- I too had a problem with a non-EOM filter not locking. Will this one work with my RFG297AARS?
+- need door seal amana TX21VC product #P13159005WC
+- I have a Kitchen Aid model KSCS25FVMS01 will this cap 2260502ap work
+- will this fit a Viking Standalone Refrigerator DFRB364? It has 4 long 40w lights across the top front? The lights have all gone out and are not dead
+- will it replace 154556101 basket ?
+- Did anyone replace this on GSC23LSRCSS refrigerator ? Do I need pin pusher tool and cut wires to make this work or this will work as it as.
+- Is this compatible with a Whirlpool model RCC3024RB02
+- Could this be used to just store wines? If so, how many bottles?
+- Do these cells fit in the aos 7144?
+- Will this element fit my Magic Chef 3510krw model oven?
+- do you wait 24 hours before plugging in for first time ?
+- Where is it made?
+- Will this fit Frigidaire model FEFL79DSK?
+- will this fit a Whirlpool model#WTW6200VWO washer
+- will it filter estrogen
+- I just received this heating element, confident it will work. This thing is too wide!! Is it OK to bend the heating element to make it fit?
+- will this fit model GLHS37EHSB2
+- Does this water filter fit/work with Model RF25HMEDBSR Samsung refrigerator?
+- `parts for precision nuwave pressure cooker
+- What type of leads come with the ESR70?
+- i have the origional Model LG7681XSW; part #3393371 is this the correct replacement?
+- Does anyone know how to remove the cradle assembly from your fridge? (model number gsl25jfxlb). All of the tutorials are for different models
+- will this fit Model #LE8317W2?
+- Will this work with Kenmore model# 59592990?
+- Which measurement is the width &amp; which is the depth from wall during use? How long is the cord? Can it be taken down completely when not used?
+- Does thi unit have a light underneath
+- Does this product work when the stove and counter are not even?
+- How Many gallon is this tank 10?
+- Is it possible to add fabric softener but avoid the power rinse?
+- Does it come with a gas regulator and a gas connecting cable? If so about how long is the cable?
+- How many watts amps? Can I run HLP140E Dryer &amp; HLP21N Washer together on same 15 amp outlet?
+- Is the blade supposed to rub against the screen? Mine has a washer that elevates the blade above the screen. Is this normal?
+- Can this be mounted on a sloped ceiling?
+- Does this key kit ALL Frigidaire upright freezers?
+- A few reviews said the taste was not good. Your Answer?
+- Am I reading this right? Is the cord only 6 inches long? How do you plug it in if it is that short?
+- Will this fit a Whirlpool # GD5RVAXVB00
+- Is this pump assembly a factory OEM part or an aftermaket replacement?
+- Set up to run ducted to the outside; if so do kit come with the hardware, like ducting and flapper external vent, or does it have a separate kit ?
+- What gutter guard is best for long pine needles? The plastic type with a mesh fabric glued to the underside fell apart putting needles
+- Will this part work for model number GHW9400PW0?
+- On the LG LFX31925ST refrigerator: 1. Exactly how many seconds does it take to get 1 cup, an 8 ounce measuring cup size, of water? 2. Is your water source a saddle valve or a "T" source? 3. On the plate inside the refrigerator after "LFX31925ST", do...
+- Will this fit Jenn Air C301?
+- will this filter work on model # 79680512900? the serial # is 910kwvpvo1488
+- How can the clock be set to 12 hr AM PM format?
+- Is there a 'warm' feature that will keep something at 100 degrees? I'd like to use this to melt butters waxes, then hold them, for soaping
+- will this fit a whirlpool model RF114PXSB0-element part # W10259866
+- Can this filter remove all mold spores
+- anyone know how to clean it left it unplugged when we went away and came home to a mess only had it a short time... cant throw that money now what???
+- What water filter does refrigerator use?
+- Is this warm mist or cool mist?
+- Can this be used outdoors?
+- I have tried turning it back and forth but it won't budge...should I keep forcing it?
+- we can't stand any lights in our bedroom at night....does this have any lights on it that can't be turned off?
+- My garbage disposal doesnt have a hole underneath to stick the jambuster into. so what now?
+- can I use this for a kitchen range hood vent?
+- Do you ship to the big island Hi.
+- My original cook top came with a nifty little sponge that had rubber on one side....great for cleaning! Is that rubber sponge in this kit?
+- What is the warranty?
+- Is the black a shiny finish or a dull finish? Thank you.
+- this part works for the washing machine model wcsr2090g4ww?
+- can you manually adjust water levels
+- How do you get the Flex drawer to cool below 42 degrees?
+- Using the griddle feature, does the single control knob adjust the flame on BOTH left hand burners? Mine turns on both but only adjusts one.
+- Does anyone else's humidifier emit blue water after s/he puts in the replacement cartridge? It is turning my entire tank of water blue for some reason
+- will this knob work for ge washer wpsr3100?
+- Is this really 10" from top to bottom? I like the quiet aspect but if it's really 10" thick, it won't work above my range.
+- How long, on average, before you have to change batteries?
+- Will this fit Kenmore electric range model 911 9168710 ?
+- Will this fit a model C236B Jenn Air?
+- How long is the hose? My counter on the sink side is too narrow, I may need to use the counter across my small galley style kitchen.
+- Does this freezer have coils in the walls or where does it displace the heat.I was thinking of adding foam insulation around it. I live in high heat
+- What are the dimensions of this item?
+- Is it made by whirlpool?
+- Does it fit BCM7910pf model?
+- is this a certified ge part?
+- is the pedestal designed to support the stackable washer/dryer or only each unit separately unstacked?
+- will this fit on miller light 1/2 barrels and 1/4 barrels how about miller high life i drink both but miller light the most
+- Does it have screens in place where the vents are to prevent lint from blowing out of the vent holes?
+- are these pedestal?
+- Does the unit run off 110V or 240?
+- Does the filter affect output volume? I just put one in, after using the Drop for a few days, and the output seems to be significantly diminished.
+- Where does it need to attach to wall?
+- How quickly will this item arrive?
+- Does it filter out flouride?
+- What is the maximum distance the bottom of the hood hangs from the ceiling once attached?
+- What is the minimum total installed height of this hood?
+- is it horizontal venting or vertical venting
+- Does the right hand side door have enough storage for a gallon of milk? I haven't been able to find pictures.
+- Will it work with Frigidaire model GLER642A53?
+- Will this work on my Whirlpool LER4634EQ1?
+- I installed a new fan motor wr60x10074 and new mother board but fan still does not run what am I missing
+- Will this bulb work for a slant/fin GF-220? Thanks, Michael.
+- Does it work with CEM2940TQ0 ? I am buying also 3977767..
+- Will this work with GE Model JGB920SEFSS? The GE website shows part number WB20X5050. But yours looks to be identical? Thanks in advance.
+- Heat resistant? will it work on a stove top?
+- what are the real dimentions? HxWxD??
+- will this fit Frigidaire Freezer FFU14F5HW?
+- Can it be portable like the 2.7 model with its extra weight?
+- Which filter to buy??? What is the difference between this PUR filter 4396841 for $35, the cheaper Pur PBSS one for $29 or the 4396710 for $35???
+- Is this compatible with Frigidaire GLRT83TES2?
+- will this work on kenmore model number 11068102310
+- Do you sell an extension kit available for 10' ceilings?
+- Does this also fit KitchenAid Model KUDP02CRBS1?
+- what is its accuracy?
+- will it fit pss26sgpass
+- what is the width height and depth
+- where is the best location to potion this? I have heat lamp on the right side over my basking rock and food, water and night light on the other.
+- I have a whirlpool supreme gas dryer. model #- lgr7646eq2. is this the right fuse for it?
+- what is the dimension of the hood shaft that goes into the ceiling
+- Amana front load washer door needs a lift up to close. Repairs have been made on this door and it persists to be lifted to shut. What can be done?
+- Do these include the trim for the pans?
+- are these drip pans dishwasher safe?
+- Does this fit the Monogram 36" gas range ZGP364NRRSS? Looking for something to sit on top of grill in middle, thanks!
+- Does the kit come with faucet adapters
+- DOES IT FIT AN AMANA FRIDGE MODEL BZ22RL?
+- Will this Bosch model SHX46A05UC/14?
+- is it remote control
+- Will this work on a Frigidaire Model FRT1856AWX?
+- Do these fit a Sunbeam model # 2412?
+- What fits the connections? Nothing I've found fits the water or the gas connection.
+- Is it a good product, a good machine. If I buy this and it dies in shot amount of time, my husband would have a fit.
+- I have model ffhs23222mw2 will this fit?
+- Will it fit Frigidair 30?
+- will this fit for model 110.66902691
+- difference between splash guard and baffle
+- what is ducted vs non-ducted?
+- I have a Kenmore Elite HE3T with the part number 294020-M75 on it. Will this part replace mine?
+- WILL IT FIT MY MAYTAG PGR4405CHD?
+- where is this range hood made in?
+- Is this the same as whirlpool part 3403585 for the heating element
+- Can it be installed directly in the water line without any additional shutoffs or pressure valves? I have a limited amount of space to install this.
+- Do you wait next to it and turn off the water as soon as it's done washing? Or does it fill and then you turn off the faucet &amp; it begins washing?
+- GE refrigeratormakes ice cubes, but will not dispense them?
+- do this one replace the WR30X10044? as well by General Electric ?
+- WILL IT FIT A PSS26MSRBSS
+- where are your motors made?
+- cut out dimdmentions
+- My original Maytag pans each have 3 notches for the element to fit into. These only have 1 in the photo. Is this how they are?
+- Will this fit a 2.5 gallon corny keg (about 15" high, 8" diameter)?
+- Why is the 3 pack more expensive than 3x1 packs?
+- Does this humidifier have auto shut off when the water tank is empty?
+- Frostfree?
+- what is the width of this stove
+- Spec is not telling me what mesh screen is actually coming with this unit. The spec just describes what size mesh screens are available and their application. What size screen comes with this unit?
+- does it work for lg water filter 5231JA2006F
+- how do you calibrate it
+- Will this work on a Kitchenaid model KEYE670B?
+- What does this kit include? I doubt this kit will include to cups of lemon lime tea.
+- Is this the Dark chocolate color? I'm looking for a lighter color with hold flecks throughout.
+- I just ordered the three pack (Part Number 5231JA2006B). I read all the bait &amp; switch stories. Are they still sending the A model instead of the B?
+- Compatible with mitsubishi wd62531?
+- It says 'whisper quiet' in description..is this true?
+- Depth?
+- how to fill washer with just hot water no clothes?
+- is this the circuit board for frigidaire stove model ffef3018lbb?
+- Is this filter washable? Can you rinse it with water? I saw that it's not dishwashing safe.
+- Are there detailed instructions on how to hook up the washer and dryer? Are they easy to install?
+- Has anyone done different colors in the separate sections with the quickrete liquid cement color? If so, was it hard to keep the colors separate?
+- Can this be operated without electricity if you light it with a match and don't use the clock or oven light?
+- How long is the average wash cycle?
+- My old stove has a griddle that I use all the time; does Bosch make a griddle that fits on the stove top?
+- When I type in my part number for my maytag centennial 3403585, this 279838 part number comes up. Does that mean these are the same part?
+- Will this fit a vintage Whirlpool LPE5510W0? Thanks!
+- Can i go straight up and then vent it out above the 8 ft ceiling line (meaning straight shot upwards) And do i have an option to go 90 degrees?
+- Do you sell extensions to fit nine foot ceilings?
+- I have a Maytag Dependable Care Model LDE8414ACE. Will this belt work? I don't see the measurements listed of the part.
+- Could you tell me if the inlet and outlets are 3/8?
+- what is the dimensions on the flute?
+- Machine bounces around during spin cycle although it is levelled. Why and how can we stop this?
+- are the pedestals adjustable in height?
+- can you put this fridge in a built in cabinet
+- I have a Kitchen Aid and it is part # 9763760 that i need. Will this switch work?
+- Can I order an extra utensil holder for this drainer?
+- does this filter fit amana
+- Does this model WE17X10010 motor come with two screw on pulleys? They are needed for install...
+- Will this pump work on Whirlpool Duet Mod # GHW9150PW0?
+- Do these filters remove fluoride? If not, are there any filters available for the Pitcher that are capable of doing so?
+- What do you do if it falls apart? Mine did
+- Will this set fit GE model GFDN110GL0WW gas dryer?
+- is it reliable or does it break down
+- A plumber told me that 1.0 horsepower units are not recommended for undermount sinks. Is this true? I've already purchased the unit...
+- I'd like to know how to clean out the resovoir? Do you need to disassemble the whole machine?
+- I'm still confused. Do you receive 6 filters, or just 1?
+- Will this fit a KHMS155LSS-3
+- will it fit a Kenmore Coldspot side by side?
+- do I need to dilute the solution before spraying ?
+- what is the outside diameter?
+- I currently have a stand alone range. Can the slide in work in the same 30" slot in the kitchen counter?
+- How long will the unit hold a charge before use -- Can the unit be charged one day, then used next week?
+- can it be used in a unheated garage ?
+- are their problems with the rubber seal on the door having a strong order
+- How do I know if this is the right element for my ten year-old Kenmore Elite Dual Fuel oven, model no. 790-79113202 ? Thanks!
+- why it does not stay on high continually
+- Size of machine??
+- is the tubing 1/4
+- Does this come with power cord and dishwasher hook up?
+- what is the amperage rating on this ?
+- is this the correct replacement element for ge range jbso3gv6wh
+- I have not purchased the humidifier that uses this filter yet, but on average how long does this filter last a rough estimate?
+- This filter works great and is very easy to install. But, I've noticed when installing the filter that the marks on the filter NEVER line up with the "lock" marks on the fridge. Does this happen to anyone else? Filter goes on EASY, but I'm always...
+- I have a GE model # JBP23DN1C will this element fit the bottom bake element in my stove? TIA
+- I don't have a delicate cycle, so what cycle do I use for gentle wash?
+- Amana NFW7200TW 27 Front-Loader Washer Does this washer have a drain trap? Is there an illustration of the drain trap connection to the pump?
+- I have a GE. Model # JBP27BL1BB. Is this compatible?
+- Does this handle fit Frigidaire model # LFTR1814LW8?
+- will this board work for a GE GSL25JFRFBS?
+- How do you get replacement parts?
+- Does this filter include mounting hardware as pictured
+- Is this for mounting over an island or does it have to attach to a wall?
+- What size are the threads at the top and bottom of the filter? 1 1/2" on top and 1/2" on bottom or what?
+- Will this fit a whirlpool Model #ED5GTGXN010
+- will these range replacement knobs fit a tappan electric stove ?
+- Can this freezer be locked?
+- Will this kit work with GE Mod: GSD1200T64 ?
+- How do you set oven temperture ?
+- does this machine come with everything needed to hook up to the water source?
+- My part number for the lowest door bin is 240323000. Will it work?
+- Does this fit Whirlpool Duet Sport WED8300sw2?
+- I have a GE stove over 20 years old, will they fit?
+- Will it fit a MHWE200XW00 Maytag series washer ?? according to sears they state its the correct part but your not listing it will fit ??
+- I'm going to buy this used... how are yours all holding up? Still happy with your purchase?
+- do you have to have a dryer booster fan to use this secondary filter? Or can you just use it in addition to the one in the dryer?
+- Where does this plug from? right above then covered with the vent stack?
+- Will this filter work on my dryer, Serial Number DLGX3002P?
+- I have an oval shaped faucet. Will the adaptor work with that?
+- Will this work on a gas dryer? Or just electric? Part says 240 V.. my gas dryer is 110.
+- How do you turn down the cycle chimes that let you know cycles are done... the sound is SO LOUD! I cant find it anywhere in the manual..
+- I have a maytag mtb2156ge refridgerator. is this the correct ice maker for my maytag model?
+- Will this work in a surround air 2500 humidifier?
+- Which water filter replacement do you buy??
+- I use a pressure canner. Will the large burner and cooktop be strong enough to support it's weight when loaded with 7 full quart jars or 10 full pint
+- What is the width and length of each of the grates, especially the center one? Thx
+- I have a 07/19/2003 Kenmore HE3T Mod: 110.44932200 and calls for a 8181684 pump(complete). Just need motor(461970201671). Will this work?
+- What do I use since I have a culligan water softener that uses salt?
+- what are the dimensions?
+- do you have to prime the filter before installing it ?
+- Why is washer only washer for a few seconds
+- Is it necessary to have a power cord or is this hood typically hard wired?
+- Does this item have metal on the feet which might discolor or rust?
+- how do these ranges vent the oven? Is it ONLY downdraft or is it self contained model that does not need to be vented to outside? The fan?
+- does it come with ignitor
+- Does this work for ice maker for RS2534BB?
+- Instructions say to turn off water valve before installing, meaning refrige would have to be pulled out from enclosure each time. Is this true?
+- I would have to install this on a shelf thats lower than my sink, would the pump be able to pump the water up into the sink?
+- I have a Maytag electric stove, model # MER7765WS 1.........Will this oven rack fit? Also, is this rack stainless steel?
+- Do you have any bigger tanks? 5 Gallons?
+- will this element work for model LE5800XKWO
+- Can I use it inside of a washer? Paint got off little and it causes rust.
+- Will this fit Whirlpool Duet W10270752A or SP? Thanks!
+- Can this be used for a gas dryer??
+- Does this have rubber feet on the bottom? The height will just barely fit under my cabinets (I think), and I want to be able to shave 1/16" off.
+- We built a 2 X 6 walk-in cooler that needs a door. Is there a cut sheet for install. The door when facing the cooler outside needs swing out to right
+- because the lights are on the back of the unit does it give sufficient lighting all over the stove?
+- Has anyone had a problem with the water going cold and having to shut off the water and restart? I had an older Excel and it had that issue.
+- I desperately need this Monogram Microwave. I need these dimensions. I would even buy a used one. Please help.
+- What is the cost of shipping to 98037? I am prime member if that counts for this.
+- What would the shelf life be of jerky sealed with these in mylar bags at ROOM TEMPERATURE?
+- whould this work on a kenmore model 41797812701
+- Are the dimensions H/W/D?
+- I have Whirlpool Quiet Partner3 with the serial #FT5101251 &amp; model #GU2455XTSQ1. will this heating element work on this machine. Thank you
+- repairs
+- What is the diameter of the hose?
+- After we trimmed the chimney it left a black line of melted material around the edge. Tried to remove with goo gone and it won't come off. help!
+- Will the CO2 tank fit in the kegerator with a 1/2 barrel keg (15.5 gal)?
+- Will this fit a Kenmore stack washer/dryer model 417.94702300?
+- Are the dimensions 24 x 15 x 6 inches as stated in the description? I need to replace a unit which is 19 x 10 inches.
+- Laundry Alternative has this Nina Soft Spin Dryer with 1800 rpm and another spin dryer with 3200 rpm and the latter holds a little more. Can anyone give me any info comparing the two? I don't know which would be better.
+- Does this come with an LP conversion kit?
+- What gauge is the stainless steel?
+- How long have you had your hoses and have you experienced any leaks or leaking fittings?
+- what is the sizes of ovens
+- One more Question. The Product Dimensions reads 20X17X28.8 is this the interior or total including the outside? I need the interior specks. Thanks
+- I'm looking for a filter for thermador 48 inch side by side part # 00750673 will this work?
+- Is there a way to route the ribbon electrical connector of a Cigar Oasis humidifier to the outside of the unit - thru the bottom or back?
+- Are both rollers driven by the crank?
+- my filter number is 9930 will this fit mine?
+- We accidentally broke the glass while installing this. Can we get replacement glass?
+- Will it fit GE Washer WSSH300GOWW?
+- Refigerator is not cooling. I can't get it below 61. I try to put it to 36F, but it goes right back up to 61F. Freezer is working well.
+- Does this fit over a regular size washer?
+- Can someone please give me the INSIDE dimensions? I would be using it for cigar storage and need to make sure my spanish cedar trays fit easily. Thanx
+- what are the interior dimensions?
+- Under qty it shows we1m33 listed twice for a qty of 4, do I receive 4 of those or do i receive two we1m481 and two we1m333 ?
+- How long is the manufacturers warranty?
+- Does it have 3 prong washer &amp; dryer electrical connections or 4 prong?
+- is the tub plastic or porcelon?
+- Will this fit on an older GE stove? The original GE stove knob requires a push in, then turn.
+- I see that the drum bearing kit is compatible with GE Model NVL333GY0WW - do you know if the drum felt glide is also comparable?e
+- Excuse my ignorance but is the 49" back to front or side by side? I only have a 36 inch wide space
+- Does this come with a remote control?
+- Why is the 3 pack more expensive than 3x1 packs?
+- I have whirlpool GHW9250ml0. Will this handle work?
+- Does it measure altitude in feet, meters, or both?
+- will this allow you to set a low temp. setting to turn fans off and a hight temp setting to turn fans on?
+- Can I use this on carpet? I don't want something that will leak or potentially start a fire. If no, what can I buy something to put underneath? Thanks
+- Do you find the controls on the back awkward to adjust while hot food is cooking up front? It seems like I will end up with burned forearms!
+- will this WB44K10005 fit model WB44K10001
+- what is the warranty and how does it work? does ge cover what is sold on amazon?
+- Will this replace a cartridge part #L500, or #4392857?
+- Does anyone have the "load unbalanced" problem when you put heavy towels, etc. in with load? Seems to be a problem with some machines. Thanks.
+- does it hold ice allso or do you have to empty the ice out to keep it from melting?
+- Does the exhaust vent to the floor?
+- It works in a network 220 V? If isn't present, what model works in a network 220V?
+- The GE broil element I am looking for is part 252 from diagram with order part number WB44T10077. Will this item WB44T10009 fit ? they look identica
+- Can you use Soda Stream sparkling drink mixes with the sparkling water? The Soda Stream soda or the fruit drink mixes?
+- Is power cord included?
+- I have a Duxtop that makes a VERY high pitched dog whistle type "noise" when it's on. Does this one do that as well?
+- Would this work with the whirlpool duet sports front load washer and dryers?
+- Will this thermostat work on a local intranet system without requiring an external internet connection i.e., without using Honeywell's website?
+- the pump i"m replacing list # 854oo26 on it will this work
+- Are the shelf heights adjustable for this unit? Thanks!
+- mine beeps all the time, what is that about????"??:
+- are these fit jbs27wc1ww range?
+- will this motherboard work for a GE refrigerator model number GSL25JFTC BS
+- I'm still researching, but has anyone tried adapting this into a 220 volt system for overseas use?
+- How many amps,and does this sit on top of counter if so what is cut out?Thanks
+- Can anyone tell me the cubic feet of the freezer vs. the frig? I can't find it in any of the specs. The freezer section seems larger than I want.
+- what is the circumference of the item?
+- will this fit the sears Kenmore model # 911.95292992
+- Is this louder/quiter than the HWM450? Does it need to be cleaned more often?
+- is washer hose included in this package?
+- is this metal...
+- Does the finish match LG's stainless appliances?
+- is this one sheet or a roll; if it a roll, how what is the length
+- i hook up my tankless water heater it go on for 1min then shuts off. and no hot water. can you help
+- what do I need to do to make this recirculating?
+- All I need is the large main gear pictured on the front. Where can I buy just that?
+- Is the outer diameter of the pan exactly 6 inches? The ones on my 6-year-old Jenn Air are actually 6 1/4".
+- what is the gallon ratting of this filter or is it A 1 year Filter ?
+- what is the width of the chimney?
+- i want to order this part can you confirm that it fits Frigidair model GLRS237ZDW2 (mfg 9-2004)
+- What's the lowest operation temperature of this freezer? Does it reach and maintain -20C?
+- can these be used for gas stove burner?
+- will they fit an old amana range?
+- Does this item have a warranty? The motor on the one we ordered is already out :(
+- Will these knobs work on the GE Range with model # JGSP28SEN1SS?
+- My appliances are white, (the stove has a ceramic top that is somewhat dark grayish in color) do you think the hood would compliment or not?
+- will the 6" and 8" heating element fit the whirlpool stove Model No:RF263LXTQ?
+- dimensions?
+- Could someone tell us the actual inside dimensions? Asking what we want to store is not as helpful as, for example...12" x 12" x 12".
+- Are the knobs plastic?
+- The new harness has one connector where there are two connection places on the damper. Which of the two available places should I connect ?
+- Will this broil element replacement work in a GE model #J BP22B K1WH electric range?
+- Is the side panel black or stainless steel?
+- Black burner crates are made of what material? Are they black enamel?
+- What type of water hook up do you need for this model
+- hi can I remove that screw in the middle, because I have Power adapters that might touch that.
+- will it fit quiet partner 3 gu2400xtps3 ?
+- is it 2 pack
+- can more than one water source be tested?
+- does this come with a duct cover
+- This looks exactly like the part i need to replace, but the number on mine is 4619 702 2014 1. Will this part fit?
+- will this fit my Magic Chef range model# cgr3742cdc
+- Will this filter work for my frigidaire FRS3HR35KSO refrigerator?
+- Is this truly an LG, the LG website does not mention this company, is it really 500 gallons or 300 like the others?
+- Will this filter fit Sears/Kenmore fridge model 7759?
+- Can I leave this permanently plugged into a USB port? If so, can I access it and read it real-time? I have a USB hub remotely mounted in a gun-safe.
+- On the 1 star reviews everyone complains about this machine not using enough water however I thought you could manually adjust water levels?
+- this saus it is semi integrated what is the difference I am replacing a model DD24DCTX7 what is the difference? Does this new one still have 2 seperate drawers.
+- I've a Kenmore model 91?1.93401990. Will this fit?
+- my piece comes with this code and brings the thermostat WR60X10185, your product comes with thermostat? or as shown in the picture?
+- Is it just a freezer or a fridge/with freezer?
+- what about warranty?
+- are there internal threads (female) at ends of filter??
+- The accessory that it came, it had a screen plug with some pins on the other side.Can any one who ordered it to tell me what is that for?Thanks.
+- will this fit a Kenmore. the sears part # is 131359600
+- Will this be compatible with my GEW9250P Whirlpool Duet? Thanks!
+- What happens if its full? Will flow stop? I want to leave this for a couple of weeks unattended
+- How do i change the bulbs?
+- Is this filter the same as Kenmore 46 90102
+- When I look at the box side panel my model number is not listed. My Samsung Model is; RF4287HARS. Will this work on my fridge?
+- what is this? SystemBatteries IncludedBatteries RequiredNumber of Batteries 0Battery Type no batteries requiredLanguage EnglishAssembly Required
+- Would you buy the 5 burner again if you knew that it would not heat up like you hoped it would?
+- Does this filter remove Fluoride from the water?
+- Will it fit in model # DWU7802AM?
+- Where do you put the water in?
+- Does this filter fit model V3800 ?
+- does it replace 1106739
+- Is it compatible with Maytag model # MDE6800AYW
+- Is this good to replace valve #W10408179 for an Estate TS25AFXKQ03? Thanks.
+- Can I get this in white?
+- I am missing the arm, does this come with one or do you know what part the arm would be?
+- How much water does it hold?
+- helo, will it fit Kenmore 106.78862891 top freezer model
+- I live in a cold snowy climate. Will venting it outdoors allow a bit of cold air to seep in when fan is not in operation?
+- how do you reset washing machine after replacing the lid lock switch
+- My humidifier has the water tank and then the base where the silver stick used to go. Do I put one of these in the top and one in the bottom?
+- is the heat generated to the pan placed on the ceramic surface Only and Not to any other stainless steel things around but not in touch with it?
+- It says that it's three 6 inch and one 8 inch, but what is the actual outer dimensions of it? And how deep is it?(because my GE stove seems different)
+- is this compatible with kenmore 2203980?
+- My GE fridge is set up for an icemaker, that is to say it has the 4 pin off center connector and cover plate. My question is will I need a pump motor?
+- Is the power cable/plug included ?
+- are the holes already drilled for the hinges?
+- How are the lights and what type of bulbs are they
+- Do you sell a bearing kit for the Frigidaire GLTF1040AS0 Frontloader (MFG date 11/02)? If so, can you please attach the link? Thanks.
+- Is this an electric or gas washer?
+- Will it work for Frigigaire GLG02152ES0
+- What is the part number for the remote sensor? Can three be used? What is the part number for the probe for the remote sensor?
+- I have many left over Brita filters from my previous pitcher. Will they fit them on this?
+- looking from the front does the electric rough in on the left or right?
+- How long is the warranty? At 7 months the fan blades on mine have stopped turning. The motor is still turning, just no exhaust fan. Will you replace
+- Is this filter compatible with a Kenmore model# 106.74262400 refrigerator?
+- I have a GE XL44, Model JGBP26WEA3WW. Will this igniter work for this model, didnt see it listed with the others.
+- Would these keep pans from sliding off the front of the rack?
+- How can this model be ducted?
+- Do i need to purchase the power strip that is shown with this range hood
+- bake element for hotpoint range model #rb755,rb 756, rb 757
+- I just bought this filter, but inside the plastic bag there are little orange beads in the side the bag...not contained in the filter. Is that normal?
+- Do either of the ovens have a broiler?
+- What size is this mat and how does it work?
+- I have old Westinghouse dryer can this fit
+- Is this hardwired or plugin?
+- Does this model have a clock on the display? Thanks
+- I need mainly a portable outside device. I work out in the sun and want it for temp and humidity readings. will this work for my needs. Thanks
+- Will these fit an older Universal cook stove?
+- Has anyone had problems with leaks? I was reading reviews on other filters where the fittings failed causing 10s of thousands of $ damage, scary...
+- where do you put the bleach
+- Are there 2 kinds of this filter? the blue as shown in this website and the purple filter from other sellers. the purple filter makes water taste bad
+- my model states is takes 240324501; this model looks the same, will it fit my Frigidaire?
+- the electronic panel is going out; should I fix it?
+- Hello, Is this product plug in or does it need to be hardwired?
+- Is the oven door tinted? Just got the PFC model &amp; SO dark you CANNOT see! So low chin on knees to see in am 5'4~ Hate it!!
+- does this fit drain pump samsung wf328aaw
+- iS IT NORMAL TO MAKE LOUD NOISE AT BEGINNING?
+- is there a web sight for the internal wiring for the lights they stopped working
+- will this strap block the TV from tilting backward too?
+- I have a GE model TFX25ZPBB WW part # PS304353, will this work?
+- Does this unit come with aluminum mesh or baffle filters?
+- 1/6 keg. Will it fit?
+- My last water filter (which cracked!) was the clear plastic version. Is this an update to the crummy clear plastic design?
+- What is the difference in using this vs a large garbage bag and a hair dryer?
+- Is this the same as the ADQ36006101?
+- can this be wired to a 220 air conditioner?
+- What is the actual size of the filter? I have a Bissel Momentum 3910, which the description says it fits, but then the measurements are off. Thanks!
+- Is this hose lead free?
+- Could the seller please confirm the length of this hose. Why isn't the length in the desciption? It would be stupid to assume it is the length I need.
+- the customer reviews complain about the noise it make is this true?
+- dimensions, please...?
+- where is the reset button located
+- Anyone use this ice maker "outside" in the summer heat? How well does it make and keep ice in hot conditions?
+- What are the dimensions? Need to know how it will fit in a small space.
+- Is one model better than an other in Kenmore aggitatorless washers?
+- The picture you have listed is backwards from the part i Have in my Whirlpool Duet Sport washer. In my washer the pump is on the right of the drain trap. Is this just an image thing? Also, I have the pump removed from the assembly, is there any reason...
+- Will this fit on an older GE stove? The original GE stove knob requires a push in, then turn.
+- This appears to be the same as the Miele refrigerator filter. Does anyone know if it will fit? It is a lot cheaper.
+- So it is SHINY? Or Brushed Finish?
+- Do you have a water filter bypass plug for a GE Profile Model PSH23PSRASV Refrigerator?
+- who makes it and is it worth the price all I want to do is freeze fish
+- Do I need special non-duck kit for air re-circulation? How long from the back to the top air vent? (I don't want my cabinet to cover it)
+- How do you calibrate the device?
+- Will it fit a Kenmore model 665.17772990 dishwasher?
+- Does the washer and dryer come with each of its own pedestal/drawer?
+- Is this product compatible with Kenmore Elite Refrigerator 79572063112 ?
+- Do the edges need rubber feet to ward against countertop scratches? What material is the cover made of...20 gauge steel?
+- What does semi-integrated mean?
+- Are you able to provide dimensions for this so that I can check it against my oven?
+- Is the door reversible?
+- Is the exterior really metal or is it just metallic paint on a plastic finish?
+- Is this one of the upper bins that are larger and can hold a gallon of milk?
+- i can only get 20 lb tank is it possible to have the co2 tank on the outside? and if so where is a safe place to drill?
+- Where does it display the days high and low ?
+- I have the PIC, can I buy the pressure cooker alone?
+- I have purchased the charcoal filters...I desperatley need some instruction to install this and make it a non vented hood
+- how deep are the washer and dryer?
+- does it fit dlex7177rm
+- These are knockoffs don't buy?
+- DOES THIS FIT A LG FRONT LOAD WD-15519RD
+- What is the different between this and the 36" model (az-h508a-90)? the price is about $100.
+- can this 12 foot hose be cut to 10 foot
+- would it be good for medical marijuana
+- What do I need to buy in addition to this range hood to get it to work?
+- What is the largest size C02 canister size you can fit inside the unit?
+- does this come with a propane conversion kit? also, how much does it weigh?
+- Does this work with Profile Wall Oven JT915 models?
+- Does it fit the Kenmore Pro 253 series refrigerator?
+- How do I remove the glass covering the light to change the blub?
+- can I replace the whirlaway 191 with the whirlaway 291? are the outside dimensions the same? I have a dishwasher and no extra room!
+- what do i need to use as in a ductless application?
+- I need this for an extreme flexible hose need (OUTDOORS). Does anyone have a clue if this type of material will hold up well outdoors? Werid I know.
+- Will this fit 2 corny kegs for homebrewed beer?
+- Is Style A (3 6inch, 1 8 inch) for Kenmore stoves?
+- Can I wash a pair of jeans in the Eco Egg Washing Machine?
+- Will this fit a Model GSH25JSxn
+- Are these filters made in China?
+- leaking and ruining floor...not supply fittings ...what could it be ?
+- Is this filter charcoal or metal? The description is confusing, as it lists charcoal in the title, then metal in the description.
+- Can you please confirm that this bellow will fit my Whirlpool GHW9400PW0? If it does, I'll order from you. Will there be any other parts I need?
+- How does the oxygen indicator work? Is pink good or is pink bad?
+- What type of warranty comes with this unit? I bought one from another supplier and they gave 30 day warranty and it broke at day 31.
+- Is the lower seal supposed to be thinner than the upper seal, or did I receive a defective product? My lower seal is only about 5/16 inch thick.
+- How do you read temperature from it? Do you need to calibrate the station?
+- Will this kit work with Whirlppol Model # LA6055XT
+- Any warranty?
+- Is the hood compatible with a wall duct above the stove? Is the finish shiny or dull? If shiny is the color light or medium silver colored?
+- Does this icemaker replace my icemaker in Maytag refrigerator model msd2651hew ?
+- does this filter iron &amp; sediment?
+- What exactly is the 5th burner used for?
+- what are the dimensions of the machines including the pedestals
+- are all washing machine connection standard?
+- Hello, How low this freezer will go?
+- I PURCHASED OXY SORB 100CC had no knowledge of use of. Opened pack took some out.. Unused ones got hot &amp; indicator purple. R they now bad
+- Is the person in the picture baking a necklace pie?
+- will this part work with Kenmore model gas dryer 110.74622300?
+- will this washer drain pump 12801879 also fit the Maytag mfw9700sq1?
+- Do these hang limp like the quality SS handheld shower hoses?
+- Is the tower crome or black?
+- Is there an extended warranty on this stove? If so, what are the terms on the warranty.
+- Is this compatible with LA5550XT Washer / Part #3352629?
+- Will this work with sears 758 144521
+- Is this filter compatible for LG model LFX25778
+- is this really clear and easy to see though. Looking to get it for kids project?
+- does this work with the insinkerator evolution septic assist?
+- The description of "what's in the box" doesn't mention a filter. Does that need to be purchased separately? If so, what kind of filter is needed? T
+- Does this require 220 and what amperage
+- Can you safely clean these in self-cleaning oven?
+- Is this dish washer safe?
+- Does it cook eggs, boil water, cook other easy foods
+- Specs say item fits 1 3/4" door, but flat part of bottom piece is 1 1/2" and then there is a 1/4" bubble. Is door suppose to sit on bubble?
+- does this fit a Maytag MFF2258VEB4?
+- Is this what they consider "platinum" and which direction is it? My dryer opens from left to right and the required trim to cover it isn't reversible.
+- What is the Cutout Width and Cutout Depth of this cooktop?
+- will this work in Thermador freezer T181?
+- What is semi integrated?
+- Will the cover open 180 degrees?
+- was it really noisy when you first got it?
+- Will this work for Maytag LDG8200AAL?
+- Would thi be affective if I am stacking the washing machine and dryer?
+- will this part work on my maytag wall oven?
+- How long is the chimney, I have 9 foot ceilings. Is the exhaust tubing plastic?
+- Will this our LG model LX31925ST?
+- Can I use HE laundry soap in my new Speed Queen top load washer without causing any harm?
+- Hi I have a kenmore elite he5 washer do you carry the correct bearing and seal set for this
+- Being this is portable does it have a hookup that hooks up directly to the water faucet?
+- Is this the proper part for a self cleaning oven?
+- Will this fit Roper model RTW4440
+- How do these work? I have a new house full of them and I cannot plug in a 3 pronged plug into any of them.
+- What's the shelf life?
+- does this work for Samsung DV337aeg-xaa
+- is this with the charcoal filter?
+- what is the matching dryer to this washer?
+- Will this work on GE refrigerator model # TFX28PBBAWW?
+- does this come with a cap for when the duct comes though the outside wall?
+- Comparing this to the Laundry POD, this seems to not dry clothes as well? Can you not spin dry the clothes after a rinse?
+- I have a sloped kitchen ceiling that is about 8' 9" above the hood area. Can I get an additional extension piece?
+- is the dryer 110volt also
+- hood vent out back?
+- Hi, what's your warranty?
+- Is this part compatible with the Kitchenaid Dishwasher model #KUDK03CTSS2?
+- Where are the measurements taken? My current liners are 7 1/2" from shade to side and the large are 9 3/4"
+- is it guarenteed
+- What would cause the water line to turn on off on off while filling? I too have been having trouble with the ice maker over filling.
+- What is the cut out height dimension?
+- Does it come with a cover, so this side of sink can be used as a washer? If not can I purchase the cover?
+- Is the knife sharpener electric or manual?
+- dimensions?
+- will this replace manufacturer part 74005301
+- Can you take it apart and put it back together with both Inlet and Outlet facing the same direction.I'm up against a concrete top and bottom.
+- Will it fit model # JGBP33GES2BB
+- how do i reboot a kitchen aid kude60hxss5 dishwasher because the blue light on the front is flashing and the cycle is getting interrupted ?
+- what kind of lube is it?
+- how do you replace the filter?
+- Price is pretty cheap. Is it strong?
+- Will this part 4392065RC fit my kenmore 70 series model 110.68702894??
+- What dimension or dimensions make this larger than most? Is it the width? If so what is the normal width?
+- What is the actual height of the fridge. My opening is 75 1/8 tall. Will it fit. Thanks
+- how to clean SPT-SU-4010 Humidifer?
+- Can it be installed over ceramic tile?
+- Will this fit Frigidaire Model FRS22XGCB2 S/N LA60701556
+- will this fit a Kenmore Elite HE3t model 11045972400?
+- Every time I turn on my disposal the cartridge falls out. It is the first replacement and did not do this with the original. Anyone experiencing this?
+- I have a 7ft 8in ceiling. Will this range hood work for that? Also, we don't want the hood the hand more than 24 inches from the ceiling.
+- Will this fit LG washer/dryer combo machine?
+- will it work with model 134126300&Eacute;
+- Will this fit Roper model RTW4440
+- does it work with kitchen aid disposals
+- Do you have a chimney extension for a 10' high ceiling?
+- Are the leaks prevented by the AquaStop system the kind most often responsible for hardwood floor damage?
+- Does the light stay on when you open the door?
+- im looking for a non ducted charcoal filter the product number is 5999010181,
+- I have a kenmore 66517729K900 portable dishwasher. This looks like the part I need but can anyone give me any more input?
+- Is this an Island or a wall mount range as the product description describes it as a wall and an Island range
+- Does this fit in model WRT511SZDW00?
+- Is this a low energy appliance?
+- Do you have to hold down the IS button or does it stay on after you press it one time?
+- Im installing my new dishwasher ther is already an old copper tube in good condition I have a new braided type waiting but which is better
+- Can this ducted hood be wall mounted without a cabinet over it?
+- cordless screwdriver: for the life of me,i can't figure out how to chuck a drill bit in this thing.my drill bits are round.how does this thing hold them?
+- is this available in different fill cup size. the one i purchused before was a tas too big and would not fit
+- Can this unit be hung flush on a wall surface?
+- I ordered the light bulbs listed but they stick out the bottom. I was expecting them to be flush. Is this "Normal"?
+- What is the "PTC" listed on the drawing? Compressor tries and fails to start.! start cap? Is it replaceable by knowlegeable individual? Do you sell
+- how do i know if it's wattage is to high? I don't want to blow a fuse.
+- I am looking to control the speed of a bench top grinder. would this item work for that application?
+- how long is his rack, i need 17 inches long?
+- Is this filter NSF/ANSI 53 rated?
+- will this fit Frigidaire model fRS26ZSH ?
+- Is this a replacement for the filter in a Thermador column freezer T24ID80NLP/36?
+- Can the oven racks be removed and adjusted for baking large items
+- hello I am looking for a bottom element for a GE model # JBS55WOK4WW CAN YOU LET ME KNOW THE PROPER ONE TO ORDER PLEASE ?
+- Hello, It will work for a frigidair FGB24L2ASA?
+- Can this be converted to recirculating?
+- I'm living in a vintage apartment building where there is no washer and dryer connection. Can I use this dryer by just pluging it in teh wall outlet?
+- This sounds too good to be true. Is it? Without being too scientific, how dooes it work?
+- Are these a pair or just one?
+- What is the height from the clusters to the top of the refrigerator?
+- What are the chimney dimensions? We need it to fit into a pre-existing piece of cabinetry hung from the ceiling.
+- where it was made, i mean country
+- I have to put it under a shelf. What is the total height with the top opened to maximum height? Thanks.
+- how does it vent
+- Does the delivery company perform the installation, or do I need to contract an installer?
+- Will this PUR filter fit my top/bottom Kenmore Elite that takes Kenmore filter model # 9915 from Sears?
+- HOW MUCH WATER DO THEY USE PER WASH ?
+- what are the dimensions of the oven? i am curious if my baking pans will all fit.
+- can the 4x10 duct be reduced to 6" round safely or will it reduce flow too much
+- does it fir Kenmore Model 110 24422300
+- Does stainless steel model come with collar on top? Photo doesn't show one.
+- are the knobs stainless steel or plastic?
+- Which is better for delicates and to get out Stains, this or a Manual Washboard?? Will a washboard wear out my clothes but get them cleaner?
+- is this dishwasher safe?
+- Are the shelves bevelled to hold cans/bottles or flat?
+- Does this ice maker replace # 106 626663 ?
+- Will this part fit model LGUS2646LFO? Mine is Frigidaire Gallery 26.1 cu ft deep.
+- I have a Whirlpool Model GD5SHAXLB01 if think it was made in around 2002. Will this filter work for mine?
+- is this th e same as revision B
+- Country of origin?
+- frigidaire gallery 2435
+- Does the part look exactly like it is the picture? because I bought one from another seller but the two water inlet &amp; outlet adapters were opposite with their picture, so I couldn't install it.
+- where to by parts
+- How hard is this to install? Could a "handy" person do it themselves or should I pay a repairman $80 to install?
+- does clock only show military time? or can you change it to 12 hour cycle?
+- Does the kit include hoses?
+- My wife wants a front loading freezer like this one, but he's not as flexible as she used to be, can anyone recommend a stand for this?
+- Last 2 filters we bought "lasted" almost exactly 6 months. Is our usage that consistent? Or does the change filter light come on every six months?
+- Does this opener hang onto the can after it is done opening it hands free?
+- Does this fit Kenmore cold spot Model # 10658029801 refrigerators?
+- Does Bosch have a downdraft system
+- Does this fit a Kenmore 106.53332300 side by side?
+- How do I change the time on the clock
+- My ice maker does not have the arm on it to stop making ice will this one work
+- What are the actual outside dimensions? This website has conflicting information.
+- Is this compatible with Heating element GE 229C5216P001 Model 501A 0822? This is for a GE Gas Range JGSP28BEK5BB. Thanks
+- will it fit Kitchen Aid side by side model KSRL25FRSS03 Thanks
+- So you have any instructions on how to install this?
+- I am having problems with this item...it will not stay on ...it runs for maybe 3 minutes and shuts off...am I doing something wrong?
+- Is this filter a filter 4? I ordered the same number that the manual says and got a filter 2, which does not fit
+- My refrigerator just shipped to my house today. Can I go back and get a warranty on it?
+- Will this work with kenmore super capacity 3.5? Product i have is 970-C48072
+- Does this product come with the necessary hardware to vent it through the outside, adjacent wall, without the need to purchase any kits?
+- The odor is nauseating. Is there any solution to this problem? I plan to use this duct as an air intake for an indoor garden, not as an outake vent.
+- Is this dryer stackable
+- country of origin?
+- does this come in 32"?
+- Can you use this product overseas on a 220V?
+- Is this matte finish or shiny finish
+- can this be used with ducted system?
+- Will these straps also prevent the tv from falling backwards into the wall?
+- My model number is GFE29 HSDASS what is the correct filter?
+- Is the inside light blue led?
+- Water flowing through icemaker onto floor. Would have flooded my house. Turned off water at wall. Anyone else had this problem? What caused it?
+- I want to install faucet and drip tray on the side of my refrigerator.How far does the drip tray stick out?
+- Does using these gutter guards void the roof warranty?
+- I would like to know if this would replace a whirlpool factory water valve model X74-QC1 part # 2304757
+- Is this a 2-pack of 3 filters, for a total of 6 filters, or just a total of 2 filters
+- DOES THIS WORK ON DLG4971W
+- does this fit frigidaire ffht18626l
+- I can't find the model number for the broken door tray so I wonder if this fits the side by side model?
+- What is the height with the casters on? I have exactly 34 inches of clearance where the washer is supposed to go.
+- I have a Amana LE4317W2 dryer will this work in it?
+- does it work with 220 volt electricity?
+- where does the fabric softener go
+- I have 10 foot ceilings but would like the fan to hang at normal height, is there an extension available to make the top of the chimney longer?
+- My unit doesn't get cold enough. Set to max for a few days, still reads 45 degrees. Any suggestions? I've seen forums that describe adjusting a screw.
+- Are these very shiny/glossy? Trying to match the trim on my cooktop and tossed between ordering black and chrome finish. Thanks
+- come with any warrenty for parts &amp; labor?
+- I have LG LMX28988 fridge. It needs water filter cartridge part number ADQ36006101. Is this it? thanks
+- Will this part fit model110.45981 400?
+- It doesn't specify how many inches wide are the burners do you know?
+- How wide and high are the pads? How long are the arms?
+- What model number range does this fit
+- Will this fit Model # PER5710BAW?
+- Does one install this by lifting the front end of the washer, sliding the pan under and then lifting the back of the washer to finish the job?
+- Can this be mounted sideways? I don't have space to mount it vertically.
+- Are there two standard 110 outlets on the back or bottom of unit, or does it have to be hard wired.
+- What shaft shape do the stovetop knobs expect? I have a D shaft with the fat part of the D pointing to off.
+- is anyone using this in a Vicks v3900? I know it says it fits the model, but the filter that came with mine was flat, not a cylinder.
+- 5231ja2006a or 5231ja2006b: Is the part numbers of these filters 5231ja2006a or 5231ja2006b?
+- Isn't this flammable?
+- Is it comparable to nugget ice (chewable ice) machine that you see in hospitals?
+- Hi , I have a General Electric refrigerator with damaged card ... I need a new model ... the fridge is GLM23kESF and model of the card is 200D4854G017
+- Does this dishwasher come with all the required hoses etc for installation or do i need to order an additional product.
+- Can this tank be filled with nitrogen instead of co2?
+- is this compatible with a samsung rfg297aars? Your listing says it is, but the dimensions do not match the part I have. My dimensions are 13.5 x 4 x 9
+- How long will it be used untill it doesn"t work?
+- Can high efficient washing machine be kept in an outside storage shed?
+- vertical window vent kit? listed Haier AC-3940-81K window exhaust kit, will this fit?
+- Will this stacking kit scratch my Washer? I would like to use this but I want to have the option to go back to a single if needed. Thanks
+- What are the internal dimensions of the freezer, specifically the height from internal floor to lid? Thanks,
+- I saw a review to add the lemon juice to water to avoid possible Mold and Mildew issues (as PH level of water alters with acidic lemon)/ Any thoughts?
+- will this part works for a GHW9400PW0 model?
+- Will this work for Frigidaire model
+- Hi - two questions - will this work even if the temp goes below the 34 listed on it, and also does it need to be removed or unplugged in summer?
+- Does this filter fit the Bonaire BCM740?
+- Do they have a adaptor from the old blower 6 in vent to the new 3-12 vent?
+- We need a low profile hood to mount above an island. Is this unit wall mount (we hope not)? Is the backside finished so that it can be left exposed?
+- Can the CO2 tank be mounted outside of the kegerator?
+- I need a dryer filter for model no. MCG800AWW
+- I got my Whirpool Cabrio in 2006, it's still working great but is rusting on the inside rim and I'm wondering why?
+- Is this the right kit for maytag MDE3000AYW
+- Can I connect the venting pipe from the side or it has to come from the ceiling?
+- Will this fit a Kenmore 106.61192101? And does it come with bracket or fan blade?
+- What triggers the "Replace Filter" indicator light, a meter or a timer? If it's a timer, isn't it likely that filters are often changed prematurely?
+- How long (in feet) is the hose? Product dimensions says 42inches, but 3.5 feet seems short for a drain hose.
+- I'm looking for crystal clear ice cubes does this filter do that?
+- Can something be secured to the top surface magnetically?
+- where does it made in?
+- is this compatible with a norton 501a igniter?
+- This item looks like it is stiff, and if it's too long, you'll have to either cut it or route it in a strange path. Is this right?
+- Isn't this ice maker identical to the Whirlpool 4319743 for $49.50?
+- Does this require using bottled or distilled water?
+- is this for a model #wd-73738 mitsubitsi 70 inch tv dlp
+- Having owned the GE Cafe cook top for over a year how would you rate it now, any issues or problems?
+- does this valve work on model du910pfgq1
+- I have model GD25DFXFW02 Will it fit?
+- because I can not read what you are saying green label PANASONIC PART udqt26ge4. kindly transcribed for me to compare it with the demaged part. Thanks
+- Can the burners be lit during a power outage? I live in an area of common ice storms, so that's a make or break for me.
+- I am buying this pump but I may need an additional part or two. Before the pump started leaking (it still works) it spun off balance pretty loudly and didn't wring the clothes out very well. My exact model is a Roper Stylemaster No. 4214289 rev. A. Any...
+- can the can holder be removed or replaced to make the area usable for something other than cans?
+- does this shelf fit model number FFTR1814LWM Frigidaire
+- we just purchased this washer and dryer set, and just unpacked the dryer today. but no power cable and no duck hose? is this right?there should be at least the power calble, right?
+- black countertops?
+- Samsung 9100 series are specified 42.6" high each. Will kit add to overall stacked height (i.e. &gt; 85.2") since I have limited ceiling clearance?
+- will these work for an LG model number LFX28968ST
+- Will it work with a Kenmore refrigerator with freezer on the bottom model # 596.73212200?
+- Is the ice like the soft bullet ice that you find at some restaurants? It crushes so easily like it has air in it? Thank you
+- what are the dimensions?
+- ARE THESE FILTERS MADE IN THE USA???
+- will it fit Kenmore mod#665-68601891
+- replacement water discharge pump part # for Kenmore Elite 5t, model #11047701800
+- Do you know if this will be compatible for a Hotpoint Gas Stove Oven?
+- The actual cooking/heating area is 9" correct? How does that work if I want to use a 12" skillet?
+- The model number in the Product Info is SGF-M10, however on the box and image the model number is stated as SGF-M9. Is xx9 &amp; a xx10 the same product?
+- what is the inside diameter of the ring?
+- does it come with the fitting for a dishwasher
+- Does this mini-fridge lock? If not, where can I get a mini-fridge like this that does lock. Thanks.
+- I HAVE A KENMORE 11027032603, WILL THESE WORK ON MINE? THANKS
+- Is this 110 or 220 volt machine?
+- I locate another brand but is exactly like this, except for the wireless control, It's sell by Cosmo Kitchen Appliances in CA is it the sameone?
+- Can i use this refrigerator as a replacement for my Danby DKC146SLDB Kegerator frig (in other words does this unit accomodate the tap)?
+- Will this work for Kenmore Model # 596.79279991, Part # 12442201? I only need the motor.
+- How to Calibrate??? Does anyone know if this can be calibrated and how ? No adjustments found on circuit board.
+- Does this come in two pieces or I have to buy 2? I have Hunter Care Free humidifier 33201
+- Does this filter have a micron rating?
+- Can you manually fill this machine with an extendable shower head?
+- Is this a replacement for the GE Profile Model #: CAN17 (WR30X10044)?? Thanks!
+- What is the inside diameter of the hose?? I would like to purchase hoses with a minimum of 1/2" or 5/8" inside diameter!
+- is this hood ventless
+- Can this be cut....we have an outlet that needs tobe cut out..stainless is harder then sheet metal?
+- does this filter come with the adapters needed to install?
+- Is the filter dishwasher safe?
+- What is the diameter of the recessed portion of the pad (i.e., the area that the current appliance pads will fit into)?
+- $38.99 for one filter or 3 filter?
+- Will this work with model number FEF322CASD ?
+- How is this different from UL10-U30 model? All I want is a hood with real 900 CFM (or at least close to it). thanks.
+- How Many cu. Inches Is this Propane Refrig ?
+- how to repair t-1060 food waste disposer
+- How many amps does this pull at 120 volts?
+- It seems that i need a thermostat and thermal limiter for kenmore compac dryer. The Sears part numbers are 3398128 and 343607. Same as yours?
+- What # stainless steel are these? Are they the good stuff or the Chinese stuf that rusts?
+- your add stated { 2 pack } are there 2 seperate 46-9010 filters ?
+- does it have a matching dryer?
+- Is there a wall mounted version of this hood?
+- How do you hook this washer up to a kitchen sink? What kind of adapter is there to buy as some sites say threads are not long enough on faucet.
+- Does it come in white?
+- What is used to filter the water?
+- Is this oven has self cleaning option? Where Heating Elements are located? They are inside the oven or underneath lower pan?
+- Have a 70 series model - number on the factory pump on it now says 8559331. Anyone know if this pump will work on it (they look identical in pics)
+- Does this element work with model #JBP66DMBB
+- Hello. What are the dimensions of the tub that spins (diameter and height)? This will help me figure out how many clothing items I can fit. Thank you.
+- Photos are white but listing says product color is Stainless Steel, which is it? (I am looking for white.)
+- IS IT SELF CLEANING?
+- Does this gasket fit GE washer WBVH5200J1WW? GE on line technician said that "The part you are inquiring about is WH08X10036. It is priced at $189.25 , WITH 20% discount." Same parts?
+- Can I forgo the dry cycle and just wash clothes without using the dryer? Do you have to use the dry cycle every time you wash a load?
+- Will this part replace part #8181700? I've heard this part will replace my current part.
+- Will this fit a vintage SL1500?
+- Can you add a dual tap conversion kit?
+- Will this fit over the top of a 7 inch wide vent pipe?
+- I am wondering if this would fit Amana front load washer model NFW7200TW
+- What are the dimensions? I need 12" long, 2" wide
+- What year was it made in?
+- what is the warantee on the speed queen awn542
+- Does this fit the RWF 813?
+- Is this ducted or non ducted installation?
+- Do these bearings need to be greased or do they come greased and sealed?
+- This freezer would be put in a carpeted bedroom. Am I going to have soaked carpet when defrosting?
+- Is the Stainless Steel easy to clean? Does it show lots of finger prints?
+- Is this a true induction cooktop?
+- will this switch work in a 590 Sub Zero refrigerator
+- Is this antimicrobial?
+- How much electricity does it use in comparison to the regular electric stove?
+- is there a connection for the dish washer
+- what does that 4" measure? the size of this vent or the size of the vent itself? since I am replace one, need to know whether it will fit. Thanks.
+- I purchased my Samsung a year ago. I just hooked up the water line and the replacement light came on? Why did it expire when I've never run the water?
+- will this work in a hot point oven requiring a model rb525 n1 (120/240v)?
+- I am more interested in the temperature measurement
+- so can this unit be connected with a dishwasher or do I need a different model?
+- I have a Broan 678-G 267F-A, The Broan guide shows the part number to be 97015163. I cannot find it. Will this one work? Thanks
+- How heavy are the grates?
+- Can I use this filter on my Ikea side by side refrigerator that is made by Whirlpool? I have used Whirlpool #4396841 in the past.
+- My well water contains silt that clogs my washing machine. Which filter should I use on the washing machine cold water inlet line?
+- the ad is for MERV 11, but the picture shows MERV 8. I would like to order a dozen but want to make sure they are the correct size and exact specs.
+- May I know the made of origin?
+- Found the slider lower rack to be very difficult to install. It appears too wide and will scratch surface if forced. Any suggestions?
+- when I was turning off the water by turning clock wise water started to drip out is that normal? thanks in advance
+- Is this dispenser BPA free?
+- Will this work on Whirlpool model GX5FHTXVY010?
+- I do not have an overhead hood; do I need to purchase a pop-up vent for this or does it come with one? Thanks!
+- I am replacing a Omni filter r400. It is connected to the small copper tubing. Can I use existing copper tubing and set up?
+- Will this unit work on my RB193T Magic Chef refrigerator?
+- Are these for drop-in Ge surface units?
+- Does this unit automatically disable CO2 when the exhaust fan is on? If not, can it be programmed to provide this function?
+- purpose of thermo fuse
+- Will this ice maker work with Amana model DRS2663BW?
+- What is the internal dimensions?
+- How many amps of an electronic breaker does this unit require? 15, 20, or 25, or others? thanks
+- What is it made of and what do I use to cut to fit?
+- What to use for cleaning stainless exterior? "stainless appliance cleaner" mists on my wood floor making it dangerously slippery.
+- IS this just for chicken eggs? Can I put say, duck eggs in it? Will it work with brown eggs? The image only shows white eggs.
+- I have a 20" electric Sunbeam apt. size stove with 3 small and 1 large drip pan (6" &amp; 8"). These look like what's there but does anyone know if they'
+- will the part #2198597A fit my kitchenaid model #KSRG25FKWH01
+- is it polished stainless steel, giving a chrome like finish?
+- Is anyone else not having "warm" water? When I use the warm water setting only cold water comes out. I have watched it fill til the end, too.
+- Does this down draft automatic go up and down by a button?
+- Is this an "infinite" switch, meaning it will rotate both sides from the "off" position? That's how the original one operates on my range. Thanks.
+- Are these the same as BWF100P?
+- Is this the same bulb as the EUV-13B?
+- Can someone tell me if I can use a third party (Kohler) flange with this disposal - i.e, will the motor still activate using the Inkinkerator stopper?
+- Good morning. I have a GE refrigerator and I need to change the main control board "EBX1005G01 REV M". Does "GE WR55X10942" works perfectly?
+- will this work for GE XL44 Model 317B6034?
+- How do you install this adapter with MWF filter? What additional function it performs?
+- Will this work in a kenmore model # 11071402312?
+- From one customer's review they say the pans will not fit GE. Is this true?????
+- My valve body leaks significantly when turned to the On position. Are there replaceable washers under the screws that can be renewed to stop the leak?
+- What are the actual dimensions of these pans? I have an old Tappan Silhouette range with one burner opening that measures 8 7/8" and 3 that are 7".
+- how many cans of soda can i fit in the door shelves?
+- I just received this product this week. I waited two days before turning it now. Added water, but it has been two hours and no cubes. Any ideas?
+- If I were to get one of these, can't I just change the water temp by doing it manually from the faucet, like I do with muy existing machine?
+- is it similar to the Maytag Ice Maker Icemaker D7824706Q? considering they both have the same #
+- Can this unit be connected to a water line like a refrigerator ice maker?
+- Does the sparkling water require SodaStream-branded CO2 canisters, or can it use a bulk CO2 canister like the ones used in food/drink service? If it requires SS items, where does the canister go?
+- I have an old stove and cannot get parts for it. Do you think this receptacle and corresponding burner element could be made to fit any stove?
+- can this unit be hooked up to copper tubing?
+- How/where does this drain? Does it sit on a counter or in a bathtub?
+- How do I take apart and replace the door latch on my whirlpool duet washer??
+- Do this fit the Frigidaire Washer model# LTF2940EEO have anyone put it on this washer before.
+- Will suspension part W10189077 work with Whirlpool Cabrio washer WO6-WTW66005? Jerald Mills
+- Does this fit GE fridge model PSS29NGPA
+- CAN THIS SWITCH ACT AS A SIGNAL REPEATER?
+- What is the 3 in 1 setting on the machine? I just purchased this and can't find what it specifically does
+- Does this come with what is needed to have the dishwasher drain run into it and a power cord? We are installing this new and need to make sure that our dishwasher can still drain through the sink drain.
+- Does it require venting to the outside?
+- what is infinite sensory control? Is it manual fan operation of automatic?
+- My part OEM #2186840 .isit work .or Do you have My item # ?Thank you very much
+- Is there a matching stainless steel hood/fan for this unit?
+- is there an easy way to clean it?
+- will this heating element fit my electric range model # RF114PXSB0
+- can you use anykind of beer in this and do you need to buy anything else to make it work? do you just get the bee r filled in the little keg like you would fill a growler?
+- I have 9 food ceilings. Does the hight adjust properly and would I need to purchase anything extra to make it look right?
+- What is the diameter of this duct vent and how long is it? I need to extend my portable duct which should be at least 8' long and 6" diameter. Do you have that size. It must be vinyl since it's visible. Thanks,
+- can the unit be vented horizontally
+- where the water comes in from the back of the door there is ice forming in and around the tub. Is there a valve there that is leaking and does thsi ki
+- my sticker in the refrigerator shows model FRS6R5ESB6, will item # 240356401 work with my model #
+- will this fit on a whirlpool model #wrs325fdaw?
+- does the kit come with a retaining ring / e ring ?
+- Will this kit fit the Kenmore Elite 11087872601?
+- Does this rack fit the GE Range JGB285?
+- what replacement water filter replacement
+- Can I arrange for installation when purchased?
+- will it fit in GE fridge model PSC23MGPA cc
+- Does the recirculating unit come with this purchase, it states that optional recirculating provided but differing comments found...please help.
+- can it be used to just warm clothing or towels?
+- Is there a filter for the washer? and where?
+- Can the straps be attached to WALL with adhesive rather than screwed in?
+- Have the dryer? Can you stack a dryer on top, I need a stacking pair
+- It work with Whirlpool microwave serial TR U 35 36790??
+- CAN THESE KNOB FIT A 317B6641P001
+- Does the control panel include a timer as well as a clock? thanks.
+- What are the measurements?
+- The actual dimensions of this bin. Is it approx. 13.5 inches x 6 inches x 3.5 inches ? Same approx. size as the dairy bin ?
+- Will this filter work in my White-Westinghouse refrigerator?
+- does it fit Vicks V3900 humidifier?
+- Is this for a 36 inch over the range microwave? The dimensions in the description do not show it being 36 wide.
+- Will this work for Kitchenaid Model# KSRS22DWWOO
+- Will this kit work for LG dryer Model #DLG3171W?
+- What are the cut-out dimensions, please? Thank you.
+- Does it fit a space with a 27.25 inch depth? I'm not sure how much space needed foir hoses.
+- How cold of a temperture can this freezer maintain?? I have a product that needs to remain at least -4 degrees farenheight
+- What are the width and depth dimensions of the chimney?
+- I have a Kitchen Aid refrigerator model KSRG25FKSS04 with an eye sensor for releasing the ice cubes. Is this unit compatible with my refrigerator?
+- How long are each of the cycles and how many wash/rinses or soaks are with each one? Can't find anything on mfg website with details of the 6 cycles.
+- How accurate is the HUMIDITY reading on these? Please only answer if you've tested/compared it to other devices and/or local weather stations. THANKS
+- How does this unit perform when it comes to pan frying food, and smoke caused from that?
+- How long do these filters last? The one from Sears lasts about six months.
+- Will these fit 1/2 inch hole? I drilled a 1/2 hole and ordered 1/2 inch grommets awhile ago but they are 2 big! lol
+- does this work with older (12 years) Oregon Scientific radio controllers
+- how is defrost handled-what about electric needs
+- Is this the control board for a Kitchenaid KSCK25FVMS00? Thanks!
+- The spaces on both the lower and upper racks are so far apart that my dishes fall down unless it is so full that I can wedge them against each other. Does anyone have the same problem and/or a solution?
+- Has the timer went out? and how do you fix the timer
+- Will this filter work in place of the culligan IN-1 filter i have now?
+- Can the controls be read by someone who wears glasses or are they too small?
+- What are the dimensions of this item?
+- Does this filter the same as Protec Filter 3/WF-813, which is recommended on the side of my ReliOn humidifier?
+- Does this washer have computers in it Does it have and agitator
+- Will this fit 665.13123K701 Kenmore Elite
+- Does this fit in Whirlpool Heavy Thin Twin Dryer? Two of the metal latches that snap this into the lint filter have broke on mine.
+- How big around is the stem in these feet?
+- Does anyone know how to change the time format? Not the biggest fan of military time.
+- Will it fit a whirlpool model number wtw4950xw3
+- what are the dimensions?
+- Description doesn't note the hoses are included. Are they included in this kit?
+- will it fit an lg washer
+- Can these safety straps be screwed into the wall rather than the TV stand?
+- Mullion (bar between two doors) is tight on my LG so I have to rotate by hand to close the left door. Is this normal or will yours rotate freely?
+- Is this item everpure h-300 compatible?
+- What's the color of the glass?
+- Washer will not spin or drain.....Np code
+- I have 3/8" PEX plumbing in my house. Can I attach this 5' tube to 3/8" PEX. Is there an adapter/ coupler
+- What is the minimum diameter?
+- can you easily replace halogen bulbs with more efficient bulbs without modifying hood
+- It's written that the dimensions are 7x7x4inches. Is it right?
+- Silly question perhaps but does connectors require anything special other that pulling straight out from old switches? It appears to have pin release.
+- how many gallons of water will this hold?
+- I saw a manual online for the heating elelment number being 339655 and my whirlpool dryer is LAE5900w0. Is this the correct element?
+- where can i get an owners manual?
+- will this work on my insinkerator #777ss-1 with out taking it apart?
+- will these filters fit on kenmore model 5271 range hood?
+- What is the height measurement?
+- Will this part fail like the original? Our upper rack is falling off, breaking items on the lower rack.
+- does it fit the kitchen aid coffee pot model kcm140?
+- The units works perfectly howeer the clock is slow by an average of 30 minutes per day. Do you know a fix for this?
+- will this fit model number rfg298hdrs?
+- Can you please send the specific SKU (product) ID numbers?
+- How do you know when to replace the filter? Is there a way to tell (e.g. humidifier functions differently) instead of relying on how many refills?
+- Is this refrigerator brand new (i.e. not refubrished or floor model) and does it come with full manufacturer's warranty? Thank you.
+- I assume the stainless vertical pipe is trim, and there is flexible or some other duct inside it. Can anyone tell me the WIDTH of the vertical trim?
+- does pump work with maytag model mhwe300vf00
+- Do these filters go in the bottom grill or in the refrigerator? We have a side by side.
+- I need to order a water washer drain pump model number is WFW8500SR01 but i cant find it if I order the W10130913 will it fit my Front Loader Whirlpool Sport Duet? Need help finding one.
+- Would this be safe to put in a room as a personal fridge?
+- Is this the same 8558129 dispenser part that is used in the Sears Kenmore 665.1602 Dishwasher? It looks identical and the measurements are the same.
+- Is the Dual Fuel the better option?
+- WILL THIS FIT WHIRLPOOL # ELO5P
+- How many lbs. ice?
+- what fits the model HCM - 890
+- I have bought this product before, and would now like to buy just the "sticky" pads. Can you refer me to the right purchase option. Thanks
+- I am looking for an equivalent to a Kenmore Part. No. ADQ72910907, or the substitute ADQ72910902&hellip;would this be one?
+- Would I be able to turn this on for only a couple minutes on really gently cycle? My delicates are delicate!
+- Will this fit LG refrigerator LSC 27950SB?
+- will it fit whirlpool model # GHW 9250MLO?
+- is installation difficult
+- States it "makes" 12lbs of ice daily. Can it make and more importantly store 12lbs of ice?
+- Has anyone used this product to prevent cold air from leaking in from a through the wall bathroom exhaust fan. We live in Southern California.
+- i have an older modle whorlpool dryer mn ler5636pqo will this part fit?
+- Does this fit my Maytag Bravo MGD6600TQ0?
+- Will this work for FEF355ABD Frigidaire Range?
+- In the product picture above, is that yellow pump casing supposed to have any water inside?
+- What is this set of gap caps made out of to cost $65.00 and $4.49 shipping?
+- would this filter work with kitchenaid model # KBRC36FMS01??
+- Does this replace the hydro stick for the Air-O-Swiss air washers?
+- Why would I need to replace this, other than my chamber getting broken somehow?
+- Does this work in a KitchenAid KUDSO1IJ BT1? The picture in the description does not match the broken one in our dishwasher.
+- Do you have another fill cup? None of the fill cups fit. My fill cup is on the right side of the freezer, w/water entrance hole in back
+- Does this portable washer come with casters, so it can be moved easily??
+- is this Eurodib induction cooktop manufactor made in china
+- Can this lint trap be used without a dryer booster? The dryer is 6 feet from the outside vent.
+- Can you give me the link to buy an extention for this hood? (9 foot ceiling). I see people asking and answering, but no link. thanks!
+- What is the exactly height from the bottom nut to the top hinge?
+- will it fit model fef366dca
+- Is this a counter depth refrigerator?
+- WIl this fit Whirlpool Microwave Gold series GH5184XPS?
+- Is the end that hooks to the washing machine have a screw on end and a clamp on end or just the screw on end?
+- Why is it listed as 42" wide, but product details say 45"?
+- can i use other cookware
+- What is the height of each shelf? I read that you can store 3-liter bottles on the top shelf?
+- Will it work on model number GU1500XTLS1?
+- has anyone else had problems with the glass lid on the top loader
+- does it come with a cleaning kit
+- what is the depth of this set? surely not 75 inches!
+- COLORS?
+- What is the CFM at low and medium fan speed?
+- Will this belt fit GE washer model WDSS4120AWW?
+- will this part work for Model LE7810XPN0?
+- After I installed the disposer, the sink does not drain unless I am actually running the disposer. Any ideas on what might be causing this?
+- Will this housing hold the d 20 cartridge ?
+- will this fit ge model gld5500lcc
+- Hi, does it have a non-return air flap?Thanks
+- Is this compatible with Frigidaire FFTR1814L?
+- DOes this filter work the same as the Kenmore Ultimate II?
+- Anybody got an idea why this product is so high in cost, like other reviews said, it's just plastic and glass
+- will this work with any brand?
+- Would you trust this lock on a deep freezer outside to deter people from breaking in?
+- does it work in a 7200 series
+- Is it the same as 5231JA2006B
+- 1. Does this simmer well? 2. Does it hold foods at a serving temperature? 3. If you lift a saute pan to toss the food as a method of stirring, will the burner shut off? That is, how long can you have a pan off the surface before the burner shuts off?
+- just opened the spt dishwasher: What does that mean?????
+- Which side is hinge on? Is it reversible? How much clearance is required in back? Thanks!
+- Can this unit be placed in an outdoor kitchen that isn't fully enclosed?
+- Will it fit FGHG2366PF which calls for ULTRAWF?
+- what is actual width of this unit?
+- ice
+- Can I stack a 4-Inch by 4-Inch by 14.5-Inch on top of another 4-Inch by 4-Inch by 14.5-Inch?
+- Can these oven gap guards be cut to fit if they are too long?
+- Can this device measure humidity as well as temperature and if so, is temperature displayed in F or C?
+- Does this baking element fit the oven model REG74HB*2?
+- can this dryer break apart easily for getting thru a small doorway?
+- what is the size of the duct vent
+- How big are the holes? If I have to provide the padlock, I need to know if it will only take 1/8" shackle or 1/4" or smaller?
+- Unit makes loud screeching or scraping sound at start of every new cycle for about 60 seconds. Not fan. Anyone else experience this?
+- kenmore #253.55679407 Will it fit.?
+- does it scratch easily
+- If you have a pedestal, do you have to get two sets of these or just one?
+- what is the warranty on this range?
+- Approximately how long does it take clothes to air dry after spinning? Thanks.
+- is this for two filters
+- I have only 24" side to side. Does this unit have side clearances ?
+- Will these work for Kenmore 758.15420011 humidifier (requires Kenmore 32-14911 filters)
+- Do you have the tube kit for kenmorefrontload washer elitemodel 11047892702.bought 2001 thx nancy
+- Does the unit come with filters?
+- When this is plugged in the bottom outlet, can you still use the upper outlet?
+- does this come with a show dryer holder in the dryer rack?
+- Would this hood be enough for a 30 inch stove? im concern for the size in the island since steam and such dissipates easily without walls around.
+- Is this a convection oven?
+- Do you have to hold down the IS button or does it stay on after you press it one time?
+- Will this work for Whirlpool Cabrio Model #WTW6600SB1?
+- Is this suitable for WKSR2100TBWW model?
+- I have a Roper electric stove. Will these fit?
+- anybody installed this in a cold winter climate? Does it freeze up/not open? thanks
+- Will this range hood work as a ductless if I buy a converter kit?
+- i already bought one element for my ge stove that did not quite fit. the ends that plug in were too wide. mine get narrower, what does this one do?
+- I read on AKDY website that all of their products carry a 3 year warranty. Yousr stated 1 year. Is this product refurbished?
+- Can i use it in an outdoor bbq/kitchen application?
+- Will this fit Samsung Model RF268ABBP lower ice maker?
+- i replaced my GXRLQR filter but no water comes out. how do i find out what went wrong?
+- Does Proslat work with Gladiator Garage Works products?
+- Does this fit drain pump samsung wf328aaw
+- The spec. say this is a high quality stainless steel but a 23 gauge?... Is it a 23 gauge or a 18 gauge?
+- Are these for Puresource NGRG-2000 (using the RG100)?
+- Should the two pieces in which one is male and one is female to have nice fit?
+- right hand or left hand
+- does this filter fit LG dlex3360v
+- I would like to buy this to ship to my home in the Caribbean. How would this work with regard to the 'white glove' thing?
+- Will it fit Maytag Legacy Series Quite Series 200 Model Number MDBH945AWSO
+- Is this a replacement/better valve than the WR57X10032
+- Will this fit my Maytag MGR5745ADA?
+- I love mine but one of the lights keeps burning out why?
+- What are the logging intervals? Can it be set to log every 15 Min.?
+- does this RVF rv water filter come with a filter ?
+- Does anyone know how to fix your washer from NOT tearing your clothes? My washer is putting tiny holes in my tee shirts and they get bigger! Then it is tearing my towels apart! I just pulled out a small cleaning towel and it shredded my towel. I have...
+- what makes the waher not go from wash cycle to rinse cycl
+- does this hook up to a kitchen sink
+- does it replace the DA29-00020A?
+- How many amps does it draw?
+- Does the dishwasher have any kind of drying feature?
+- So, this has to be plugged in AND near a sink, or such? That worries me that my counter won't be big enough, etc.?
+- Does this monitor read humidity levels below 16%?
+- Do the twin halogen lights on this hood provide sufficient illumination (since they are located so close to the wall side) and do they dim?
+- I have a Holms Air Purifier and the bottom of the filter reads: HAPF300 true HEPA Filter. QUESTION? Will these filters fit my machine?
+- Can I get this model , (Summit : FFBF285SS) to open the door left or right?
+- Is the silverware basket in the door?
+- does the unit have a meat probe?
+- will this work with the FSE447GHS0 MODEL?
+- Is the black one flat or shiny ?
+- does this go inline of vent? does the heat and moisture come into the home?
+- When I changed battery in my unit it does not work as it always shows 15%RH
+- will this replace my kenmore 10626636
+- is one-faucet connector included?
+- for $9.75 plus shipping set of 2 or set of 4?
+- What are the dimensions of this element? The description 7 x 7 x 7, which doesn't seem accurate.
+- is this range hood suction good enough ?
+- Is there a one year warranty on this ice maker? It 'died' after 2 months of use. It sat, unused, for 7 months, now it won't make ice.
+- I've seen that several people have mentioned the backsplash is smaller than 30 inches wide. Has that problem been addressed recently?
+- Kenmore refridgerator: Does anyone know if this model works with the Kenmore refrigerators.
+- The part PX12; AirkingPwC8R,Airking SP2430 S 30'.Actve Air ACC8 include the Box?OR I need order separate?
+- Does the compartment on the rear that the cord comes out of, have a cover?
+- Will this work/rated for Whirlpool washer as well?
+- I have a Frigidaire FRS26KR4DB6. Would you plz confirm this is the correct defrost timer for my unit before I order it?
+- does it include the piece that open when the fan is on and close when fan is off so the air from outside will not follow back into the house?
+- Filled with water but motor is not rotating to push the cubes. 7 hrs already. How is the metal arm supposed to be positioned to push ice?
+- will it fit a Kenmore Refrigerator model #10677992791?
+- Hello, I have AKDY 30" hood and I have a problem with digital clock. The clock has behind for a couple hours every day. Please can you help me.
+- Is this Machine Ventless?
+- what will happen if I use pans other than the ones that came with the nuwave cooktop
+- i need a freezer and and refrigerator gasket for model# ED2FHEXsBOO black magnetic
+- What is the diameter of the supplied probe? I'm wanting to fit it into a 1/4" ID stainless tube to use as a thermowell.
+- Reviews of the Whirlpool gas dryer wgd6200sw2?
+- does this by pass work on ge model TFX25ZPBO
+- 1500 watts.. this is the maximun single hot plate available ? or broil king got a most powerfull one ?
+- Can the dryer shelf be set at different heights? I'm short and need it lower than 51".
+- In the product area it says it is 8 x 11.5 x 7.5, but in Q&amp;A area it says a bunch of different things about the size... which is correct? thanks!
+- Does this fit an LG wt1101cw
+- Does the connection to the keg work with a pin lock system? My Corney keg has pin lock set up.
+- Does this mode vent out the wall or ceiling?
+- Does this work in model LSC26905TT
+- Has anyone used this on a brick driveway? I am looking for vacuum that can suck-up small leaves and other debris between the bricks.
+- how do you open the top when you have no power?
+- does it have a lock?
+- does the top row of soda fall down to the bottom row when a can is taken out? or do both row roll forward separately?
+- How many bottles of wine can it hold?
+- what is the color
+- does it has a cord
+- how many quarts does it hold?
+- is the washer door interchangeable
+- What is this? Heating Elements 4 On a gas stove?
+- what kind of water filter?
+- Does this kill hantavirus and can it be used in a fogger?
+- Do you know if this will fit my Hotpoint oven model #RB787WH2WW? It looks like the one in my oven, but I want to make sure before ordering it. Thanks!
+- Is it recommended by consumer reports magazine? Is it hard to install, for someone who knows what they are doing?
+- Will this unit fit my Kenmore 911.93508990?
+- can someone please tell me the side to side exterior measurement...is that the 18.5 or the 17.75? that half inch makes a difference..thanks!!
+- is this a vertical or horizontal discharge
+- will this fit in a 1987 teton 40 foot fifth wheel obviously I don't know the sie of the refrig I know a cabintet abouve it and I think the propane clo
+- two questions, Is the door reversible? Who manufactures this product? Where made?
+- Will this lint filter fit my Maytag model MED 9800 TQO?
+- how loud is this washer?
+- What water valve do I need for this?
+- Does this range come in white?
+- Will this work with a Viking VCBB5362LSS?
+- Is it really 41.7" tall? Does it come with chimney extensions?
+- I only use cold water. Can I connect only the cold water hose to kitchen adapter?
+- Is there another brand sensor that replaces this one that costs less?
+- Mine came without manual, and the ice full led is on. it doesn't start. how can i solve it? in the avalonbay site the manual download link is broken.
+- I have a 7&amp;1/2' ceiling, can i instal this hood with out having to cut the chimney? I know most of the hoods are adjustable for 8 - 9' ceilings.
+- Anyone know the difference between W10130913 and PS1960402? They look the same ~$20 different.
+- is it 20 x 25 x 4 or x1?
+- Is it loud?
+- This looks like a great washer/dryer combo: But is it vented or not?
+- will this replace GWF filters? and how long do these filters last before needing change?
+- do you have to have special pans for the induction stove top?
+- What type of leads come with the unit, i. e. alligator/pin probe?
+- Is it made in the USA?
+- The water works fine after replacing the filter, but the ice maker is not producing ice. Help?
+- How can I get a Frigidare filter as pictured and not some knock off?
+- what is the opening (middle section) diameter of this drip pan?
+- just to confirm, i can use this model for a ventless/ductless island?
+- do you have replacement knobs for hotpoint stove?
+- Dealer locations on speed queen dryers in westchester county ny
+- Does this unit need to plug into an outlet?
+- how small are the small cubes?? what size?
+- How quiet is it? Scale of 1-5. 5 being the highest
+- will this fit Fridgidaire model PLHS69EESS2??
+- Does it fit the Sunbeam Model 1117
+- what are the dimensions
+- I have a magic chef model cer3520aal part #8114894-60, will this work as a replacement?
+- Does the glass get very dirty on this? I'm afraid it may be hard to clean.
+- will this item work with model number jgbs22beh4wh
+- Under "product Information" the dimensions are 17.2 x 18.8 x 20.2 inches, under "product details" the dimensions are 24" H x 23" W x 25" D. Which is correct?
+- Bought a bypass but my water and cubes still taste funky. My tap water is fine. What's happening?
+- Is this product ventless/ductless? I can't install a vent hood that requires a duct leading outside. Thank you for your help!
+- Does this have to be ducted or can it be used just to recirculate air?
+- where to find instructions
+- Is this the element for the two 6" rear burners on a Frigidaire bgef3032kwa
+- what size are the inlets?
+- have whirlpool cabrio wtw6400sw2. will this board work
+- can this hood be vented out the wall?
+- is the 10154 &amp; 10185 the same?
+- Can you buy additional ball bearing racks? Thanks.
+- It this part grey?
+- Does it fit a homes hm1230 humidifier
+- Is it 110V? and tell me What is watt?
+- I have a water softener, use the recommended setting of 43% hum. level, and wick lasted one mo. &amp; a day. Do replacement wicks last longer?
+- Will these fit a Tappan electric stove? Older model, no model number, 20 yrs +
+- How many BTU are the burners?
+- Can you open the door and add another piece of laundry after the machine has started? I think they call it a "pause" function.
+- i bought this range for my daughter. It burns food close to the sides of the oven when she uses the upper oven. Is there a way to correct this?
+- Will this fit my Matag dryer modle # SDE2606AYW ?
+- Will this latch work on ken more ghw9100
+- How long is a normal wash cycle?
+- Is this a direct wired hood?
+- Does this come with the new v4 controller listed on the Floodstop website?
+- Can this be installed without air being directly vented outside? So it just pulls air up through filter? Are the light bulbs easily changable?
+- Does it comes in original GE Box?
+- does this unit have a sanitize option
+- Does this fit a Kenmore HE3 front load washer?
+- My Duet Model number ggw9250pwo. Is this correct kit?
+- I have a model RF263LXTQ-3 Whilrpool range will this work for that?
+- DOSE THIS NUWAVE 2 . STAY AT 40c on the low setting . IT is 49c . THE Thermometer says so .
+- Does this fit lg model dle2516w
+- Is the unit exactly 30" wide? The space above the stove measures 29.875" inches (same as the space the stove fits in).
+- Is this part a replacement for part DC97-16985A?
+- Could you use this for vegetable cans instead of soda... would the veggie cans fit properly?
+- How large is the actual tub? Is it good for washing rugs and comforters? Large capacity?
+- Will this fit a kitchenaid side by side refrigerator?
+- Will this fit a maytag sdg515daww?
+- does this fit fghb2866pf7a
+- Is it quiet running?
+- Does this product plug into an ordinary wall outlet and does it have a typical socket for a reptile humidifier to plug into? Thanks.
+- Will this work between a counter and a fridge?
+- are there extensions available?
+- Will this unit work with an AC unit only that has heat coils in the air handler unit? Far South Texas doesn't require much heat.
+- is this wb30t10045 rated at 2000 or 2100 watts
+- I just need the screw in filter replacement..is this that? the price is great...
+- does this come in a stainless steel door model?
+- Is the exhaust located in the center of the unit ie center of the exhaust at 18"?
+- Can you use a pressure cooker on this Cooktop?
+- will not make Ice, keeps saying to add water which has been done. Did turn off the unit unplugged it and started over still having the same issue.
+- What is meant by a slide in sealed burner
+- Will this controller work with the Aprilaire 600M?
+- My Kenmore Elite is Model # 795.71283.315 is this the correct air filter?
+- What size tube? 1/4 ID or OD? I see conflicting information in the responses. Local supply store has both next to each other.
+- does this work with a GXITD?
+- how long does one filter last before it has to be replaced?
+- If I set this up as free standing is it safe for a renter to use would it be safer to build it in
+- why is used filter more expensive than new
+- Do you have installed manual ? I need to replace my wall mounted hood. The height of the hole at the wall is only 41 inches from the top of stove. I am afraid I don't have enough height to connect the duct to the hole.
+- will this water valve exchange with 2315534 ? thanks Tom
+- Is this model for the #1855 Holmes humidifier?
+- I bought the CC 280-E last year after an exhaustive internet seach and the cedar lines one was not available. Can I buy the cedar inserts only?
+- What is the humidity range?
+- What is the height of the hood at full extension?
+- How easy is it to convert to a dual tap? Any recommendations on the dual tap to use?
+- will this work with amana part number ps972231
+- my model number is 110.76915110 original pt no. is 342763 will this part sub or do you have another part that works?
+- i am trying to get the specs on this product but cant find them can you help?
+- Has anyone had an issue with leaking from the cartridge after it's been changed?
+- what is the demension?
+- does it also contain a timer?
+- does it fit model DU1014XTXB0
+- i need to know, if this part is compatible with DU1015XTXS, i have the chopper blade in my hand and look the same, but i need to be secure
+- I lost my keys....any suggestions other than inquiring manufacturer ?
+- Is this washer a fully automatic machine or do you have to manually set it to rinse and spin?
+- Do these burners glow red when turned on?
+- Will this water inlet valve WR57X10333 work on a Sears Kenmore Bottom Freezer Refrigerator Model 795.76204.901
+- I need to replace an end cap that no longer stays closed. Will this Broan 885BL model slide inside of an existing 4" round duct?
+- I would like to buy at least 5 filters. Could I pay 1 shipping price if you bundle it? Thank you.
+- Is this compatible with Whirlpool 4396395 Refrigerator?
+- does this come with a powercord?
+- Does this work with the Whirlpool GU2500XTPB6
+- Sink connection question: Has anyone had this problem and figured out a way to solve it?
+- Hello, Will this fit the Bosch SHU5300? Thank you!
+- If my clutch is bad, will this work for Kenmore 90 series supercapacity model#110.26912691 seriel#CJ1808000
+- Will this work with my insinkerator compact-p-1 3/4 hp
+- Does this work on Hotpoint stoves?
+- What does this garage kit do?
+- I think I get the intended use of this, but I just want to make sure... Can this be used as a pre filter between my well and well pump?
+- where can I buy parts/
+- Are these actual OEM replacements (blue hubs), or a knockoff?!
+- Does this unit have a light?
+- I have a 9 year old Badger 1 that needs replacing, will this Badger 1 install just like the original one?
+- does this item come with the power cord? do we need to purchase any thing else to make sure it works?
+- Will this replace the Kenmore part with the same part #? 316207511
+- Hi, my dryer is Kenmore 110.79912990 and needs Kenmore Gas Valve Coil Kit 279834. Will this work?
+- Specs say gallon capacity (300) is half of OEM (740). So do you end up changing 2X as often and savings are nil?
+- do any of these choices NOT rust? i want to throw in dishwasher
+- Will these fit the HAP716...struggling to find right replacement. My unit says D filters and I notice that we previously had A filters in there!
+- The description for the washer says 5.1 Cu. Ft but the model WM8000HVA on LG's website says it is 5.2 Cu. Ft. Which is correct?
+- In the precise fill option, can you walk away from the dispenser while it fills your cup or pitcher?
+- Can it use natural gas, or only propane?
+- IS COMPATIBLE WITH RSG257AA/XAA
+- Will this basket fit Kenmore model 58715263900?
+- Will knobs fit Kenmore elec range model #103 9857 810, serial #8L14568?
+- Is this oven self cleaning?
+- does this protect from chemicals
+- is this ice-maker a replacement for model # 235.7923470
+- Is there a micron rating?
+- Does this kit include the C clamp that goes under the brake cam? It's not pictured in the photo here yet it is shown in the YouTube video.
+- where can I buy an ice maker replacement for gz25fsrxyy whirlpool refrigerator? Ours will not make anymore ice.
+- can this be used on inglis led4400vq1 dryer
+- Is this faucet metal or plastic?
+- What are the dimensions of this shelf?
+- Will this work on my whirlpool rf214lxtb1. Left front and right rear surface elements?
+- If you push the channel button to display say channel #1 which is out doors will the display remain showing the outdoor channel #1 temperature as long I don't push the channel button again?
+- Does anyone know where I can buy these now? I cannot find them online for any reasonable price.
+- Does the finish match or look close to the Frigidaire Gallery Stainless Appliances?
+- how big is this
+- will it work for model gss25qatvss
+- Will it fit model # WDF750SAYB3 ? Thanks for your help.
+- will this fit the 4180W model?
+- Maytag DW with regular height tub?
+- what is the diameter??
+- How do you install the Whirlpool Dishwasher fill value W10158389?
+- dos this come with everything you need to install with 9 foot ceiling?
+- will this work on model ess25Lsna bs
+- can you pull the oven rack out by using the rack guard?
+- Do you sell extensions to fit nine foot ceilings.
+- I have a FRS26R2AW5, does this filter work for it? Thank you for your reply!
+- Is the filter 46-9010 the same part as the 9010? That is the number listed on the Sears replacement site.
+- what is the dimension of the range hood? I need L=34, W=10 would this range will fit my space?
+- Is this sold in packs of four?
+- OK, thanks. I need the electric dryer, how can i buy the washer and dryer in same grey color??
+- If I have a dishwasher already will this one hook up the same way?
+- Is this unit self contained i.e., no external sensor wires?
+- Do you have a similar part for my whirlpool duet model WGD8300SW1 - Serial MW1816391?
+- The freezer: can you put anything else besides ice packs? Is it that tiny? Ordered anyway, for that price..
+- will this screen filter fit a roper dryer
+- Will they fit a Frigidaire stove
+- Please let me know the dimensions of this oven rack. Thank you.
+- is it include front cover?
+- Will this work with any fireplace blower when also connected to a thermal switch?
+- Does this model have an odor filter?
+- does it work for a 7'5" ceiling?
+- Does it fit Waste King SS 2600?
+- I see that this unit has 2 2watt LED lights. Does this give enough light?
+- Will this fit a whirlpool WEP5100VQ0?
+- Do you know if this is the proper replacement lint screen for a Whirlpool Duet Dryer Model No. WGD9470WW2?
+- How long does shipping usually take?
+- Wondering the clearance under the drip spout? We have a ledge around our sink we're trynig to get over!
+- Is DA29-00003F the same as DA29-00003G?
+- will this fit in a 363.9712881 model kenmore refrigerater ?
+- Can you clean spattered egg yolk off of it? Mine is uncleanable and it's white!
+- Is there a Shabbath mode?
+- Where can I buy an additional shelf?
+- where can I get HWF-23 filters for my HM1200 Holmes humidiier?
+- what is the internal diameter of the opening?
+- Do you Houl away the old washer?
+- I've a older model LER5636JQO will this part work?
+- Is this portable? If yes, where does the gas/propane plug in?
+- Will this work in an amana heavy duty dryer model# LG8319w2 serial #s9701044026 manufacturer #PLG 8319w2 .heating element
+- Is this part manufactured by Whirlpool?
+- will the dustcover be double boxed for protected mailing?
+- will this pedestal fit WFW70HEBW0 model?
+- Is ths compatable with "heating element lde304acm
+- I have a GE model JBP26OF2AD the racks are 16-1/4 X 11-7/8 do you have a rack that will fit?
+- Will this filter work for a Bosch, 2-sided, refrig model number B20CS80SNS? If not, which one will?
+- Can this be installed flush inside a wall or does the whole thing- duct and filter- have to be exposed? I would like a finished look.
+- Will it work with model LG 7801xswo ?
+- What year of manufacture is this refrigerator?
+- Does the necessary equipment for installation come with these?
+- what is the capacity and can you use tap water or does it need to be purified
+- is it good for felting?
+- is this item "Whirlpool Part Number 279769: CUTOFF-TML' work for kenmore dryer model 11064992300
+- Would this work on my hotpoint model ctx14cytgrwh?
+- Will this unit work with an 84" ceiling (7ft)? The chimney appears to come in 2 sections. Could I just leave off the second piece?
+- Does this stopper fit down into the drain, or at the top of the drain so that it sticks out into the basin of the sink?
+- Will this fit the Whirlpool Gold Model # GH4184XSS-1 ?
+- I live in a dorm and owning a fridge is contraband. Is it shipped in a plain box or clearly marked as a fridge?
+- How do I turn off the light
+- Does this fit a kenmore model 795.7032?
+- what is the temperature range? Can this be adjusted to 50-55 F for cheese aging?
+- is it loud
+- Is this handle all metal, or metal in the middle, with plastic trim pieces where you mount it to the door? Can you swap in an all metal one for this?
+- I need a freezer fan replacement for Whirlpool ET18AKXLWR-O - Do ypu have this part?
+- Will this work for model # JGS968?
+- Do you allow local pickup?
+- Want this to remove lime and other minerals from our hard water, so my car doesn't have spots! Will it work for this purpose? Thanks!
+- When do I put the fabric softener in? At the begining of the wash or on the rinse cycle?
+- part 3149400 is same for whirlpool part number 311857, look same of
+- I don't have a sink right next to the laundry room. Can this washer be connected to the regular washer hook up rather than connect to sink n faucet?
+- Is this correct bulb for GE Spacemaker XL1800 microwave
+- How long is the actual pointy/hook part that gets pushed into the wall?
+- what is the dimension of this range hood. The dimensions picture show the length is 29-3/4~35-3/4. what does that mean? my space under cabin is 30" .
+- Is it OK to use Air-O-Swiss Hydro Cell with Vicks Ultrasonic Humidifier Model V5100?
+- Will this work as a replacement for Part #PS243425 for GE range model JGBP28DEJ1CT
+- i bought a few months ago, and the plastic container was so hot, and leaking water under the machine ,after that, only comes water from the hot water e nothing from the cold ,what I can do,
+- Powder or Liquid Detergent? Which is better to use?
+- What does "OEM" mean? I need this for a Samsung refrigerator, not a GE. Thx
+- Does Frigidaire 154844101 Motor Kit also include the two O-Rings ?
+- Can this unit be attached to normal washer-line hoses, or will it only attach to a sink faucet?
+- Will this be easy to install in a 2002 model side by side kenmore refrigerator ?
+- can i still use dryer until its fixed
+- Can an electrician install this or do you have to use Ge. This will be replacing a previous GE induction cooktop which lasted 15 years.
+- Does it have a grinder or just a filter?
+- how many strips come in the kit, I need at least 12
+- What kind of warranty does this come with?
+- How to Calibrate??? Does anyone know if this can be calibrated ? 'Removed board; no means of setting temp.
+- I need a new PTC sensor? what is the ohm spread on the PTC? water temp at 92 and control says 138 unit only 2 months old
+- will this basket fit to Bosh dishwasher?
+- are the knobs made of cheap plastic?
+- The pin-out at the back of the part in the picture is very different from other 700855K. Is it compatible with others?
+- How does this unit compare to the older Panda washer without the integral spinner? Is the washer part larger, easier to use? Already use the Panda with separate spinner; would there be any benefit in getting this unit to replace existing arrangement?
+- Are the oven racks porcelain?
+- how do you load the washer with just hot water and then add clothes and detergent ?
+- Why does the description say is is 20 cu ft?? Isn't is more like 3 Cu Ft? If it were 2' by 2' and 5 1/2 - 6' tall I'd 20 Cu Ft. Is this a TARDIS?
+- How often should it be cleaned?
+- Is this for GE tfx24f
+- What is the actual installed width of the cooktop?
+- can you adjust the water level
+- magic chef compatible?
+- Does this supercede the UKI1000? Newer model, same fit?
+- is there a suction cup?
+- Does anyone know if this replacement filter will fit a Claritin tower air purifier? The cartridges look very similar.
+- will these fit our kenmore pro range duel fuel Model# 790-79623700
+- Are there any accreditation on this?
+- Will they fit the feet of any top load washer
+- can this filter be used for domestic hot water? What is the high temperature limit
+- What size venting is required?
+- will this fit kenmore washer model number 110.47567700?
+- will this element fit Whirlpool the element number is either W10259866 or PS3418142 which is for a Whirlpool electric range Model # RF114PXSB0.
+- what is the size of the locking pin?
+- will this fit lg wm2701hv
+- Is this a replacement part for original? The original part has 10 electrical plug in and the replacement only has 9.
+- Will these burners fit in my Whirlpool Range Model #Rf365PXMW1?
+- do you still need to line dry clothes? how dry do they come out? lol, will it remove cat hair from the clothes?
+- to shut off ONE burner is there an on-off button. do you have to press and hold it down as it drops from whatever setting you were cooking at until 0?
+- Will it replace the GSWF filter?
+- Does this hook up through a hose to a water faucet?
+- what is the depth of the fridge?
+- does it have to be hooked up to electricity or can you light it with a match, no electricity where i want to use it.
+- Does this fit 795.7313 Kenmore Elite?
+- Will this work for my JBS030N1AD
+- I just purchased JED8230ADB16 with grill &amp; 2 coil burners. Can i plug this unit into the grill side so I have 4 burners?
+- What's is the minimum and maximum distance allowed between the bottom of hood and range top?
+- We have a standard electric ceramic cooktop with a hood. Does the downdraft use up much space under cooktop? Where does vented heat go?
+- Can this product be used on 1/4 copper refrigerator lines?
+- Can beers such as Corona be tapped with the parts included?
+- I'm concerned about noise level and I read lots of reviews that say this is noisy, but how noisy?
+- How do you reach the top controls when stacking the machines? Thanks, Pat
+- light
+- Does this water chamber fit on a respironics system one phillips DS450HS?
+- will it work as a replacement for Maytag Model CDE852 Jenn Air electric range? Approximate open size of hole is 18 /2 X 10"
+- Does any one know if this is a pentagon shape key?
+- Does this system filter gaillardia?
+- Is this machine quiet? I'm a night owl and tend to do my household chores in the wee hours. I live in an apartment--will this wake the neighbors?
+- I turned the ice maker off for a few weeks and now turned it back on and it stopped working. Any suggestions?
+- 1/4 by 1/4
+- Have recent purchasers received the older version (4x D batteries) or the newer version v4 (4x AA batteries)? Are there any other differences? Thanks!
+- Mine keeps turning off suddenly and very randomly. It had no issues for first 3 months.
+- Can this be used for ultrasonic humidifiers?
+- do you still have the w10253483 lock?
+- What is the length?
+- I need a WR60X10185 with a sensor and this model looks the exact same will it work?
+- will this fit on the 5 burner whirlpool gas range
+- My Frigidaire DW model # is FDBC45BAB1, will this rack my washer?
+- Actual size of ice produced, not vague small, medium, large?
+- The label under the word "pur" has a typing error "disopsable" vs "disposable" - that can mean a fake product. Amazon: please confirm authenticity
+- I have a Kenmore gas range model 790.78789405 that calls for a bake igniter part PS1528534. Will this part work for me?
+- Is the top only galvanized, with plastic material elsewhere in the product? If it's a mix of galvi and plastic what parts are galv'd?
+- how much does it weigh
+- how easily can you scratch the top
+- is this a ventless hood?
+- Is the 30" one exactly 30" or slightly less?
+- can these be used for gas stove burner?
+- Are lights in unit halogen or LED?
+- how/shen do you need new filter ?
+- When I put this new filter in the water went down to extremely slow. Reinstalled and still really slow after running it for a long time. Anyone else?
+- Is this a self-cleaning range?
+- Does this include the blades?
+- Was it hard to get the old one out? Is it just one screw, unhook the front wires and it slides out?
+- why is ice maker constantly clogging
+- Can you install the range when delivered?
+- Should this filter be replaced every year? If not, how do you clean it?
+- what diameter of canner can be used
+- is this element will fit my whirlpool model RF262LXSBO
+- Does this range hood have the option for a rear vent?
+- I just got this freezer. My question is: where is the serial # ????
+- is this one or two hoses?
+- will this hood fit 9' ceiling? or do I need to order an extension?
+- Is this price for 1 knob or a set of 4
+- How does geofencing work if 1 person in the household is usually within 3 - 5 miles from home? Will the AC/Heat run all day in this situation?
+- How long does it operate on a fill-up?
+- I'm confused, is the length (from side to side) of the microwave 20.3"? Or is the depth 20.3'?
+- what pots and pans can be used with this range?
+- Is W10130695 the correct latch for a Maytag MDBS561AWB1?
+- C02 pressure too high
+- At what temp is the excessive heat that the fan will start by itself?
+- I have a stone wall I will be installing up to is there a way I can hangbitbfrom the ceiling instead if drilling into the stone?
+- Anyone has any problems with this oven so far? It seems as though it's the best buy for your bucks..
+- dimensions
+- Can anyone tell me what the surface dimensions are 30 by what?
+- WhatAboutParts, are you currently shipping genuine OEM Whirlpool-KitchenAid parts as pictured?
+- can you bake corn bread on this without it burnding.
+- I have a Whirlpool, lint filter #693846, would this one fit?
+- I have a kitchenaid khms2040wss-0. It calls for part number W10208631. Is that the same as yours with the A at the end?
+- I need to control a blower motor, but I need the blower to turn off if temp A is lower than temp B.
+- Do you ship to Mexico? Thank you!
+- With my current replacement water filters, If ice is allowed to melt and get to room tempt, water smells and tastes bad. I'm looking for a better replacement filter that filters out more.
+- Does it have the same foot print as surface element part # ERS58y21?
+- will this fit a kenmore elite side by side?
+- Hi, will this fit a kenmore side by side mod 106.9555721. number on ice maker is 106-626633. looks identicle.
+- How does the shutoff kit work with a steam dryer connected to water supply?
+- 2500 W or 1800W?
+- whirlpool Model #: WFW8640BW reliability
+- Is this griddle Cast Iron or does it have a non-stick surface on it?
+- Dos it include power cord or must that be purchased seperatly?
+- Can I use this for delicate items and hosiery such as tights?
+- Does this come with the case?
+- Is it a replacement for the Whirlpool 4392857?
+- Does this cap fit W10082929A whirlpool elite dishwasher?
+- is this item a genuine GE part because I ordered it before and was not the right fit and not GE
+- will it fit a pss26lgsc ww
+- Will this fit a Summitt FF985 refrigerator? thank you.
+- Need lower rack Model FDB10LCB0
+- Is there just one or do they come in a pair?
+- What hoses/installation kit do I need to install with this and also does it come with 3 prong plug and will it be delivered to kitchen and unpacked?
+- Will they fit a Kenmore washer?
+- Does low ice production mean that it is time to change the filter?
+- will this work in Thermador freezer T181?
+- is it 110v?
+- Is this a cuffed design?
+- does this use a wall mounted on off switch
+- Has anyone purchased and installed this as recirculating, and if so, how well has it functioned? Do you have to buy separate filters for it?
+- does it have wheels or casters to move it easily
+- does this unit include the grille?
+- does it have a broiler
+- Will it fit my model number ED5GHGXMQ00
+- does the tubing come with the plastic vents
+- I have a GFM23REWA WW model fridge and i need to replace the mainboard WR200D6221G014, will this board work??
+- will this work with a Honeywell TM005X Wireless Indoor/Outdoor Thermo-Hygrometer (Old Version)
+- could you describe the color of the glass?
+- Do feet adjust to make the unit any taller than 32&rdquo; spec? My under counter space is 34&rdquo; -- want to minimize the gap between counter and top of unit.
+- This kit is supposed to have a scrapper, did it come with one?
+- reviews on high efficiency washers vs regular washers
+- how long is the warranty?
+- Does anyone know if these pans (and the 6") will fit in the electric Frigidaire model from about 20 years ago? Thank you!
+- Is the black made of glass or is it ceramic?
+- will this fit the Whirlpool Refrigerator Model Number GC5SHEXNS03
+- can u add a grill on I side
+- hi,can you tell me if this board will work on ge side by side fridge model # PSM27SHSC GS NO. SL424515
+- does this have a light
+- i have a microwave model number# MMV5208WS-1 which filter will be the actual filter?
+- Are they the same as HWF100(2)
+- can this top replace the old electric top on the stove
+- Thin/flexible duct causes fires, death? Use semi-rigid instead?
+- Can I connect this filter in line using 1/4" copper tubing? Can it be mounted horizontal? Does it have a replaceable filter?
+- Will it take propane gas?
+- Do these filters have a metal piece in them or are they just the white filter?
+- Does this fit the Liftoff revolution pet? (My original says size 8.)
+- I would like to use the range as a stand alone slide in. Is there a kit required?
+- Is this same as Kenmore 9030 ?
+- Is this a ductless vent? Does it have to be vented to the outdoors? Or does it recirculate the air indoors (ductless)?
+- Will this replace Bosch 740570 filter? Thanks.
+- Installed range hood on Dec. 27, on Jan 5 it blowed one of the lights, do you have any ideas why?
+- We put in a filterAce+ filter on our Samsung French door RF266AEWP model. Now we cannot remove it. We bought it in Jan.2012. Now what? Samsung will not cover damage incurred by using generic filters.
+- Can it be open and repaired or must it be replaced? I was able to open the connector side, clean &amp; it works fine. Not sure if this is a good idea.
+- what are lg wt1101cw dimensions?
+- Can this refrigerator be ordered in Bisque?
+- Can someone let me know how far the vent is located from the back? Thanks.
+- what size are the cubes?
+- Can you lock the button open so you don't have to hold it down to fill a large pitcher or something?
+- Can this mount in the ceiling soffit above a range?
+- Does the counter and the oven need to be the same height?
+- our Kenmore dryer is a 110 60712990, will this work?
+- Does this part come with both sizes to fit a Kitchen Aid KBFS22EWMS4 whether 30" or 33"/36"?
+- Does it fit LSG-1000
+- Where can I get parts like the drainage hose?
+- I have an LER7646EQ2 model. Is this the correct filter?
+- stuck in drain cycle , won't what can I do?
+- I have lg refrigerator model LRSC26980TT , so should I use this water filter .
+- What is the minimum clearance between bottom of hood and top of burner? Just returned another brand that required 30"
+- warrantee - how do we get it fixed after its delivered?
+- What about cups or other dishes that are dishwasher safe for top rack only? Has anyone tried washing them in this machine?
+- Your picture shows a black dishwasher alert but your technical details states white. Which one would I receive if I bought it?
+- what does this part do.my gas oven wont heat up on bake.will this part fix the problem?
+- can you get a warranty
+- Do you need tools to put this thing together?
+- Can the chimney be cut to fit a lower ceiling? We have a soffit over our stove that is 88" high and would like to cut off about 6" from the piece.
+- Does this fit for dryer model GTDX180EDWW?
+- Good night, I would like to know if the LG LT700P-2PK Refrigerator Water Filter, 2-Pack is siutable for the 3 door Lg GB92T84CVF? Thank you.
+- what else do I need to buy to install this product?
+- will this fit ge mode. j sp40A0W1AA?
+- What color is the Deluxe Dishwasher Alert? Item pictured shows Black &amp; description states it's White. ???
+- Will this door bin fit my model: FRS6LR5EM6 side by side fridge? Thanks
+- will this fit model # JBS07C1WW?
+- will it fit maytag cre9400cce
+- can I change the washer door to open from the otherside
+- won't spin out
+- What is the average temp range? Meaning, does it keep the beer really cold?
+- Does this cap fit W10186667 filter?
+- is this frig frost free?
+- I have a small Hotpoint tove and the picture looks JUST like my element. will this fit my stove??
+- Do I need this switch if a circuit is already wired 3-way or in that case would I just use two Evolve LSM-15s?
+- At the start of wash.. there is a lot of metal hitting against each other..... Really loud...
+- How much do they weigh?
+- Will this bellowcseal fit model number wfw8300sw04 it is a whirlpool sport duet.
+- do you have to have a transition pipe between the flexible pipe and standard 5 in pipe? Does it fit up?
+- What shape/size are the ice cubes?
+- The pic shows the lights being in the front, one of the reviews says the lights stink and they are on the back? is that correct?
+- Does it make white dust?
+- Does it have the ability to just start the dryer for a short time to help remove wrinkles in the morning if starting a load before going to bed?
+- Filter 4396841 and 4396841P which is the difference? The P stands for pair and the T stands for triple pack!!! Thanks to the participants to the discussion. :)
+- Does anyone know the exact dimensions of this evapoator pad? I have a model 550 and hope this padc
+- what is the expected life of a bosch dishwasher used a few times a week?
+- can the IceMagicPlus module be fitted onto this icemaker?
+- Unit wobbles a bit...anyone have that problem? Our contractor installed with ceiling bracket, but it moves around a bit when pushing buttons.
+- Can I fit a large pot or pan in this? And would it clean it good? It's alright if I have to put the pot or pan in alone for the wash.
+- how many amps / watts does this unit draw?
+- Is there a cheaper replacement for Part No. PS898441?
+- How is the item this item sent? Can we request express mail. I need my washer part asap!
+- Can I make this timer just have 1 on/off instead of 3?
+- Is this 110 or do you need a 220 outlet?
+- Could you please tell me if this part is made in USA? I think it is, but I want to be sure so I don't end up with "junk."
+- Does this come with the standard Mfg Warranty?
+- what is the size (diameter) of the face of this wrench?
+- Will it work with Whirlpool Model WRS322FDAM02?
+- How tall is it?
+- Does this fit Model #RFG297AAS?
+- what size is the exhaust duct?
+- Will this work for a Whirlpool? And do uou have both sizes small and large) ?
+- Is the bottom of this clear or is there a seam across the middle? We plan to use this as a tide pool viewer for photography.
+- I have a tiny gap. Any chance they won't fit the tiny gaps? I don't see the exact thickness in the product description.
+- Does this work for both sides??
+- I'm assuming you use it with a bucket, how big?
+- Will this fit the Broan CJD1 Series non-ducted range hood?
+- Wil it vent out the back side wall or only out the ceiling?
+- does this filter fit hm7808?
+- How much of an energy load (watts or amps) does this range hood put on an electrical circuit.
+- WILL THIS FIT AN ED5PHEXNL00 WHIRLPOOL
+- I need a plastic GE knob with a D hole. Is this it?
+- will knobs fit kenmore#362.75275692
+- Does this thermostat make a loud click when turning on? My thermostat is in the bedroom, I require something with a soft, not piercing click.
+- This dryer use 110 or 120V?
+- Does this work with Model FEF366EMB ?
+- does this filter fit the Holmes HM1845?
+- Knocking noise when samsung washer starts filling up with water and continues in knocking during the wash cycle?
+- Will it fit a Roper side-by-side Refridgerator, Model # 22AQXKQ03
+- Is this the same as p/n 297241800?
+- will this work with Kitchenaid KUD102FRSS2 ?
+- what is the ampherage draw or watts specs?
+- Would this unit be suitable for monitoring conditions in an outside root cellar?
+- what the difference between waeco and dometic?
+- if this item Frigidaire 240323001 Door Bin fits model "bfhs2611lmo bottom door bin"?
+- will this fit a 7 1/2' cieling?
+- What size duct work does it require?
+- btu rating?
+- will this fit a matag de482
+- product dimensions are 20 x 18 x 2 inches, but the description says 18" long, 15-1/2" wide, 3-1/4" terminal depth, which is right?
+- Say I wanted to put this under a table, yet run a tube thru a hole in the table, and have my tower/tap on the tables surface. can i do that?
+- does this wok on the RF217acbp/xaa model fridge? If it is bad, would that cause the fridge to not start at all and a relay to click?
+- How does the product determine the freshness of your eggs? Is it timer-based, or is there some sort of sensor?
+- Has any one had issues with bad smels from their cabrio washing machine?
+- - What are the dimensions of this item?
+- Is there an alternative to this product since it doesn't seem to last very long?
+- What is the size of the drip pan?
+- does the control module offer volume control?
+- Does this work for W10193691
+- My Whirlpool side by side is model number ED5FHEXN001 . Will is fit mine? It looks like the ones I have replaced before. Thanks
+- is this washer nfs rated for use in a public place?
+- Please provide me with dimensions of this cooktop cover. Thanks.
+- does this element work in maytag model NOSDE2606AYW
+- Will this fit a Kenmore 665.13793k601? It looks the same. Kenmore Part #8565815 or W10224429 Thx
+- Does one need to flush this filter before use?
+- What size are the small cubes? I am looking for Sonic size ice to chew.
+- Is this the right part for a Kitchen Aid KSRA25FKSS00
+- How much water does this machine use on its lowest level GTWN5650FWS
+- how much clothes can you put in this washer
+- what is the warranty of this item?
+- Will this work on an Admiral Dryer Model# LNC7766A71?
+- Will this alert me if the temp drops below a specific mark? I want to use it in my house to alert me when I'm sleeping and if the heat is not working.
+- Will this fit my Kenmore oven?
+- Will it work with GFE29HMDAES?
+- can this motor be used in place of we17x32 model dblr333eg6ww. the motor swich is bad in my unit, not sure is i can get a switch to buy by itself
+- Is this compatible with the Meade / Honeywell TE923W ?
+- this will fit a S106 626636 model whirlpool ICE MAKER? Replace wires too or standard with the replacememnt kit?
+- Is there a backlight for the display? If not, what is the function of the center button (yellow star symbol inside of circle)?
+- is there a warming drawer?
+- Whirlpool Duet Washer &amp; Dryer Pedestals
+- do these fit a brown stovetop?
+- The Halogen bulbs are not very energy efficient...have they made new energy efficient bulbs that would work in place of the halogens?
+- how many kilowatts does this use daily
+- what models of LG is this compatible with
+- will this fit my whirlpool mod#DUL200PKQ1
+- does this replace kenmore 46-9010?
+- What is the difference between W10295370 and W10295370A?
+- Could this Infinite switch "part 314900" be used for Whirlpool electric range model number RF395PXX to fix its 8" burner?
+- 4396508
+- i have a jgbs17pea2ad model will this ignator work on this model
+- Would this fit model #10651102110?
+- Does this handle fit a Model GHW 9250MW1
+- Will this work with Kenmore model KSRB25FKSS04? thank you!
+- do the hood has regular duct to the side?
+- My Frigidaire stopped freezing /cooling. There is build-up of frost in the freezer. Will this part rectify the problem? Model FRS6R3JB4
+- Is this orignal sealed ge packing
+- What is theWidth on this unit?
+- Will this filter fit Whirlpool fridge part # 4392857
+- What sizes are these drip pans? Will they fit a Kitchen Aid KEC6260SAL5 stovetop
+- What is the width of the bevel on the mirror? 1/2" or 1"?
+- Can you tell me how much space is in between the pegs? Thank you
+- if i order today when will i receive it in arcadia fl 34266
+- How long is the DRAIN hose? My cabinets are too low to place the item right next to my sink.
+- I have had my dryer for 9 months and recently the drum stopped rotating while on. Any suggestions on how to fix this?
+- Is the shipping box 22x22x3.5? Because I don't think the shelf is that big. Does anyone know the true measurements of the shelf?
+- Is this set in white or the grey? The model number indicates grey, but disciption says in white.
+- Hello. I wanted to know if this would fit my GE Dryer Model DX2300GG7WW.
+- will this fit an estate model # TEDS840JQ2... thank you
+- How many pounds of ready ice will it hold in its basket?
+- I have a Kenmore oven model no # 79046373402. Will this oven rack fit?
+- is this electric or battery powered?
+- Will this fit Jenn-Air cooktop model# 2375 90ERS?
+- Can't figure out how to set the clock? Anyone have instructions? Tried the obviousness, but can't get it to work.
+- Will this fit Duet Model # GW9200L? Thank you,
+- What is the pressure rating on this filter? Our water pressure can be over 100 psi.
+- what is the minimum number ot inches from the ceiling that this unit can be adjusted to
+- Is this the kenmore icemaker for the elite--replacement part 231504
+- Is this an actual 131763245 and not the replacement 131763202? I want to install it on a Frigidaire CRTR9300ASO.
+- Is their an attachment we can buy? We have 10ft ceilings.
+- Does this work on a Maytag? Model #MHWE300VW11
+- what is the shortest lenth from top to bottom, i have 7ft ceiling
+- Does this dishwasher have heated dry?
+- Will this work on an amana?
+- One review says it is not stainless steel. Can someone confirm that it matches their other stainless steel appliances? Thanks
+- Does it fit JennAir model C202?
+- dimensions on this one say *Width 18", length 15", depth 4", on the first page but click on product details it says 23.6 x 22.2 x 3. what's right
+- Can the color of the display screen be changed? It looks dreadful....a flashback to the 1980s
+- Anyone else feel this washer doesn't wash stains out well? Just tried laundry in a GE HE side loader washer and laundry came out WAY cleaner.
+- what type of stainless steel is this???
+- What non ducted recirculation kit should you use this range hood with? I do not not have outside vent
+- WILL THIS PART FIT MY MICROWAVE MMV1153BAW
+- I had a inglis dryer is running but no heat, model number IED4400VQ1, is this the element I need
+- will this fit a GE model # TBX25PAYGRWW
+- can this be used with propane gas?
+- Any information available on how to set up Evolve LTM-5 as a remote switch? (to control remotely another z-wave switch that operates a light)?
+- Will this work on a GE GSH25JSTA SS?
+- Will this fit frigidaire freezer model fffh17fqt?
+- I have a Whirlpool gas stove, Model XFG361LVT (first letter might be a W), does anyone know if these will fit?
+- Is this a down draft stove?
+- what is best way to load clothes to avoid unlevel load ?
+- installation
+- What is the size of the ice-maker?
+- Will this replace the icemaker in a Kenmore Elite 10658966700
+- Anyone else have a problem with the bulb burning out and having to pay $200+ to have a GE technician come out and replace it? (less than 4 yrs. use)
+- How do you get it fixed?
+- Anyone know how many CFM this thing pumps out? In the video it doesn't look like it is moving much air.
+- Do you sell the natural gas version of this dryer?
+- what are the dimensions of this frig?
+- Does the unit vibrate a lot? Will my downstair neighbor hear the machine running? What is the noise level? 6 sones or more?
+- Is this oven only convection or is there an option to cook without convection?
+- my countertop is 37 inches. is the height adjustable to that ?
+- does this replace whirlpool cabrio filter w10049360?
+- The top element was burnt-out. Is this compatible for my Model JBP35SSM3SS ??
+- What does code F6 mean ?
+- Any one had problems using this specific filter brand in a Samsung RAG257AARS fridge?
+- Can Amazon tell me what year this washer was manufactured in? I am only interested in 2013 model.
+- I bought the ice maker for my back patio. But, on page 1 of the inst. book, it says, do not use outside. Has anyone tried it? I leave in Florida. thx
+- 8 are these parts for the large burners for a whirlpool stove got I thought 8 inch and fits the small ones So u sent me the wrong ones
+- Would this work on a rain water collection system? I have a 1" connection from the downspout diverter to the barrel. No pump.
+- Is this a pump without housing? do I need to buy a housing separately?
+- I own the ED5KVEXVB model. Will this cap work?
+- Its a 110 v or 220/240v?
+- why is shipping so expensive?
+- If this is "meant" to be used with an Avanti dryer that's cited on amazon as being 17.3" D, how does the the 13.5" D top shelf support the dryer? (Note: We have the Sonya dryer that's actually 21.2" in depth, I'm wondering if there's any way we'll be...
+- How long is the power cord and which end of the unit does it originate from? (I'm trying to figure out if it will reach my nearest outlet. Thanks.)
+- is this the same as Kennmore 9930
+- Does this come with 2 filters?
+- My range hood is model #AKDY AZ H601C 90. Will these filters fit? Thanks!
+- Is this a once a year filter
+- Could this be used outside in a enclosed patio and work accurately throughout the seasons? Thank you for your reply and have a good day!
+- what can you do to prevent the front panel lettering from disappearing?
+- is this for the model RS22HDHPNSR?, broken part dimension is 16" width but description size is wrong? Samsung.com is no help.
+- Hi, I am interested in buying this kit, but I need to know the exact weight of the whole kit please.
+- Is this compatible with admiral electric dryer # admiral model # aed4675yq
+- I'm using this device for humidity readings for car racing. Will it work?
+- What batteries are required?
+- does this have a "mirrored" front. The 1st 2 pics look flat stainless and the next 2 pics look mirrored. Also does it come with any kind of warranty
+- I bought this product because it was cheaper than the Samsung filter. It does fit , but the problem is that my water has a strong chlorine taste to it
+- Can you stack this with the matching dryer? It seems like I would need a step ladder to work the dryer.... hmm.
+- Does this come with everything in the picture? I need the full kit as pictured because I am adding, not replacing the icemaker.
+- Is this appliance quiet enough to keep in the house as a spare?
+- Does this work for GE model PFSS6PKXSS refridgerator?
+- I'm a programmer. does this device appear as a usb drive under windows 7 or 8? i'd like to access the data directly.
+- How easy is it to clean?
+- warranty?
+- My door lock light comes on but door is not tight and washer won't start. Do I need a new door lock latch assembly?
+- Will this work with a Kenmore Refrigerator #106.50522100 ?
+- Does this come with a relief valve or do I have to buy one separate?
+- Will this work without the add-on of a Clever Egg Cracker?
+- Will this fit a Kenmore Coldspot 106.74269400 refrigerator? If so, are the terminals marked to indicate where the hot wire, ground, etc need to go?
+- Can the door open to the left
+- in my over range cabinet the air way is around, do I need buy this"Broan 411 3-1/4" x 10" to 6" Round Duct Transition, NA"when I buy this range hood same time? So I can connect this hood with the vent out air way? Thanks.
+- Any difference with water pressure compared to the original filter?
+- Do you need to vent this to the outside? Thank you.
+- Is an installation kit required for this model?
+- My wash machine does not have a hot setting, is there any way to adjust this so that the ratio of hot water is more than cold?
+- will this work on whirlpool mod ler662opt1
+- will this work for whirlpool dryer model # wed9600ta0
+- Are these replacements going to replace Kenmoreclear 46-9690?
+- Do you have an oven rack that will fit a samsung oven?
+- What is the wattage or amp draw for this unit?
+- Does it filter the chlorine?
+- What all is included in the hood for $75.33?
+- Does this air filter fit the kenmore elite grab-n-go model 795.7237?
+- Whats the coldest you have gotten the tower? I'm having a problem getting it past about 44. I've had it plugged in for 2 days now, does it take some time before it gets cold? Also i've heard some people talking about putting a fan inside, where would i...
+- Does this work on model ED5VHEXT001
+- Will this valve work a Kenmore model #795.7840
+- Can someone please provide me with the exact dimentions, height, width?
+- Does this fit model RS277ACRS
+- I'm looking for a 3148954 switch will this one work?
+- how much clearance below unit
+- are the W10295370A and W20395370 filters the same?
+- Is the belt 27 or 29 inches long?
+- Does this TRULY work on an Induction cooktop?
+- Is this a replacement for a Samsung DA97-06318A ( IMC701)
+- Will it burn LP?
+- Does anyone know if this item is now being shipped with the improved knobs that do not melt?
+- how do you hook up the baking oven
+- where do you put the filters on the Honeywell warm mist humidifier? I can't figure that out.
+- Can someone tell me the height of hood without counting the chimney ? I need to know it fit the pre-opening on the wall from my old hood.
+- will this work for a Whirlpool WGD4800BQ0?
+- How long does this last? Has anyone been using it for like an year or so?
+- I am looking for a similar item in clear color, but can't locate one on amazon. Could someone point me in the right direction?
+- does it have a backlight?
+- The title says "round tip" but in description says "sharp tip" which is it?
+- What is the maximum plate size?
+- Can we schedule the dry and wash cycle together? so we can start the wash and dryer together. Now I need to restart the dryer manually after wash
+- Would this work to cover rust spots on the inside of my Sub-Zero fridge?
+- Will I need a inverter/converter to use with my 50 series Medtronic bipap?
+- will these fit a GE Hotpoint Electric stovetop?
+- Once the door is opened and the chime sounds....does the chime automatically stop when the door is closed or do you have to manually shut it off ?"
+- How do you measure drip pans? outside lip to lip or inside?
+- What are the measurements? I have a Maytag 8114P732-60
+- Does this fit a kenmore elite side by side w10192868a
+- How easy is it to move around? Is it very heavy?
+- Are the control knobs metal or plastic and do they get hot from being close to the burners?
+- Do you have extensions for a 10 ft ceiling
+- Does this cooktop require a power source?
+- Are the shelves inside removable or adjustable, in case you want to store taller bottles instead of cans?
+- Are they made in the USA?
+- Does this knob fit a GE Model GTDP180EDOWW Dryer?
+- does the booster have to be in a certain pos to run
+- how deep is this ? , i need 2.5 inch or more height for my side outlet drain
+- How many maximum amps does this draw when the compressor is on.
+- Would these work for whirlpool model ss25hfxls00
+- WILL IT FIT ON MODEL ET22PK
+- why is this item so expensive. I have seen other site that you can get 3 for the same price. I have always trusted Amazon to have the best price, no m
+- Electric bill: Did you notice a huge electric bill jump when using your portable dryer?
+- What was the diameter of the straws used for those that bought this product to make mason jar drinking cups?
+- What happens if the faucet is left running after the wash is complete? Do you need to be near the unit to promptly shut off the water after a wash?
+- will it fit kitchenaide dishwasher?
+- Will this kit fit my Kenmore Elite fridge and freezer pair?
+- 59" with door open 90 degrees? When its depth itself is 28.25"? The doors are split the width. Most others this size are 40-45. How is this 59?
+- Has anyone made bone broth via induction? Must simmer slowly &amp; consistently for 24-48 hrs in an 8-12 qt pot. (My crock pot won't get hot enough.)
+- This is listed in "downdraft gas cooktops", is that incorrect?
+- How much do the letters cost and do you sell them?
+- What are the inside dimensions? I want to display eggs in cartons at the farmer's market. Can it be used for that?
+- Do the 'lids' lift up and out of the way or are they fixed in place? Thanks.
+- I just got the filter in and it doesn't look like the picture (no fitting to unscrew as far as i can tell. Can this version still use fnpt fittings?
+- Will this work with a Whirlpool Cabrio m/n WTW6300SW1?
+- Is this a drip pan liner that sits on top of original drip pan or a replacement for the drip pan?
+- can i use ordinary detergent for model; WF365BTBGWR?
+- Is this Badger 5 compatible with the Badger 5 model 5-81? Same size and fittings?
+- What is the noise level of this unit? Is it quiet?
+- Do you need to hire a professional for installation? And what the cost might be?
+- Has any one had problems with the "easy mount" on a SS sink? The cushion mount slipped out of the mount ring on the second day.Is vibration a problem?
+- Does it fit Frigidaire FFHT1817LW3?
+- The desc says 32 3/10" Deep. Is this for both of them? How much space do I need for plumbing behind them?
+- will this fit frigidaire model FRS26R4AB? the part # matched my manual
+- How do you remove the wide sticky tape that held the adverting on the inside bottom of the bin?
+- Are the drip pans and trim rings two separate pieces?
+- What is the exact measurement of the hose, from attachment to attachment? Thank you!
+- What is the measurement of the middle basket, without the sides?? What are the measurements of the side baskets? thanks
+- can it be used on celsius?
+- Will this unicouple assembly fit a Whirlpool built-in dishwasher, making it work like a "portable dishwasher"?
+- I lost my owner's manual. How do I change this filter ? Where is it located ? thanks!
+- Must you use halogen bulbs?
+- Does this dran hose work with Whirlpool model LSR8444LQ0?
+- Will this work with GHW9400PL0 ?
+- Can you run this unit without a water filter
+- What color are these guards?
+- Does it come with the handel to remove it?
+- Quality
+- What is the actual dimensions, width and depth, of the cooktop surface? My cutout is 21 5/8 by 30 1/8. will this cutout work?
+- Will this work if I am replacing an Ultra Clarity 9000 194412 filter. I have a Bosch French door frig 6 mo old. Thanks
+- Does this double faucet unit have the ability to turn off one of the co2 lines--if I only wanted one keg at a time?
+- Can this range hood be vented? Not sure if the stated ventless option is the only option.
+- I have a coloric RWS214 Oven will this work?
+- What are the inside dimensions? I want to display eggs in cartons at the farmer's market. Can it be used for that?
+- Can I purchase an extended warranty for this refrigerator? I'd be interested in 5 year coverage.
+- SIZE ?
+- Replacement Quick Sink Adapter: My quick sink adapter was misplaced, does anyone know where I can get a new one?
+- Do you think buying 2 year protection plan for this is necessary or not? If not buying it, is the product automatically cover 1 year ?
+- Can I take the cap off and use manually in disposal? or is the cap tamper resistant? Another reviewer mentioned this &amp; I just want to make sure I can.
+- It says the filter will not be compatible for GE Refrigerators manufactured after Jan 2014? Is this correct?
+- The bottom element burnt-out. Is this compatible for my Model of stove #JBP30WOB4WW.
+- My parents are redoing their kitchen. Does this fit their needs if they want to vent it to the outside of the house?
+- When replacing this unit, how do you disconnect the 1/4" pipe from both ends of this units quick connect?
+- Do the ice cubes have holes in them?
+- Will this work with part #646642? Kitchenaide kssc42fjs00?
+- We have a GSL25JFPABS fridge and the auger broke for the ice maker. What ice bucket and auger assembly should I order?
+- Will this fit my lg washer #wm2250c front load no # on my manuel
+- I am looking for grates for my Viking stove and this is the model I need, except they look dull and mine are shiny. Are there 2 different finishes?
+- Will this keep pour-over coffee carafe contents warmed atop a gas range flame?
+- will this filter work on Kitchenaid model # KFCS22EVMSO ?
+- Will these fit my whirlpool model rf365pxy electric range?
+- Are the bearings and seal, all OEM?
+- is this the replacement wheel for an HC3000 model projector?
+- Are the inside dimensions enough to store a store bought pizza?
+- Can I use this model as a replacement for 1/3 hp model GC100XE2?
+- If you make a temperature change directly on the panel, does it report this change back to the ZWave network?
+- Could this be used to hold only cans of soda or is the wine rack a permanent feature?
+- whats the minimum height of this hood i only can fit a 22-23 inch max hood due to my low ceiling the graphs shows that but you know foreign co ?
+- Is this finished on the backside or open? I need a vertical ducted hood to go over an Island that would be mounted to framed ducting. Thanks!
+- I don't see any info on cost of shipping. Does HCcost have free shipping?
+- Does this work for Bemis humidifiers? When I search for a Bemis 1041, this is what comes up.
+- Does it fit a Model 88370?
+- Does this unit come with the disposal elbow and the dishwasher connector or do I have to buy those as extras?
+- How is the noises level of this range hood?
+- Does anyone know where I can get this can opener in RED?
+- will the Kcm22WF water filter fit the KCM1402 coffee maker
+- What are the external width and depth of the chimney for this model?
+- I see a few complaining about leaking if you over-fill. Does it leak from the top cover or from somewhere else? Can't it be taken apart and sealed?
+- So the power cord from an older corded model can be attached to this model?
+- I couldn't find the answer, I am looking to purchase the washer and electric dryer, is the pedestal included in each
+- i want to replace same one , can u please explaine me how.
+- does this unit have the folding side extensions?
+- The bag ripped in two places, where can I purchase a new bag?
+- I have a really old one with the three treads on the bottom ... where can I get replacements for the treads?
+- what effect does using the nuwave cookware have on smooth top stoves?
+- does this include the ice bin as well?
+- Does it have to be a 5/8 connection hose? It seems like the 3/4 size would be better, provide more gas, and it is what my old stove has.
+- I need freezer to just keep ice bags in that?
+- What is (front) height when fully loaded with 12 cans? Shelf to top of can?
+- Do I get a pair for the price of 19.99
+- If there are any customers who bought this for a GE stove and it didn't fit-which part was too big/small or other problem?
+- Can this be trimmed to size? I have an area that is 30" X 21 1/2" behind my range.
+- What is the decibel level of the noisy fan? You can measure it if you have an iPhone. There is a free app that has a decibel meter.
+- Does it work with Kenmore humidifier?
+- will this fit my whirlpool dryer model ler4634eq0?
+- How come it is compatible with all brands?
+- Will this work with a Kenmore model# 11068322700 ?
+- Has anyone bought this to work with a GWF compatible fridge?
+- Will this fit Roper model RT18BKXKQ03
+- Does anyone know where I can get this can opener in RED?
+- The 6" discharge hole in my wall is fairly low. What is the minimum distance from the bottom of the unit to the bottom of the discharge hole?
+- How tall is the TV? The specs list it at 8.8 inches but that doesn't sound right.
+- What type of pans do I need ?
+- Does this grille fit the whirlpool model MH3184XPS 3?
+- Does it have to vent outside?
+- will this keep the ice cold all day long or do you have to watch and empty?
+- Will this fit Maytag/Magic Chef model # 9112XUB
+- How much hot water does it use? (ie. is a 6 gallon hot water tank sufficient?)
+- will it fit RF323TEDBSR/AA ?
+- What is the warranty?
+- What is the minimum height of the hood? With an 8' ceiling, my husband and I are both on the taller side -- concerned it will be too low.
+- I have a Whirlpool Refrigerator - Manual indicated replacement filter of UKF8001AXX-200 - Is this filter compatible?
+- Can these be used on GE Model #JGB820SEP2SS?
+- is it dishwasher safe?
+- Does this do a good job of felting hand knit woolen items, like slippers or mittens?
+- what type of cover is over the light bulb ?
+- Can someone tell me the Amperage and RPM of this disposal? I live in a manufactured home; amps are a concern. Thank you!
+- specifications
+- I am putting this in an island. Do I need a downdraft or range hood?
+- What brand and how much detergent should be measured for one use per load ? Low sudsing detergent ? Powder ?
+- Does it produce the clear ice as advertised?
+- Is this the latest model for both the washer and dryer?
+- What do you know about the Kenmore 3.4 cu. ft. top load washer 20022?
+- Does this come with the filter or do I have to buy filter separtely
+- Are these magnets adhesive backed?
+- Is it compatible to Badger 500
+- Is the vent on the dryer (DLEX8000W) centered in the lower back of the dryer, or is the vent to one side or the other?
+- How big is this mat? So far, you have not answered anyone's question regarding this.
+- What is the difference between the Avalon Bay AB-Ice26B, the 26R and the 26S?
+- what is the baffle filter?
+- Does this fit Whirlpool Duet Sport WED8300sw2?
+- Is the 30" range hood OK for a 30" gas range, or is it recommended that the hood be wider than the range? (i.e. a 36" hood?)
+- will this fit a kitchen aid model KSB560080
+- Will this work as a substitute for a Frigidaire 242077701 Blower Motor?&#xFEFF;
+- A reviewer mentioned that there are control buttons both sides ( front and back?) Is this true ?
+- which side goes up?
+- Just want to confirm this unit comes with all the tubing needed so all I need to do is get co2 gas and it is ready to go.
+- Are there filters that i need to remove and clean on my whirlpool dishwasher in white with a model number WDT720PADW, item number 623209?
+- How many pieces of clothes can you put in the washer? Are there any videos of this washer?
+- Will this work for a Kenmore Elite Dryer Model number 110.8787?
+- Is this easier to pull out than the plastic stopper?
+- Does this range include the necessary 220 power chord? If not will you give me the name or number of the connector.
+- Suddenly the light and the fan does not turn on, I have checked power in the circuit is Ok. Any suggestion?
+- Is this 2400W large burner?
+- I have 3 EssickAir 696 units. The replacement wick is supposed to be part # 1041. Would this wick work in my unit?
+- i ordered this filter ( blue )that is shown in the website but i received a looks like replica purple filter. Is this generic brand?
+- Will these work on a Kenmore range?
+- do I need to buy anything,to hook it up to an island ceiling
+- Does it have backlight?
+- What about using it with the Best Air "Water &amp; Scaling" treatment to address both the scaling and bacteria issues?
+- Does this unit come with the slide brackets that attach to the cabinet?
+- Would this fit a maytag mde9700ayw?
+- Does this work on model 106.58902801 kenmore
+- does it work with the GFG461LVS1?
+- Is this compatible with wgd5600xw
+- What size water line does this filter accommodate? Thank you.
+- will this filter fit whirlpool Mod. GD5RHAXNB01 (quarter turn cap)
+- Where is the koldfront dishwasher made?
+- Will this fit on an Amana Washing Machine Model NFW7300WW00?
+- How hard is the glass to clean? Do you have to clean often since it's see through?
+- It this the ignitor for Kitchenaid KGDO-245EE double wall oven
+- will this fit GLD5900N00BB?
+- how many light bulbs does it use
+- What is the cu. ft. capacity of just the freezer? Also just the refrigerator? One review sounds like compartments might do either/or
+- will this fit Roper washer model RAB5232EW1?
+- Does this fit a Model GU1200XTKT0 ?
+- what is the warranty on this product?
+- Does any one know if this product can be safey used on leather seats of a vehicle?
+- Frigidaire washing machine
+- Could I buy two and link them using one as a pre heater to get even hotter water ??
+- Can this be vented out through the wall behind the chimney?
+- It says 18.5 x 17 x 33 inches. Which is the width and which the depth?
+- Do you need a faucet adapter with this or is it included? Many thanks.
+- I believe loose coins have gotten down under the agitator. Is it possible to get to them myself or will I have to call a repair every time it happens?
+- Is it compatible with Whirlpool Dryer Model# WED94HEAW0? Might be helpful list compatibility.
+- Is this one work with Maytag MER5751BAW?
+- Is it noisy? The one I bought by another brand has a constantly working fan that is uncomfortably loud. I wonder if it is an issue in all.)
+- Does this product come with the 2 16" stainless steel chimney ducts as seen in the picture??
+- my knobs do not work with a D shaped shaft. what are these?
+- does it come with the proper screws?
+- Is this Part 4396710 or 4396841
+- Confirm for me if this unit will fit Whirlpool model # ET22DKK BW00?
+- I have a older Kenmore dryer and need a heater thermostat part# 341195. Is the one available or an alternate that will perform the same job?
+- Do the electric cord and water pipes retract when not in use?
+- Are these filters NSF rated/ approved?
+- Is there a recommended Griddle pan accessory that works best with this model?
+- Are the castors removable? I am working with a 71.5" opening, this fridgre measures 75" with the castors attached.
+- is this a replacement part for AP5318915?
+- Are the holes small enough to keep corn from falling through?
+- will this replace wr30x10012?
+- looking of a griddle for my gas range center oval burner . will this work?
+- Can I connect a Hitachi refrigerator to this unit? The compressor is 89W/Defrost element 139W.
+- Where does the downdraft go? Mine would be at one end of the counter with a built-in oven on the other side, family room behind and kitchen in front
+- How long have you had your hoses and have you experienced any leaks or leaking fittings?
+- Did this refrigerator come with the gray plastic kick plate that attaches to the front bottom of the refrigerator? Mine did not.
+- Does this kit come with instructions?
+- do they come with the strainers in the washers
+- Does the extended warranty cover the set or do you have to buy one for both the washer &amp; dryer? Did you buy the extended warranty &amp; feel it's worth $
+- What is the exact size of this product? there are two sizes from Product Information section 33 x 26 x 16 inches, and Product Description 30"W x 22"D?
+- locking symbol does not line up but seems to fit correctly other than that and water flow is fine. Will this affect the quality of the filtering?
+- Does this fit the Kenmore that uses NLC240V. When I search under that number this one comes up. But I don't see that size in the list.
+- Can this work in Malaysia
+- Will it fit a Kenmore dryer Model 110.77032601 ?
+- Can you connect two together? The distance from the dryer to the vent is longer than 8 ft
+- how do you replace the pump
+- can not get water out of the front
+- Does it fit Whirlpool WRX735SDBM00?
+- whirlpool washers
+- What are the dimensions of this item? Product info and product features above have conflicting infor.
+- Does any one Know If this Is Compatable With a Roper Washer Model # RTW4641BQO?
+- how does this agitate? I don't hear it agitating the clothes?
+- Which oven rack will fit an old (good) Hot Point oven Model # RB747P?
+- will this kit work on Whirlpool Model wtw6400sw2?
+- Will these work if my stove is slightly lower than my countertop?
+- Price is pretty cheap. Is it strong?
+- With the rpm vibration, could this be placed on the 2nd floor?
+- What is the energy usage?
+- my dryers current lint trap number reads we18m19. will this lint trap fit?
+- will this work on a kenmore elite he3 11045862400? also - i cannot find the bearing replacement tool online. can you give me a name to search for it
+- I need this to be 23" but description shows 19"
+- will this fit kenmore model 13863k602
+- I have a GE PSC23SGRB. Will this part fit my model?
+- What are the sones for this product? How much of a noise does it create in operation?
+- do I need this part or the 675813
+- Will this work on Hotpoint RGB745BEHFWH?
+- will it fit Frigidaire fef366awa
+- Will this repair kit work on Kenmore washer 110 92292100
+- I have a GEXL44 model # JGBS21SEV3AD will this igniter work for this model?
+- how do you change the lights in the fan
+- clothes arent wet all the time. suggestions to adjust water level
+- If I order from homebrewstuff will I receive a KEGCO brand kit or a cheaper knockoff version?
+- I'm trying to find a 12g extension cord for my washing machine. Any ideas?
+- What are the fiting sizes on this?
+- does this knob fit a ge model DVLR223EG7WW dryer
+- What are the dimensions please, seemed to have problems finding one which fits our drain..
+- cast iron pan use
+- What is the actual length? Your 'Product Dimensions 8.7 x 7.1 x 0.3 inches', does not state anywhere near the length shown in the picture.
+- I have a Magic Chef CTF2126ARU fridge is this correct part
+- IT says it a 36 inch but dimensions say 32 whats up
+- Do these replace the hydro sticks
+- Will this also fit the washer GEW9200LW1 or is there a different part number for that?
+- can these be stacked to save floor space?
+- What is the tempture range of this unit ? I live in a hot dry desert climate and my Barn/Bar can really heat up in the summer.
+- js this easy to use
+- Is this a convertible hood that I can vent outside with?
+- Does "1 Pack" have 2 filters. According to this website it is $29.45 for one pack and almost $120 for a 2 pack. doesn't make sense.
+- Is this the replacement igniter fir kitchen aid oven KGST307HBL9?
+- Is this a replacement for part udqr002c3rl?
+- have there been issues with cracked tub?
+- Can you turn the fan off yourself or does it turn off by itself?
+- One drip pan or four?
+- Is this Energy Star qualified?
+- What is the length &amp; width of this roll?
+- does this work for a GE gas oven. The oven does not work and i am looking for an electronic ignitor so the oven will work. model # JGBS17BEL1BB
+- will the frame fit into an opening that is 81 1/4 x 39 3/4?
+- Question:... is the door reversible?? That's literally the only thing stopping me from purchasing this right now. Thanks in advance!
+- Do you have to turn the water off at the sink as soon as the dishwasher is finished?
+- I see two different sets of outside dimensions in the product description. Can you verify which set of outside measurements is correct?
+- Can alerts be sent to android devices? do alerts show real-time readings?
+- it will fit that model GE-XL44 ?Self Cleaning Range Oven Round Style Oven or Broiler Igniter part model jgbp35wea1ww
+- I purchased a EcoAqua waterfilter for our GE Profile refrigerator; however, it was suppose to fit and replace the MWF filter but it doesn't. What now?
+- WILL THIS WORK ON MY INSINKERATOR #777SS-1
+- Will a 15 1/4 by 10 1/4 inch cookie sheet fit on all three levels, since I have to buy new ones to use this?
+- Does this sink stopper fit Waste King Legend 2600
+- can i use this for knowing the %of humidity of my corn, corn mixed food? i need to know what % of humidity it have...if i wann stored that for a week?
+- Will this fit my Maytag model # MDBTT59AWB? Maytag part # 99002580
+- i want to know if the above mentioned part can work in the microwave
+- I would like to attach this to the side of my tub in the bathroom. The tub side width is 4 inches....how could I attach this?
+- Will this element work on a Jenn-Air model #JDE2000W?
+- how many come with this order? 2 in the package ? let me know soon you can please.thanks
+- The 3/4 in fip and mip thread fittings supplied with flex hose will fit standard 3/4 black pipe thread?
+- will this filter accept a copper water line
+- I have a LGR4634JQ2 model. is this correct filter?
+- Is it Energy Star rated?
+- my Wirlpool modle is GHW9150PW0. will this pump is correct part?
+- Does this oven range come with LP conversion kit?
+- WHERE CAN I PURCHASE REPLACEMENT PARTS
+- What year was this product manufactured?
+- I see this can be cut. Do you think I could theoretically remove one half of top edge and what's left can fill gap btwn end of counter and fridge?
+- Is this part compatible with Amana NGD4600YQ or whirlpool W10514176A
+- What are the dimensions of this item? Height, width, depth, and weight?
+- I am trying to replace my Kenmore Coldspot drawer part # 2174108-D, can you tell me is this drawer will work?
+- Can anyone let me know how much weight you would estimate they can hold? Also, how hard is it really to pull them off the fridge? Thank you.
+- HOW MUCH CUBIC FEET IS IN EACH OVEN??
+- Is it for model#GLGQ942CS0?
+- This ad says the 44815's probe can "extend on an 18-inch cable," how can I read humidity about 36" away?
+- What is the measurements?
+- the fitted brita container in our refregirator model nbr. 83872 broke. Where can we replace it
+- How many prongs does the power cord have? Is there a way I could see the cord?
+- Apartment size range: Will this work on 110 Volt?
+- I have Kenmore Model Series 64611 Model # 76461110 Stock # 64611 Serial #F521 05115 Heating element has no # on it presently. Will this fit?
+- Will this fit Jenn-Air cooktop model# 2375 90ERS? It is an old cooktop with downdraft and knobs in center front.
+- Would this model be ideal for a gun safe?
+- Does this part fit model DLGX2502W
+- Should I use a 36" over a 30" range if there is room to mount it?
+- What is the texture of the black burner covers?
+- what are the active ingredients in this product?
+- Does anyone know the exaxct dimensions of thi
+- Is this part fits Wirpool dryer GGW9250PW1
+- do i need more than 1-100cc for 1qt vac packed quart jar.
+- What is the name of the manufacturer? (waterfall does not show up as nsf42 or nsf53 certified brand)
+- does it fit jennair?
+- I live in Atlanta. Who do you recommend to install? We need it to vent out and will have to punch through brick exterior walls.
+- will this work with whirlpool model # DU920PWKQ0
+- Will this rack fit GE Toaster Oven 169220 53?
+- Does this ship with a quantity of two hoses for the current listed price?
+- can you use homemade liquid laundry soap in these washers?
+- What is the cycle time? Thanks.
+- Is there installation along with shipping? or it just ships to you and everything else is done on your own?
+- Can it replace a 9890 Kenmore Water filter?
+- Dimensions given are 29"x24.5"x27". Is this 29"H x 24.5"D x 27"W?
+- Does it come sealed in plastic from factory like the one from purchased from Samsung does?
+- What kind of warranty accompanies does the oven come with?
+- does this make clear ice? are they square or cresent shaped?
+- I have a FRS26R2AW5, does this filter work for it? Thank you for your reply!
+- I want to attach these to the bottom of toy cars so they will stick to magnetic paint. What kind of adhesive would help stick these to the car? Thanks
+- Can Wall Lenk do upper and lowercase on the brand or only upper?
+- Does this unit have a lock on the door? An indicator light for power?
+- what is the size of the freezer?
+- Do these cooktops require 220 outlet?
+- how long during the washer and dryer?
+- will it fit GE model number JGBP34WEW1WH?
+- will this fit a whirpool ultimate care II?
+- Can you wash a comforter in it?
+- This device doesn't work as a remote, wireless temp sensor, right? It just lets you change the thermostat setting remotely?
+- good night could help me i want my fridge leads the fan wr60x10307 like to know if i can replace this model for hope you can help me
+- is this a frostless freezer
+- Is it a downdraft?
+- Does this machine require alot of repair?
+- Do you need to add water for it to rinse?
+- do they come in different sizes
+- is the back side finished and self contained?
+- what is the total area this will cover. There are 10 pannel of each 8ft*4FT.
+- does it fit model 795.7404
+- Which lint filter would be the one for a Maytag dryer model # SDE3606AVW?
+- I have a GE Spectra electric stove......will this fit my appliance? If so, I'm buying TWO!!!
+- can I use this unit for a small apt.
+- Does this fit the Samsung RS2577SL/XAA?
+- can it be converted to run on propane and if so what all is required to do so?
+- Is this a stainless look or chrome?
+- Does this unit have a spin cycle if using as a washer? Or do you have to buy a separate spin dryer to remove the water from your clothes?
+- Has anyone used this to filter out the sulfur in their water? We have well water with a strong sulfur smell and taste
+- Is it frostfree?
+- what does date on end of carton stand for?
+- Do I need to shut off ice machine to empty ice basket? Instructions do not say
+- Are the ovens electric or gas?
+- Hello-Purchasing the DrainPump DC96-01414A FOR WF337AAR SAMSUNG FRONT LOAD WASHER, I am curious if this washer has a filter for the drain pump?
+- What is the difference between these and the coiled looking ones? And do these fit as well as or better than the Whirlpool WHKF-GD05? Thank you!
+- how long do I need to soak the heating element for before scrubbing with brush
+- does it plug in to a regular 110 outlet?
+- How dry are the clothes after washing? One of the challenges I have with sink washing is it takes forever to air dry.
+- Is this Danby model suitable for outdoor use?
+- How thick and wide is the outside border?
+- What color are the sides? Grey, Black, or stainless steel?
+- Does this vent fan have a plug or does it have to be hard wired?
+- We need a stainless steel door handle for a KHMS155LSS-0 microwave; is this the correct part?
+- Will this pump fit kenmore elite model 110.42922 200?
+- I have a Roper drop in unit that is from around 1970 -- will these fit?
+- Can I use cast iron fry pan 11 inches for my nesco induction cooktop 1500 watts
+- Has Amazon fixed the "Bait and Switch" with customers? The customer comments are rife with ordering "B" filters, but getting inferior "A" models.
+- My Cafe series appliances have a grey logo, the picture shows a red logo. What color logo will I receive?
+- do you supply the liner that goes with it?
+- Will this fit Roper model RTW4440XQ0?
+- I have Whirlpool WED9500TW3 dryer. OEM part number seems to be right, but size seems different. Is this the right fuse for my dryer?
+- my firebird range hood has not yet arrived, but my electrician is here today &amp; needs to know where to install the plug in for this unit. Does anyone
+- Is there a feature or tweak or loophole that I can use on this machine to add more water to it if the deep fill option does not cover clothing?
+- Does it come with the LP conversion kit or What do I need to buy/do to make it to work with 5LB propane tank
+- how do you hook these portable dishwasher up and how do they drain?
+- We are installing the 8194001 door balance kit on our kitchenaid dishwasher &amp; it is screeching. where can we access the original guide mentioned?
+- how many amps does it handle?
+- does this work on DLGY1202W
+- Can i use this part for amana nfw7300ww00 ?
+- How is this mounted? I want to use it on my motorcycle and mount it to the inside of the fairing. Can I use velcroe or two-sided tape?
+- What is the drying / cure time for this paint?
+- I have my Universal license will a photo copy of that be ok all the forms i've stored in one of many of boxes this is what I always use locally
+- Can you confirm that this is the left-side hinge? So the door pull is on the right side, as in the picture?
+- would you add one more oven knob, to make it five? and how much more, thanks.
+- What is the difference in the XremeAir PX 02 W30 and the PX03
+- Who make this bearing?High Quality Front Load Kenmore Washer Tub Bearing and Seal Kit Fits Tub W10253864
+- Will this fit model 8205195?
+- I have a Broan model 688-H/663-H. Will this fit. How long is the blower wheel shaft?
+- What gauge is the stainless steel?
+- do the rollers actualy touch each other? I want to uses something like this to roll thin film from a larger roll and the rollers would have to touch.
+- Is there an expiration date on these?
+- what are the dimensions of this unit?
+- WRT371SZ whirlpool 20.1 cubic feet refridgerator, has top freezer without icemaker. Will this fit? I dont need a replacement, wish to add an icemaker
+- Will this part work on a Whirlpool Duet Mod# GEW9250PW0 Ser#MR5054144?
+- What is the filter capacity in gallons?
+- why is there so many incrustation after boiling
+- Is there a way to fasten the back of the hood to the wall. Is there a way to fasten the sides of the hood to cabinets sides"
+- Is there a ,agnet to make it cling to the stove top
+- 1)Do both ovens have rollers on the racks 2)Do both ovens broil 3)No keep warm, but you can get the same effect b/c of the manual knob?
+- Are both pieces part of the kit, the two white plastic sleeves shown- one for the wall and one for the hose?
+- Will this fit model WBVH5300KOWW? Do I need any other parts to install it?
+- Is this Genuine GE factory &amp; got GE Box? or its Supco made?
+- The last time I bought Holmes instead of Bionaire, the filter didn't have the blue knob that is pictured. Does this one have it?
+- Our model number is ed5fhghkq02 Will this filter fit?
+- what kind of guarentees are there i.e. parts and labor for ------years
+- does this unit come with a keg coupler?
+- What is this made of? Plastic or Metal?
+- Does this work for a KitchenAid KSRX25FT ?
+- Are they the push in and turn type knobs for the stove top?
+- i have a kenmoe electric range part number is the same will it fit
+- Is this going to fit a GE Model # JBP21WC1WW?? This keeps popping up when I enter my oven model #
+- can I use external co2 with this? Not use the tanks they give?
+- Is it comparable to nugget ice (chewable ice) machine that you see in hospitals?
+- Will this fit the maytag quiet series 100 dishwasher?
+- How can I tell if the wiring for my existing thermostat is compatible with this system?
+- Is this a direct replacement for a Kenmore Elite 106.45423801?
+- I notice that there is no information on the drain hose. Is it connected to the sink drain below the sink, or does it just lay in the sink to drain?
+- does this stove have the griddle attachment? i need more details please.
+- What is the clearance distance between bottom of cupboard and top of cooking surface for an electric range stove?
+- Does this igniter replace the igniter in model number KGST307HBS6? Also do u have other parts for this oven?
+- Hi! I was wondering if this part fits a Whirlpool model ED5GHEXNO?
+- I have a whirlpool dryer model LAE5900wo will your three items fuse, thermostat and element work with this model?
+- How often do you have to replace the water filter? What model filter is it? Can you operate it without the filter?
+- Curious if everyone is using distilled water?
+- will this work for model fghd2472pfoa
+- do the roller fit maytag PYE2200AYW...Thanks
+- hello one question... i need to know if this ice maker works in this frigidaire model PHS39EHSS5
+- What is the minimum length you can make this chimney? I need it to be no longer than 26"
+- How is this better than just using a regular plunger?
+- why does it look copper color in the pictures if it is silver
+- How much height does the lip in the back add?
+- CO2: Does this come full?
+- do i have to mix the gradian first then put in the machine, or just direct put the gredian?
+- What wattage is timer motor?
+- Will this fit a ED5HHGXTS00 Whirlpool side by side?
+- Does this filter work in a Samsung model rf268abwp refrigerator?
+- are their connection replacement (male &amp; female) for culligan rvf-10, water hose connections?
+- we have an old wall oven roper brand model no. b4007b1 will this part work for the ignitor on the bottom not the top broiler one? thanks
+- Can you use most common detergents or Tide pellets? Any recommended products?
+- What is the best way to clean out this dryer vent ?
+- How does the delay shutdown function work?
+- Will this work with a Kenmore Refrigerator #106.50522100 ?
+- help i need a manual plugged in added water 9 hours later still no ice
+- The answers regarding the electrical connection are confusing - how does this connect. I do not want a plug!
+- Does this unit release any ozone gas that could be dangerous to breathe?
+- What can be done if one of the bakeing elements end break off in the stove
+- I have an Amana cooktop stove and the part number is I need is the same as this- anyone have an idea if this will work?
+- What do you order/ set up to get the draining option (into the washer drain)? Sounds like a great idea.
+- Does it come with a LP conversion kit?
+- what are the real dimensions, they obviously are not what is stated here. Where can I get the acutal dimensions
+- are these hoses lead free?
+- Could you please tell me if these will fit an older GE model RB536DP1WW - thanks
+- This item has a smaller ice maker. Does it make ice quickly? Is the ice always empty after use?
+- will this part work on my ge pss26ngpa
+- Can this thermometer be calibrated?
+- I bought for FGF36CC. Buttons on the this board are not in same order w/ original. Oven &amp; broil still dont work. Bought wrong part#?
+- does it come with the body as shown in the picture?
+- What is the vertical length of the door, it's height from the floor and the hinges additional height?
+- can this be used without any modifications or cuts on a 9' ceiling?
+- do you have thermal fuses for ge microwave/part 1103ksd-150lc
+- what is the size of the washing drum on the inside??
+- Will this screen work with Dryer Model LDE7334ACE?
+- WILL THESE BAGS FIT A KENMORE TRASH COMPACTOR?
+- Do you have to "prepare" the center top iron grill before cooking on it? The first use, the food stuck to it!
+- what is the approx compressed length? thx!
+- Description says 1/4 OD, does this mean it will receive a 1/4 OD tubing?
+- Does the freezer drawer automatically come out when you open it?
+- Does it fit Kitchen Aid model # KFCS22EBMS8
+- Will chopsticks stay in the basket?
+- Hi, what is the depth of this hood, measured from the fan base to the chimney extension fully extended? I'd like this to be at least 41.7". Thanks!
+- What is the outlet requirement?
+- Will this fit a Maytag 747G? This comes up as a match when I do a search for it.
+- I am replacing a 1HP Kitchenaid that is 14 years old. Should I be concerned about downgrading the HP?
+- Does this come with a 10yr major component warranty, do you recommend an extended warranty add-on?
+- Does this include the door chute? All other part schematics for Whirlpool 8201756 show a picture of the chute, also.
+- will this fit to kenmore 90 series model # 20922990?
+- What is the length from top to bottom of just the hood (not including the stem)?
+- maybe I am missing it but it does not say enything about the manufacturer.. what company makes this?
+- Are these new filters in sealed boxes?
+- Is this a portable unit? Does it have to stay plugged in or can you charge it and then take it to different locations?
+- could this work instead of part 4452807, a discontinued oven rack for kitchenaid range KDRP407HBU10?
+- the knob points down instead of up! Will removing the screws and reversing same cure the problem and how do they stand up to the oven heat? The orig pealed &amp; melted!
+- Hot water wash is great, but does it also offer a cold water wash?
+- Is there a way to stop this microwave from wobbling on the counter? Mine is a bit unsteady with three metal "legs" and one rubber "Leg."
+- How long is the cord?
+- I have a Broan Model 1536 with a verical duct. Can this one will fit into the cabinet opening and the duct without adding any parts?
+- My daughter has this dryer, it has not worked for a year. The repair people say they are unable to get parts to fix it.
+- Where is it made?
+- Will this adaptor work when replacing a FXRC cartridge with the MWF cartridge?
+- I have a culligan IC-102 filter on fridge, will this replace that filter?
+- How is the 2014 model?
+- Will this work with Kenmore mod. no. 253.74929700
+- Is the inside of the door also mirrored?
+- Does the washer shake and vibrate to the level that a full size washer does? I'm in an apartment above another unit and can't have much vibration.
+- can i just plug it into the wall.
+- Will this fit my WFW86HEBWH Whirlpool washer?
+- Do you have the bearings for Whirlpool model YWFW9151YW00?
+- does this shelf fit model number FFTR1814LWJ Frigidaire?
+- Does the unit come with the ducting or does that have to be purchased separately?
+- What are the dimensions, mainly the length of it.
+- I can't get this filter to engage properly. It won't turn until I hear the click. Therefore, no ice. Any ideas?
+- How long do the Grey/ Biscuit pans last?
+- Fro new construction, should the attic duct be centered front to back above the stove or more towards the back of the stove?
+- How accurate?
+- Does this filter the water?
+- Is this filter compatible with Kenmore elite model 7955107
+- What is the warranty on this product?
+- Has anyone used this for cloth diapers?
+- How high with the temperature rise during the defrost cycle?
+- Dimensions
+- Will these pads fit a Fridgedaire Model FPGF3081KF grate?
+- How many dishes actually fit in? We are a two person household, how often should I expect to run it?
+- my model # isjgbs19den6bb for a ge gas stove my oven is not lighting which igniter should i buy
+- What are the wattage and voltage for this item? Can it be used as a replacement element for a Roper Range Model Number FEP310KW1?
+- Have a LSW9750PW3 washer. Picture slightly different but same switch. Right?
+- Can you use citrus oils in this diffuser?
+- can this part work on a kenmore oven?
+- I bought my oven at low's and the model number does not fit any of these. My model is GE oven JBP22BK4WH
+- commercial gas range
+- Is this price still good??
+- From other answers it appears as if the purchaser will need hoses. Where can these be purchased and why don't they come with the washer?
+- my ice maker stopped working after I replaced the water filter, now no water comes into the ice maker, why
+- Is the trim on the front of the pan/drawer removable?
+- What size cutout does this require?
+- Does this filter work with RSG257AARS Samsung Refrigerator
+- How much clearance do you have from the top rack to the ceiling and the bottom rack to the top rack/sprayer? I know many of these won't work with 10".
+- Does this model have front vents?
+- model 542 has a fabric selector switch...what is the purpose and do you find it helpful?
+- does the handle fit lftr1814lwl
+- ge model pfws4600l0ww calls for wh08x10053. will the 10036 work properly
+- are these now sold individual or sets
+- I use a pressure canner. Is the large burner and glass top strong enough to support it when loaded with full jars?
+- Will this work on a refrigerator water line?
+- Does it make your electric bill high?
+- Where do I get replacement filters now that this company is out of business?
+- How well does the ductless install work to remove cooking odors?
+- Will this part work for model # WED5800SGO
+- Will this create an air-tight water-tight seal around a 1/4" tubing?
+- I live in the northeast and was wondering if anyone has this in their garage or breezeway? Don't know if it can take the temperature swings we have.
+- What is the inside height of the pan (likely around 2 inches). I need an exact measurement so I can calculate how much water the pan will hold.
+- Is this compatible with the Honeywell Easy to Care Cool Mist Humidifier HCM-710?
+- I'm thinking of doing this in my bathtub. Could I rig it with a broom stick for length? I have a bad back.
+- What side are the door hinges on both?
+- compatible with thermals
+- We are replacing a range and the space has a 30.25 inch opening, will this fit? It says it's 31.5, but is that with the overhanging range top?
+- my danby washing machine goes through all cycles except spinning?
+- does it work in a Whirlpool side by side refrigerator?
+- I am building a new home and looking for a way to deal with hard water without the use of salt or potassium. How does your system work?
+- Installation of this part shows an electrical snap on connector. Part shown does not appear to have a connector. How do you connect to oven connector?
+- Want to make sure...Will it work with model LG5801XMW1
+- what is the length?
+- do you have replacement knobs for hotpoint stove?
+- Will these fit the Holmes HAP706 machine?
+- Has Bosch addressed the plastic chrome handle trim breakage?
+- Will this element work for a GE model #jbs23bb1wh ?
+- dear sir how many kilo metres
+- I need help. How can the range hood turn on randomly without me touching the controls, the machine stays on, I can't turn off the range hood?
+- Is this item available or not?I would actually like to buy it! Please advise me.
+- will this work on samsung wf206/xaa model
+- Is this model to be used for an island only?
+- will this fit Kenmore Elite HE 3t Model No. 110-42926-200
+- I need a disposal that chops when you push down the plunger - not a separate power switch on the wall. Does anyone know if that's how this works?
+- how hard is it to keep the stainless under the grates on the top clean - can you use scouring pads?
+- For connecting to supply lines under a bathroom sink, should I be getting a 660-TR1 or a 660-TC1? Thanks!
+- Will this work with a whirlpool duet wsw95hedw without having to drill holes, etc.?
+- How deep is this in inches?
+- Will it fit LSG-1000?
+- can you tell me how many filters are in this pack?
+- Can it be set to show outside temp. always on display?
+- which water filter fits Kenmore refrigerator model 795.51372.011?
+- I have a well and get sediments that clog up the inlet valve screen. Which filter SCREEN is better to use FOR FINE SANDY sediment? And is it 3/4 on both ends to fit on the washer hoses?
+- will these fit the older model dcs range grates, 2002 model?
+- Just install one by my contractor, but I was very shockd because of the drameticlly loud sound when I turn on. Seems not right, can anyone help me?
+- Is this unit actually manufactured by PUR for Whirlpool?
+- do you have replacement knobs for hotpoint stove?
+- I'm looking to upgrade to a box that is smooth on the inside. Need to know if the inside of this one is smooth so it will clean throughly? Thank-you.
+- how many voltage
+- How many speeds does this hood have?
+- What is the warranty period/policy on this product? I've had it for 5 months and it has suddenly stopped working (not sending signal to solenoid)
+- Will it work for GE XL44?
+- Can the knob be oriented with "off* at 9 o'clock rather than 12 o'clock position?
+- Has anyone experienced a leak? Teflon tape on the faucet adapter works great, but my countertop still has puddles of water after use. Any thoughts?
+- it says the lights are dimmable but one review said they were not. Do they dim?
+- This device can be started and shut an ultrasonic humidifier 24v, in an incubator
+- I have 1" less than eight foot ceilings (95"), can this unit work?
+- My front doors have very small dents in them from kids beating on them with toys. Will this get rid of the dents without looking like bubbles?
+- Im looking at purchasing this fridge, I wanted to know how do we coordinate delivery?
+- Is this available in a back vent instead of top vent exhaust?
+- would this work on my hotpoint model ctx14ayxkrwh serial hr749157 refrigerator do the drawers slide into slots ?
+- is this ducted,ductless,convertible?
+- I mainly need a portable outside device. I work out in the sun and want it for temp and humidity readings. will this work for my needs. Thanks
+- I need a bearing and seal kit for a Kenmore model 417.29042992. Do you have the part for this model?
+- is this big enough for a queen sized comforter?
+- My range is the GE Profile with 3 six inch and one 8 inch pan.do not see them here.What do I order?Do you recommend the porcelain over the chrome?
+- Do the people shipping the fridge install it?
+- Can I skip the filter and just add water treatment to it instead. The filter does not work well on it's own.
+- is the wb2x9154 5 aps for ge oven
+- is this unit regulated and linear? I will using it on an electrostatic energizer amplifier (Stax srm-323s)
+- Is the vinyl translucent at all? I need something that doesn't allow any light in.
+- What are the dimensions for this product?
+- The nobs that hold the wheels broke off on both sides. Is this the part I need?
+- does this fit for whirlpool model ED5KVEXV007 refrigerator?
+- Does this filter fit Hunter model 33223?
+- Will this fit on an older GE stove? The original GE stove knob requires a push in, then turn.
+- will this replace part no. 5989jb0001a
+- I have an LG LFX28979ST/00. Will this filter fit my refrigerator? It is the same model number as the one at sears for my refrigerator model...
+- thanks everyone! I was just asking because my hot water/ cold water hoses are upside down - so I think still clock wise just turn right to turn off :)
+- Will this fit a haier hlp23e portable washing machine?
+- can it be removed
+- are they sackable?
+- How tall is the unit with the lid up? I want to use this on the bench seat in the shower of our sailboat
+- Is it an under the counter refrigerator ?
+- Will this lock keep a rottweiler from eating the contents of my fridge?
+- Am thinking of buying the GE GTWN5650F. Can I use regular detergent if I am NOT going to use any of the HE features like eWash or PreciseFill?
+- Can this hood be wall mounted?
+- Will this work with a Kenmore side-by-side refrigerator 4115?
+- what are the dimensions? This seems to be a bit large
+- Will tihis rack fit my GSD4260JOOSS dishwasher?
+- How many volts are required to run this unit?
+- Can I fit a 16" pizza box sitting flat inside of this freezer?
+- this seal fit model # wfw9250ww00
+- Does this model allow for a connection to your dishwasher?
+- What is the cut out dimensions? Width x Depth?
+- Is this a genuine Aprilaire product?
+- I need to replace a wirlpool Gc2000xe2. Is the unit you are selling an xe2....or does that make a difference?
+- Will this fit Roper model RT18BKXKQ01, just want to make sure. thanks
+- does this ice maker fit Whirlpool W10190966
+- Does this shelf hold the snack bin, or is it a stand alone shelf?
+- Can I use this for house furnace (75,000 BTU) vent? This is the vent that goes all the way to the roof and out.
+- are the knobs plastic or metal?
+- Will this Ice maker fit a GE Refridgerator model TBX21IA 20.6 cu?
+- is the tub stainless or????
+- This site says 5 year warranty, the box says 1 year warranty, the paperwork inside the box says 90 day warranty! Is there a warranty??
+- I want to install this under a counter. Does the rail come off or will it have to be removed. Also will having it confined on 3 sides be bad for it?
+- Has anyone had a problem with the front of the crisper drawer coming off? where do you find a replacement drawer for this model?
+- Will this set come with all the parts I need to hook my washer and dryer up? Also, is there are manuf. warranty?
+- How many dishes actually fit in? We are a two person household, how often should I expect to run it?
+- One of the questions' answers indicated this is NOT the kit and does NOT include the fittings for a new fridge. Which fittings do I need to purchase?
+- is this a full size tub?
+- did this rack come with the wheels as shown?
+- What are the dimensions of the disposer: For example, the dimension from the top down to the discharge pipe?
+- How wide is this freezer? Outside measurements.
+- is this vented and what do I need to hook it up?
+- Does this filter work for Model No. GEN11042FR-08
+- how many come with order?
+- Everything I have witnessed from this washer is that the clothes smell really great like they are clean but does not clean! Can someone tell me y????
+- The blue, not the purple are the real ones, right? Also, the labels of the purple misspelled "Disposable" as "Disopsable"
+- will this fit model 3 CF220b cook top part 374 03p402-60
+- Whirlpool duet paddles are missing on the inside would that make it leak
+- pls confirm it'll work for my Frigidaire #AEQ8000CFSO? Is it good quality?
+- what is the height?
+- will this work with a kenmore refrigerator 1069758615
+- This item came up in my search for "8268559" heating element for a Kitchenaid KUDI01TJBL0.I don't see why the search brought it up but it looks right
+- Can you bake cookies and muffins in the smaller oven or is the infrared grilling always on?
+- Will this fit Whirlpool model ED5HVEXVQ01?
+- What is the outer diameter? I need a pan larger than 8.25 inches.
+- can this dishwasher accept a custom cabinet panel as the listing suggests? I don't see it spelled out in the actual description.
+- I have a 2 speed Frigidaire Gallery washer (13 cycle - top load) the model number as found online is glws1339ec1. Will this motor work?
+- Is this filter for Refrigerator model RF24FSEDBSR/AA ?
+- Can this be used with a gas dryer?
+- what is the diamentions of it?
+- is this valve compatible with the Whirlpool SF379LEMS range.?
+- Do the pans have the rim around the edge or do they fit into a separate rim?
+- the dishwasher shows the #2 on the readout and shows it on dry. what do i do
+- Is it 8 ft long before being stretched out, or after?
+- the title says freezer, but the description says refrigerator. Which one is is?
+- Is this the correct coil for a maytag gas dryer, model #LDG8304AAE, COIL #279834?
+- My existing disposal is hard-wired (not plugged into the wall) Can I hard wire Waste King or do I need to install outlet?
+- Will this work to replace part number DA97-07603B?
+- will this fit kenmore ultra wash 65515801891?
+- Is this the fuse for Kenmore 66513492k600? Thanks--it is dead today and the plugs in!!
+- Will these fit a viking designer cooktop?
+- Is this full sized
+- What shape are the ice cubes dispensed? In the picture above, they appear to be like cubes rather than the half moon shapes normally produced.
+- Can the three bins be separated? Also the dimension listed as 16X10X4 but the answer below says the bottom measures 19 long and 3.25" wide.
+- will these grates fit my model VDSC485-16GSS? What size are these grates need measurements. my grates are 9 3/4" x 10 3/4" Thank you
+- will this fit my whirlpool fridge #ed5gndxwd00?
+- dryer to go with it?
+- Ship to argentina?
+- will this part fit a CSX27DR Side by Side Hotpoint Fridge
+- It says this 'comes in 4 colors' but I see no option to select color when ordering. Does that mean 1 order comes with 1 of each of 4 colors?
+- I know from the descriptions, the dimensions are 21.3 x 26.6 x 33.2 inches. Is 26.6" from front to back?
+- Where does one go to get the electric cord?
+- I need to estimate the minimum hole size. What is the diameter of the threaded shaft?
+- Can this model 1 cubic handle a king size sheet set?
+- Will this replace part ap5326116?
+- I'm just wondering where the actual squeak sound comes from? Is it possible that it's doing any permanent damage inside the machine?
+- Hi' I have a General electric fridge TPG24PR IN ITALY WORKING AT 220v. Is it ok? Thanks
+- does this come in the retail packaging?
+- I need a Whirlpool lint screen. I do not find my model on your site. Mdl # SEDS800JQ0. Can you help?
+- I have a electic stove that has varying sizes of burners. here its mentioned as 8 inch. What can i do for small burners ? How many plates in package?
+- Does it work on 220v or just 110?
+- what is the color, we need white.
+- I have a Whirlpool WGD5310SQ0 and the part number for the Dryer Lint Filter is 8557857, would this one fit?
+- I have a Frigidaire model number: FGHB2844LF Will this water valve fit it?
+- I see two model numbers out there for the Lyric. Can anyone tell me the diference if there is one?
+- Does this fit model # fef336ask
+- Does it need wicks or filters
+- Filter
+- If this breaks is this unit repairable? My old one from lowes was not and the plumber suggested I buy one that was
+- I have a kenmore elite model # 11047088600 will. this pump wrk n mount in the same way n wire harness hook up the same
+- I have been looking for griddle part numbers for my gas range model JGB690SEFSS, five burner convection oven. Will this fit?
+- will this work on Whirlpool washer model #WTW5100VQ2
+- Can we get this refrigirator in white - not stainless steel?
+- Is this filter can be use for model LMX 25986SB/00?
+- Is this a GE manufactured part?
+- Need quick response! If the hose doesn't reach is their a way to expand it??? TIA!
+- Is the baking drawer heated by gas or electric?
+- Is there any hand held attachment, or crevice tool?
+- Can I use this filter for my Kenmore Elite Model 796.8051# ?
+- Is this range hood 42"? The dimensions are listed as being 39.7" wide...
+- i have kitchenaid electric stove model KECS 100 SOB 1,,,i wanted to know if these chrome plated bowls fit into my stove?
+- Will this motor fit hotpoint model hts17gbsarww ? thanks !
+- What is the height of the numbers on the read out?
+- Will this Maintenance Kit fit my Kenmore model 11062802101?
+- How far will the unit push the exhaust effectively?
+- is the surface glass
+- I am looking for an equivalent to a Kenmore Part. No. ADQ72910907, or the substitute ADQ72910902&hellip;would this be one?
+- is this a convection oven?
+- Will this work in my Kenmore range model # 790.92609013 ?
+- how to remove front of washer to get to pump
+- Not all water pumped out after wash cycle. The inner basket is dry but if you rotate the basket, you can hear the water remaining in the drum. What is the cause, or is that normal?
+- I have roper rs22aqxmq00 will this part work?
+- Will this fuse work with the Kenmore Elite H3 electric dryer model 110.82822102?
+- does this ice maker fit the 11 cubic foot apartment model?
+- Will it fit KUDS30IVBS4
+- Can it be used with a gas dryer?
+- What size are the "cut-holes' for this cooktop ? I want to make sure it will fit into the space.
+- How much power does the timer itself consume?
+- Our dimension for the ice maker that is no longer working is 11 3/8" X 4 5/8". The dimensions for part # 633324 are larger and doesn't appear to us that it will fit our Norcold 1200 LRIM. Our motor home is a Beaver Patriot manufacture in 2000.
+- My heigh clearance is 35.5". Are there leg pegs on the bottom of the fridge I can remove? Or is this fridge really 34" height as specified?
+- will it work with a 12 inch cast iron frying pan? is there a shut off timer?
+- Good Morning. I need To Know if This solenoid Can be use to Washing machine Samsung model WA11D3
+- Does this fit a Model GU1200XTKT0 ?
+- I have a Fridgidaire FRS3R4EW0 will this fit?
+- Is it at all magnetic?
+- Will this model fit my model FSC23LR5JM2 fridge?
+- How many inches wide can the clamps be expanded? In other words, how wide a stand can they attach to?
+- This downdraft would be a replacement for me and for a cut out of 28 1/4 inch, would this work for me and what is the amperage on this downdraft?
+- What gas dryer is better Magtag or Speed queen
+- will this fit GE oven model JBP30C0B1CC
+- can you tell me the distance between the shelves? I can't find one of these in a store so I can see it, and I can't find the measurements online! I'd like to know how much room there is in each area so I know what size foods they would hold. thanks!
+- We have an Aprilaire 60. What size replacement water panel do we need? Will this one work?
+- Will this fit Whirlpool Model # LEQ9558KQ0?
+- Is the ice clear or the more typical "white ice" that most tubular shaped ice-makers produce?
+- How much food does it actually hold?
+- Where is it manufactured?
+- are all the grates level or contoured?
+- Will this work with sears 758 144521
+- Will it replace whirlpool 2199838?
+- description says halogen bulbs, but they are not included. Is it safe to assume that I can use a CFL, or LED bulb (medium base) in order to save elect
+- will this fit DLGX8001W?? Home depot was useless
+- I have this being delivered on Thursday I want to confirm that this is a OME part and not some other manufacturer I paid additonal to get OME
+- What are the floor dimensions? I want to use it to ferment lager beers. My fermenter is 12" in diameter and 24" tall. Will it sit on the floor?
+- this item can replace all ge dishwasher models
+- Does this have stainless vent to fit normal 8 - 9 ft. ceilings?
+- Is this unit counter top or built in?
+- Is it counter depth?
+- Can this stand hold a haier washer/dryer? Can someone out there help?
+- is this that fingerprint texture on the outside
+- I have a 10' ceiling...where do I order the extension?
+- Can you replace the motor assembly from the housing without removing the housing from the ceiling? Thanks
+- Can a Pure Source Ultra filter be used in a fridge that came with a Pure Source 3 filter?
+- Is there a light
+- Does this handle fit the duet whirlpool front load washer GHW 9250 MTI
+- Do you "have to" turn off the household water in order to replace this filter in an LG frig?
+- Does it come with the ice bucket?
+- does it really get whites clean?
+- Will I need to pre-rinse dishes in the sink before putting them in this dishwasher, or can I skip that step? Thanks!
+- What does containing three units mean? Does this have four drip pans and rings, two 8 in and two 6 in?
+- Does this work on model psc23mgsa bb
+- Does anyone know the height and width of this garbage disposal also is it quiet when operating?? Thank you
+- Specifications of the attachment fitting?
+- Will they fit a GE J BP23D N1WW electric range? Thank you, in advance, for your help.
+- Will it fit a Kenmore, please?
+- Can I use this to control a Dayton (model 1HLA3) 16 inch exhaust fan?
+- Has Amazon fixed the "Bait and Switch" with customers? The customer comments are rife with ordering "B" filters, but getting inferior "A" models.
+- The Frigidaire website is sell Ultra, is it the same as PureSource 3?
+- will this part work on frigidaire model ffgf3011lwc
+- I want to buy now, but im in Peru. Shipping company is asking to me the dimensions of the box where the kit is packed. I await your prompt res
+- How many speeds does this fan have?
+- which one of these burners will fit my whirlpool model rde4400y2?
+- How difficult is it to get an old one off in order to put this one on? Any helpful tips?
+- What is the amperage draw?
+- Hi I need a Fridge Door bin, those are smaller than those in the other door. I just want to know which one it would fit to model FFHS2622MW8?
+- Will this fit my Kenmore Elite front loader washing machine Model 110.44932200
+- Does it fit a samsung rs267labp ice maker
+- Up to what size diam pot can i use on the medium sized burner?
+- Is the 3 Year Warranty applicable in Canada as well?
+- Is this price for one filter or for two?
+- are these ceramic or plastic?
+- is the underside area behind the lights difficult to keep clean?
+- Non air gap or air gap?
+- How long are the pipes/hoses? If short, what would you recommend using to make them longer?
+- Is there a difference between a PWB and PCB ballast? I need a PCB-BALLAST 938P178010, for WD-65734. thanks
+- What are the dimensions?
+- Can I use this for 2 heat 1 cool?
+- Does this hold the standard normal keg? I drink keystone 1/2 kegs and im not quite sure what they mean by Does NOT support use of Coors, Miller rubber
+- I have GE Range Model #JBP62DM2WW and I am looking for Smooth top element front right. Will this 8" fit my model?
+- Will this fit a 253.57388601 kenmore refridgerator
+- Will this hold 16.9 oz water bottles nicely? If so about how many would fit? Thanks!
+- Can this be mounted under the counter?
+- will not dispense water thru door?
+- Will these be the proper replacement for the Kenmore 758 144530? I didn't see that model listed..
+- Does the refrigerator lock?
+- Will this work with a Jenn-Air Model S105?
+- will the delivery guys hook up the washer &amp; dryer for us?
+- How often should they be replaced
+- If my range top takes a D shaped shaft does that mean any D shaped will fit?
+- Can it be used for model RF217ACPN/XAA
+- Does this include installation of the refrigerator?
+- Will this work with model # FRS26R4CWR ?
+- Will this fit Model B700SN1SS, part # PS2321076 or WB03T10284?
+- Refrigerator model KF1911 filter?
+- proper re-placement of filter and fill up?
+- What are the grates made of?
+- Does Frigidaire sell additional shelves for this unit? We'd like to have more than the 4 it comes with.
+- Are there shelves in the door?
+- Will this belt fit DG412 Maytag Dryer
+- Does it fit model #34351
+- where are the air filters for this range hood?
+- Does the cooktop have enough room for all burners to be used at the same time with regular pots? Or is it cramped?
+- will it fit model # GEW9878PWO 8557857(LINT SCREEN NUMBERS)
+- What is the color of the rack? It doesn' mention the color.
+- Can someone tell me the dimensions of this dishwasher for height without the rollers?
+- Is this energy star rated? Can you slightly see the drinks inside? How many 16.9 water bottles will it hold? Thanks!
+- Will this work on a whirlpool md wed9450wr0
+- Am I right in thinking that the air filter is not necessary? One reviewer discovered they didn't even have one installed when the change light went on 6 months after purchase!
+- Can I just use it to spin clothes? I handwash delicate clothes and need spin them to remove water.
+- Do these filters come with the clips to hold them in place?
+- I determined the coil is open (Ohmed open). My part# is RIV-12AE2 for a model GSS25QGTABB side by side fridge. Is this the correct replacement part?
+- My model is 253-78983800 and ice maker AD-18 which ice maker do you have to replace mine?
+- Is the water that is dispensed ice cold or just "tap water" cold?
+- Hi, I have a GE stove, one large burner and three small burners. Will these fit? Thanks
+- If I buy this two pack, will I also need a drain hose?
+- When the timer trips from On to Off, do you get a spark?
+- Will this element work on an old frigidaire wall oven model# RBE-G94-1
+- Can i spray this product into my air exchange &amp; will it kill mold spores and bacteria in my air ducts??
+- Instructions say change every 6 months. Shouldn't the change rate be in gallons of water used? Family of 2 as opposed to family of 6....
+- Anyone have issues with the filter rotting? Or smelling really bad after a few weeks of use?
+- Does this part come with the sticker that covers the buttons and illustrates the buttons?
+- Will this fit whirlpool GS6NBEXRL00?
+- does it need pipes to get the smoke out of the house?
+- Does the unit have the feeler arm. It is not in the picture.
+- This looks like an exact replacement for a 106-626636 is it?
+- Will this extension work with Z Line ZL36ar697? If not, can you give me the model number of the extension that fits?
+- Does this have a plug on both sides? The item has the right part # for mdbh750aws but the picture looks like it has just one plug; mine has two.
+- Will this fit a Maytag range model# MER5552BAQ?
+- Do the sides "appear" stainless/metal or is a painted gray like many other fridges? The side will show and I don't want gray paint, I prefer metallic.
+- does it extract water from wet clothes
+- My machine is a washer GE .MODEL WCRE6270H0WW . I like to ask its compatible this belt for that? Thanks
+- If you use this as ventless where does the air exaust to? Others I have seen on the web have vents on each side near the top
+- Will this work with Frigidaire oven model FEF326ASK?
+- Does the tank come filled
+- is this part compatable with matag mgd4200
+- will they fit an old amana range?
+- Does the dryer need to be mounted to the wall or is it safe just sitting on the shelf? It doesn't shift position or fall off if not mounted to wall?
+- in the technical details it states that this range is 120 volts? is that correct??
+- The pictures show both a 3-prong that is normal and a 3-prong that has one prong that is perpendicular with the other. Which is this product?
+- Hi, I'm interested in this product. Can it be used over induction stove top as an adapter plate for non-induction cookware? How's the transfer of heat
+- Will this item work on GE Electric Oven JKS060J4AD? Is this part the same as GE part # WB21X5209?
+- Since changing my toilet tank filling device from the old floating ball to the newer type with the float on a vertical shaft, I have a water hammer problem. Can I put a hammer arrestor somewhere between the wall mounted water outlet and the toilet tank.
+- How much electricity does the cooler use?
+- I have a kenmore ref. that calls for # 240356405 top door shelf, will this part # 240356401 fit mine
+- Are you able to have just one keg tapped with this kit or do two kegs need to be tapped at all times?
+- I have an older apartment size GE stove, will these fit?
+- Do you really need to turn off the water supply to change the filter? Is this just a precaution?
+- Is this considered a "fill hose"?
+- Matching dryer?
+- Can you use this on the front of an oven, too? Is it heat resistant?
+- can you put the sensor in the crawl space under the house and it work?
+- Does this work with Whirlpool ED2VHEXVB01?
+- If plugged into an iPad, can it send push notifications to an Android?
+- Does the door open up to the side or to the back?
+- How much clearence do I need to leave above the stovetop?
+- Will this work for a duet WASHER?? I can't seem to find and reversal kit for my WASHER!!! Model #WFW9150WW01
+- How long of warranty does it have? I purchased mine in 2012 and it is no longer working.
+- any metal parts on this sedemint filter? i have sulfur well water and it destroys all things metal...
+- What thickness are these bags? (4.5, 5, 7 mil)?
+- Which Filter is to be used in Honeywell HCM-350
+- is it a good one?
+- Are the lights able to dim?
+- will this replace a (700854-4 part no.) jenn.air knob?
+- Do these fit a Broan Rangemaster model # 643604?
+- If I have 9ft ceilings in my kitchen, will I need an extension? Can I purchase it through you?
+- The product description says "reuse for two years". What does that mean? How long does the product work to effectively absorb odors?
+- Mine didn't come with a back splash? Was this normal?
+- Will this motor replace GE Motor Model # 5KH45BR75S?
+- Hi, is this a replacement for GE MWF filters?
+- One reviewer said that the charcoal left a loose powder residue. Is this true? Does the charcoal leak?
+- which filter are in this; stage 3, mineral free, the older single stage white ones??? which???
+- What is the difference between W10295370 FILTER 1 and W102953570A?
+- required space measurements?
+- What do you use on the item to be hung?
+- burner plates for electric glass cooktops? Can burner plates be used for electric glass cooktops?
+- how long will the 5l keg last if only 2 people are using it??
+- Do these fit a Fridgidare Stove ?
+- Does this fit the Kenmore
+- Does it need to be vented?
+- I would like to know if this unit operators when it first starts up and open the hot and cold water valves. Does it open and close the valves very fast causing water hammer. Or does just open letting the drum fill up, because I have an LG washer that...
+- Will this work with a Jenn-Air JFC2089HES?
+- FXUSC
+- will this heating element work with a kenmore 110.66112500?
+- Are these units stackable? If so, what is the total height when done so?
+- Hi, I'm interested in this product. Can it be used over induction stove top as an adapter plate for non-induction cookware? How's the transfer of heat
+- Would this bulb fit the Slant/Fin Model GF 100 and do you send the bulb to Canada?
+- is it an assy from Whirlpool or Kenmore? and same assy # 2198678??
+- What contaminants does it filter?
+- does it have on/off switch;temperature measures in fahrenheit;measurements!
+- is this an exact replacement part for 316418200 if not what is and do you have it?
+- Will this item fit Model fghd2433kf0?
+- Does this unit plug into regular 3 prong outlet or does it need to be hard wired?
+- I have this washer and even brand new it had an odd smell to it inside, kinda stinky when I stick my head in and smell. Is this normal?
+- can this top be mounted in a butcher block counter top?
+- Is this for 3 filters as there are 3 boxes in product description. Also is this an OEM filter?
+- Would this be able to wash a pair of large men's jeans? I'm thinking of getting one of these for "in-between" washing.
+- Will this work in a whirlpool model #WITXNMFWB01?
+- Does this fit Whirlpool ghw9150pwo?
+- Is the inside large enough to fit a 20lb turkey with or without a shelf removed?
+- will this fit a ge range model jbp24gw1ad
+- Is this the drop in unit and the cook top for this price?
+- How many inches from the back of hood till the front screws? My under cabinet board is only 11.5 inch deep.
+- What does it mean to be "Fully integrated" (versus the others that are "partial")?
+- will this main board work as a replacement for part number 200D2259G017?? thanks in advance
+- My model is 316207511... Will this board work instead?
+- Does the "Gentle" Program actually propel the load less vigorously than the other Programs, i.e., "Standard"? Or, is it just shorter?
+- will these range replacement knobs fit a tappan electric stove ?
+- does this unit have hi/low alarms? does it have low battery indicator?
+- does this hose have a plastic hose in the center?
+- How does this drain?
+- Is the hood exactly 30" wide? Our space above the range is just under 30", and I'm afraid we'll have to order the 24" if the dimensions are exact.
+- is it not supposed to be just plane wire mesh? what is the white crust on them that looks the same as my last year salt deposited one?
+- Is the crank really loud or noisy? Another person stated in their review "Plus cranking the handle is noisy".
+- please sir this item for grow indoor room or for hose ?and can me use 260v or 110v ?thank you
+- I have 6 - 3 way dimmer switches that I want to make Z-Wave. I have the Z-Wave controller. What is the cheapest and easiest way to do that?
+- How can this control be installed in a drywall?
+- Ducted installation but lots of of air coming out of the slots on top. IS it normal?
+- does this fit Kenmore model 106.8627580?
+- Does it fit GE model 164D3871P001? Thanks.
+- Is the duct round? square? what the parameters?
+- Will this fit a Kitchenaid kuds30fxsso?
+- Does the glass on this hood require very frequent cleaning?
+- Can someone tell me where this is made? THanks
+- Will this fit a LG WM2233CU?
+- How does it keep ice cold?
+- does this fit lg side-by-side refrigerator, i.e. a replacement for 5231JA2006A
+- How well does this spin water out of clothes?
+- Are these knobs plastic or metal?
+- does it come with a power cord/
+- Are these the: 1) Heater Box Thermal Cut-off fuse part#3977393. 2) Hi Limit Thermostat part#3977767 for the whirlpool LER4634JQ1 dryer
+- How can I tell they are working
+- Who makes the Sonya dryer? I can't find their contact info anywhere.
+- Does this product work on DLG7188WM?
+- Can these be cut to a shorter length than 10 feet? Also can they be combined in length if I bought two sets to make an 11 ft length?
+- How do I clean the humidifier
+- Does this include the handle? The picture does not seem to...will this fit the whirlpool dryer model LDE5750W1? And will this fit the model c
+- Do you change the whirlpool fresh filter when tab is completedly red?
+- Will this part work on whirlpool GU2300xTVSO
+- commercial gas range
+- will this work on the maytag atlantis or where can I check the models it works on?
+- The stainless steel trim appears to be raised. Does this require extra care in positioning the cookware, or limit the size of the cookware bottom?
+- I'm assuming you use it with a bucket, how big?
+- does this fit model# LFX31925SB/oo
+- will it fit a whirlpool duet GHW9150PW0
+- Does this assembly also work for GE washer?
+- Do you know if this (ProTec WF2) or any other Protec or after market filter would work with the Air-O-Swiss e2441 (which uses AOS 7018 filter)?
+- Is this a genuine oem part?
+- how much energy does it use
+- will this fit the whirlpool duet WFW96HEAW FRONT load washer?
+- Does it fit WFW86HEBC
+- Are the racks stainless steel or plastic coated metal?
+- How I supposed to make it work ?My house works 110 V.
+- is this frost free freezer
+- Does this work on a Frigidaire Compact 30 Electric Stove Model RBE 533P?
+- Does this unit make the small "nugget" ice--like you would find at a hospital?
+- will this work for a model dv33aer/xaa 01?
+- I would like to know if the dimensions in the specifications are correct - i.e., that the disposal is only 6 inches long.
+- Could you tell me have you had any issues with this range hood? I have seen in older reviews, the lights quit working because of something wrong with the wiring...also the buttons have had issue in one or two reviews. Thank-you
+- Is this item on wheels or casters or is a kit available?
+- Can i use this on a kenmore portable dishwasher?
+- Is the interior of the unit stainless steel ?
+- what is the voltage outlet for the washer and dryer
+- Do you have to hold down the IS button or does it stay on after you press it one time?
+- Is there an Owner's Manual for this Model? I can't find mine! How do I clean the filter...the red filter light is on. HELP!
+- Is there any hardware (such as screws) included in the package? I am aware that the light bulbs and filters are not.
+- I have a 10 foot ceiling with this work?
+- The manual for my model says 3 filters are needed: HAPF600, HAPF600D and B filter. Are those the three different filters?
+- Will this coil work for Frigidaire Model # FERB7800DS0
+- can I wash and dry at the same time?
+- This item has a smaller ice maker. Does it make ice quickly? Is the ice always empty after use?
+- What bulbs does it use?
+- is it only a freezer or a refridgerater with freezer. Looking for just a freezer.
+- will this work on my gsl251gre bs
+- Automatic defrost ?
+- is this good to use with the type of 1/4 Polyethylene tubing that they use for reverse osmosis systems??
+- does it come with a power cord?
+- does the wonder washer spin clothes
+- We have a Kitchenaid microwave, but the model number matches that of the Whirlpool. Thus, will the Whirlpool handle work on the Kitchenaid?
+- Mine did not come with directions! The clock is not working...is there a certain size battery it needs? Also how does one adjust the barometer?
+- What are the dimensions?
+- Hood keeps going off by its self, anyone else have this problem?
+- wheels
+- Do you have Nutone Kitchen Fan, Ser# 2R20454M,Model 118.012,RPM 1550, Volts 145,Amp .9, Watts 55 or a drop in replacement Kitchen Fan?
+- Could someone give me the dimensions?
+- are the measurements of the dish rack different at the top and the bottom of the rack? My present rack is angled, larger on top, smaller at the base.
+- Does this diffuser have a timer?
+- What size cut-out for this?
+- Does the cap cover the white ring at the base? I don't want to put the oil rubbed cap on and the white ring at the bottom still show.
+- is it possible to run vent for air leaving this thing into bath fan vent line?
+- do I need an adapter to vent out a standard rectangle wall vent, or is it included?
+- i have a frigidaire model fgf366ccb,will this part work on mine?
+- how wide of a gap does this fill?
+- I purchased a #9915 replacement filter and can't seem to get it to turn and snap into place. Any suggestions or can anyone tell me what I am doing wrong? Seems so simple, but it just won't snap into place, very hard to turn.
+- Can this be used with Sears Kenmore model#106565664000 Filter part #9030? Thank you
+- I see where users have fit a 1/6 keg and 1/4 slim at the same time. Has anyone tried to fit two 1/4 slim kegs? Thanks.
+- Is this magnetic? I'm looking for something to display magnets on-- thank you
+- Does anyone know if this is compatible with Frigidaire Range Main Board Control? 318012914 is the part number. Thanks!
+- Will I be getting 3 of the 6" and one of the 8" in this Style A from Range Kleen? (I'm asking because the picture show 2 of each &amp; that's how they sell them on their webpage) thanks = )
+- what are the cfm and does it covert to ductless, if so part number and price for ductless
+- The Halogen bulbs are not very energy efficient...have they made new energy efficient bulbs that would work in place of the halogens?
+- Will they stay in the gap well.
+- Does it fit JES9860?
+- is it supposed to make a slurpy/grinding sound? its not terribly noisy, but its at least as loud as my refrigerator. it was delivered dented.
+- whats the warrenty on the holmes air purfier/Hep756-u
+- I have an older style washer does this system work for all types of washers?
+- Is the door real stainless steel or "stainless steel look"?
+- My vent goes up 8 feet and then horizontal for 15 ft... How will this help locating this at the dryer over what the dryer is already doing?
+- My ceilings are quite high (12 feet or so). The chimney only extends to 8 ft. Is there an extension kit and where would I purchase it?
+- Do I need to buy a CO2 tank or does the product come with one? How often does it need to be filled?
+- Does the hose have an inlet screen?
+- Is it a replacement for 2174118 C?
+- How do you adjust the Barometer? It say adjust before use-See instructions!! There are no instructions!!
+- does it have an interior light
+- will this fit jenn air gas stove to replace rectangle drip pan?
+- Hi. Is this compatible with the Frigidaire Model # PHS69EJSS2? Thanks!
+- What year is this oven?
+- What are the dimensions of the rear vents? What is the warranty
+- does this fit the model 89Q?
+- Can you tell me what the width measure is on the back side. I believe the 36" is the measure on the front doors.
+- As an "Add-On" kit... will a Whirlpool 8560 Ice Maker work in a Kenmore 62152 Refrige (MODEL #10662152111)? Sears says it might, but wasn't specific.
+- Does "6 pack" mean 6 pairs or 3 pairs?
+- would this part fit bosch nexxxt 500 series model wfmc 3301uc
+- Is this compatible w/Whirlpool WED9200SQ0? The outer shape appears to be the same but original filter does not have the vertical bar down the middle?
+- DO I need to install a new filter or does it come with a filter?
+- does it work for 500m series?
+- Lost owners manual - does it fit GHW9150PW2 duet model?
+- is this a two pack?
+- Is it recommended to put gravel down before setting the pavers?
+- How can I fit a 30 inch range hood into a 33 inch opening?
+- Will this fit the 1210 M5G?
+- I own the Whirlpool 25cf refrigerator, model # ED5LHAXW2. My filter cap broke. The number inside the cap is 2260502 &amp; 2260518, no AP. Will it work?
+- how does it attach to garden hose?
+- What are the actual dimensions of this item?
+- How many come in one order?
+- Will this work for ice maker GE part #WR30X10087
+- good day .. This kit includes bands .. thanks
+- How can I lower the flame..it is to high and burns food. I turn the knob to lowest setting and still to high.
+- Does anybody know the inside dimensions?
+- Can I use non stick pan if it had the magnet on the bottom to use on this cooktop?
+- I have a Frigidaire Model FGUS2642LF1 serial #4A12016944. 2011 Model, is this product compatible?
+- Does the freezer open as a drawer, or a door?
+- Would this water inlet valve work on my ge model #psh23psra so
+- whats the difference between the 500 and 800 series?
+- Does this unit produce Ozone? If so how many ppb? Does it make as much as Amazons:FIVE STAR FS8088 Ionic Air Purifier Pro Ionizer Cleaner with UV?
+- what are the dimensions?
+- Can the door open to the left
+- what cookware does it work with or does not work with?
+- What size is this? It says 6", but I think it must be 6'. What's the outside diameter?
+- What is the lowest temperature this freezer can be set. What does true 0F mean?
+- Should the switch be turn to on or off for it to be used as a timer? Either mine isn't working or I don't know what I am doing...
+- What are the inside dimensions of the oven?
+- Is this a quiet appliance?
+- Will this work on an amana tandem 7300 front load washer?
+- how about a Westinghouse stove with 1 lg burner &amp; 3 smaller burners
+- I have a Whirlpool Dryer model LEN2000PW0, would this heating element work ?
+- Does this have a magnetic strip to attach to the stove?
+- Will the adhesive work with a brick wall?
+- Does this come with everything I will need to hook it into the water line that we have roughed in (i.e- lines, adapters etc)? If not what will I need?
+- Does it fit on a 4 inch dryer vent? I purchased a similar looking product at Lowes and it just does not fit over the vent in the dryer.
+- is this for 190 degrees
+- can be used for a dryer vent hose
+- What size drill bit do you use for these grommets?
+- Does thiis attach to a faucet head that is extendable?
+- what is the manuf. stated accuracy?
+- What minimum clearance is required between the bottom of cupboard and top of cooking surface for a gas stove?
+- When fully extended, are there 5 inches between the inlet and outlet edges or centers?
+- what do I need to install the KitchenAid Architect Series II KDRS505XSS 30 Freestanding Dual-Fuel Double Oven Range, when it arrives???
+- How do I change the time?
+- is this part for whirlpool fridge model number ed2khaxvb00?
+- Does it get rid of kitchen smoke...that's what I need. My kitchen doesn't have an exhaust fan and every time I cook it smokes up the house.
+- what is the diameter of the duct per your picture ?
+- How many bottles will this refrigerator hold?
+- I want the delivery people move away my old stove and connect the new stove for me. Any charge? If so, how much?
+- Do the top burners heat evenly throughout the coils or heat from the center coils outward as the temperate is raised?
+- Will this work on my Maytag Dishwasher model MDBH980AWS1
+- will this wash and dry at the same time?
+- Is this suitable for use in Europe (240 volts)?
+- Is this a replacement for a Whirlpool W10071550A DRYER RACK? Will it fit?THANKS
+- What's the pipe size that can be used for this? Can this be used for the same pipe size?
+- What are the exact width (outside) Product Description 20" but Product Dimensions say 22" Please give exact width please?
+- Is this compatible with Whirlpool Mod# WDT910SAY3?
+- Does it come with mounting screws?
+- is this the lt600p?
+- Can anyone tell me what's the minimum height of this hood? I have a very low ceiling and the height of the hood has to be less than 25 inches. Thanks
+- what are the inside Dimensions and Outside Dimensions
+- Is this just for small spaces (like a cigar humidor or guitar case) or can one use this for small rooms (12 x 15, for instance)?
+- energy star?
+- Did anyone have mold problems inside the machine?
+- Will this fit my Frigidaire FRS26HF5A?
+- I need a tank model no. is G6A-7.Serial no. is 96202339352 capacity 6 gallon.Do you have one and what is the price?
+- Is this compatible for Kenmore #9010, WF-NLC250? If not, what do you have that is? Thank you!
+- Is this a clip on or a screw together?
+- If the wsw-2 filter is new, why is their a difference in price? $16.22 verses $14.94.
+- is there any alarm during high or low temp.?
+- Will this part fit Whirlpool Model MH6140XKQ. If not, do you have a replacement Grill Vent?
+- Will this work for a GE XL44 Model JGBP79?
+- Will this filter fit my Whirlpool GD5SHG Refrigerator Freezer?
+- Is this stainless steel?
+- Is this a replacement knob for my GE JGB900 series (4 years old) gas range? The original knobs have a "half" moon type of opening on the back.
+- I noticed this morning there was moisture on the inside of the jar I keep them in and they feel hot when touched. Is this normal? Are they still good?
+- Does this fit Kenmore Elite refrigerators?
+- frigidaire gallery stove/fges3065kfc/is it any good?
+- Can an electrician install this or do you have to call GE?
+- what were the with for the jenair in 1982
+- Im installing my new dishwasher ther is already an old copper tube in good condition I have a new braided type waiting but which is better
+- Does the fridge have sides or is it just the raw insulation on the sides? I will be using this for an off grid house, not RV so the looks of the sides matter. Thanks!
+- Do you know if This type of drain hose can be used for portable" Magic Chef " washer machine?
+- Will this unit extend to fit a 9 foot ceiling?
+- does this fit insinkerator evolution essential?
+- What does the P stand for at the end of the part number? my old cartridge does not have a P???
+- Hello I am looking for sonya portable mini dryer 110V 13lbs capci, is it the same as that? Thank you
+- my oven will not reach the temperature you set it for do i need oven sensor
+- does it conduct heat - will it accelerate counter peeling next to the stove?
+- New icemaker. Installed. Trip lever is down, ice ejectors are up. How long before I should expect to see movement.
+- my edgestar kegerator is making a loud popping noise about once every couple of hours
+- what's the exact outside diameter? exact 8", or 8"1/4? from the sized photos from another website, it appears bigger than 8". pls confirm
+- what are the dimensions?
+- How to set for seconds
+- I get a puddle of water on the floor when I use the water dispencer. any help?
+- Is this ice maker exactly like the one pictured in the add with the on/off switch on the front and the plastic ice level paddle underneath?
+- how fast is it shipped?
+- will these range replacement knobs fit a tappan electric stove ?
+- What is the correct water filter replacement for this model?
+- Will this fuse fit my Kenmore Elite model #665.15932000
+- Does this display temperature in degrees celsius?
+- Does this pump fit model# WF316BAC/XAA?
+- What are the dimensions?
+- would you buy another one?
+- Has anyone used this to wash bed linens? Can you fit a queen sized microfiber blanket in it?
+- How long is this basket?
+- how do I make the LG machine washer front load take more water?
+- What are dimensions
+- Can this be washed in the dishwasher
+- Average wash time for Whirlpool #WTW485OBW1
+- specifications, HWD?
+- Can anyone let me know the tub you use that attaches to this product successfully?
+- Clock keeps army time can it be converted to standard 12 hour
+- will this ice maker fit a whirlpool GS6SHEXNBOO?
+- I have 2 bathrooms back to back. One vent is 3", the other is 4". Can I use this vent to tie both vent lines into? Its less work to use a single vent.
+- Does it fit dryer DV209AEW/XAA?
+- Will it fit a GE model JMS 07-001 AD ?
+- Can these be used in a gas oven safely?
+- Will this fit Kitchenaid Blender model KSB580NK0?
+- Does this fridge have an on/off switch for the ice maker?
+- will this work in place of the W10140917 Rev E. The photo looks the same but there is a 40$ difference
+- Will this motor fit my coin operated GE electric Model DMCD330EJ0WC
+- i have a glhs68egpb5 refridgerator by frididaire, is your 5303918344 ice maker for this fridge?
+- Does this work with Whirlpool SF362LXSY?
+- would this fit a Whirlpool WRS325FDAB 25.4 Cu. Ft. Side-By-Side Refrigerator?
+- i have model LGQ9858LW0 that will work
+- is this for filter model 9000 225 170
+- Will it fit Frigidaire model fdb956rbc1?
+- my filter # is 9999. the shown filter fits mine?
+- I have a 9' ceiling but this product only fits 8-8.5' ceiling.Does anyone know which extension to buy that would work with this model 198KN3 30".
+- Is this a good replacement hood for a Ventline range hood?
+- Again, how tall is the TV?
+- Does it work on 48in GE Monogram fridge from 2004-2009 models?
+- installation of Ice door Flapper on a GE refrigerator
+- does it have a basket or bin for emptying extra ice into freezer?
+- does this element have any type of warranty
+- what is it's dimensions?
+- How big is the opening through which you put clothes in the dryer?
+- What are the diminsions?
+- Can this by used as a ductless system? If so, what additional parts are needed?
+- How cold can it get outside and still protect the faucet?
+- Seriously? I bought this exact same freezer for $189!
+- hookup: Is it possible to hook this machine up to a regular Washer/Dryer hook up area?
+- Please are its legs placed at the circumference or are they moved towards the center- I ask as I am going to place another shallow drainer beside it
+- I received my Panda washer and have all ready lost my instructions! Do I fill the water to below the lint trap or just above it? Thanks!
+- Does this fit model 106. 595592992 kenmore
+- can show temperature in Celsius degrees?
+- does this unit have ss hard food disposer?
+- Is this stainless steel? Does it rust?
+- What is the difference between the Culligan IC-1 EZ filter and the RZ-1 EZ filter?
+- How to change centigrade to fahrenheit - instuctins in Japanese!!!!
+- Do you need special laundry detergent for the washer? special fabric softener?
+- Is this model 32 inches wide or deep?
+- Could you tell me how close the back of the refrigerator can be to the wall? Thank you! Debbie
+- does this work with frigidaire model FEF336ECE?
+- will this part fit model plhs67egs84
+- Does it come with a carry case
+- Does extended warranty cover complete set? Did any of you buy the warranty &amp; has it been worth the money spent?
+- I have tight space requirement. How many inches of clearance is required behind for hook-ups?
+- how do you know what the coldest setting is on the temperature knob?
+- Will this pump work in Model# WF317AAG/XAA Samsung?
+- Will it hold a temp. Say 180 F? Or will there be a fuxuation going up and down to maintain a temp?
+- do you have deforst?
+- The dimensions are not very clear in this ad. The space I have available for my fridge is 69.75" h x 36" w and 30"d or deeper. Will this fridge fit?
+- Does this mounting mechanism accept 1/4 females for input and output, or does it use copper tubing?
+- Can you tell me if the gentle cycle is in fact delicate on clothing? Worried the agitator might damage delicate &amp; expensive clothing. Thank you!!!
+- Will it push water into a sink(higher from where dishwasher is kept)?Or will it need any plumbing work to fit pipe to drain?
+- Will this fit a maytag 300 series model MDBS5561AWB? Their part number is 99002995
+- With, or without the white plastic? Confusing, since there are two versions and pictures. Older one comes with WHITE plastic back and newer does not.
+- Does the cooler have a humidity control feature or keep the humidity level constant at 70%
+- Do you ship to Switzerland ? if so, what is the shipping cost ?
+- Will this work on a 555SS Insinkerator disposal that is jammed?
+- Does it have all of the parts needed to replace the entire ice maker? Was anything else needed?
+- can i just plug it into the wall.
+- Does it work on the wall outlet
+- What are the different colored round "things" for and do they show or do they go underneath the knobs? Thanks
+- Does the unit come with the rubber collar or do I need to buy that separately?
+- In the pic "downspout" on the right - is this part of the filtering system or is this MY faucet? - No side view avail.
+- Is this the correct replacement part for Oven Range Model JBS27WY3WW? The last thing I ordered did not fit.
+- How noisy is this machine? Would you put it in a room next to your bedroom?
+- I have LG model # LFC20770ST. What water filter do I need
+- cost for a new water filter ?
+- I have a Whirlpool ET22DKXFW00 refrigerator. Will this ice maker work?
+- Will this work for a kenmore ultra wash HE dishwasher?
+- I have a year old Black Ice French door Wirlpool refrig. How can I find out if the filter fits this model?
+- Will this fit a GE drier model no. DWSR483EG8WW?
+- Does this stacking kit work for Whirlpool Dryer GGW9250SU ?
+- Will it fit for Whirlpool gold Model GH4155XPS-0?
+- Can this element be used on the top of the oven?
+- does this cooktop have pilot lights?
+- Some of these products do not recess completely in the wall..sticking out as much as an inch. How much remains outside the wall on this?
+- If you use this for homebrewing with cornelius kegs, can you tell me how many kegs will fit in this freezer? Thank you.
+- is this a back exhaust
+- will this work for NXR range?
+- Hi! Can I purchase an extended warranty from you as well?
+- How does the cover control work? If you have to keep water running AND put the cover on how does the water get into the disposal while its running?
+- How to install ice maker WR30X10093 in a refrigerator TFH30PRTAAA? The old one was WR30X0310.
+- The self cleaning cycle won't work on my Maytag oven. It shuts off after 10-15 seconds. Micro switch was replaced-didn't help.
+- Will this icemaker work with any maytag refrigerator? The model number on the fridge is MTB1954DkR
+- Will this fit model pyet344ayw maytag dryer?
+- Will this work with the wm2350hwc model dryer?
+- My part # is 297366100 is this the right replacement part
+- Could you be more clear regarding holes in the mylar vs holes in the foil and what makes your product superior?
+- does it fit 4396841
+- what are the dimemsions ? wondering if it will fit myKenmore
+- I just got this washer. I want to know can you use bleach to wash white clothes in this machine.
+- Is it 6 inches long or six feet long? thanks
+- I'm looking to install this under a wooden bar. Can the taps be removed/moved to the top of the bar with just the tubing leaving the kegorator?
+- what is battery life of the lr44?
+- Would someone who purchased this washer please measure the length, width, and height of this product?
+- What are the dimensions of this unit? The description says this 0.3 x 78.5 x 29.7 inches, but that can't be right
+- is this OK for outdoor use
+- model number
+- it says built in. At 2.25"h - 0.75"h granite top - 0.437"above counter = 1.063" below countertop, but it instructs to leave 4" around for air. How??
+- Does this only work with the CO2 treated Heineken and Newcastle mini-kegs or can you plug in any Mini-Keg on the market or a homebrew?
+- Is the door reversible - need left side hinges?
+- we have a maytag dishwasher model dwv7702 that needs a gasket. will this part fit it or can you tell me which gasket that you sell that will?
+- Does the latch assembly come as pictured, with the switches?
+- Does this fit Jenn Air Model S136?
+- Will this fit kuds03ctbl2
+- Does it fit the model number JBP84SM2SS?
+- Will this product work in the U.S? Confused about the voltage
+- will these burn at high tempature
+- I was wondering if the ice is hard enough to serve to my guests for their drinks. I don't want soft ice, it has to be hard for the drinks? Thanks Julie
+- Has anyone used this filter for the Broan F40000 series
+- Will this work to replace 740560 filter?
+- Can this be ductless also?
+- Does the door open in the front?
+- Is this product made of plastic? I am looking for these in actual chrome not just brushed.
+- Does the unit come with mounting brackets for a boat installation
+- Is this compatible with a Maytag Neptune MDE3000AYW?
+- Is this valve compatible with Whirlpool SF367LEMW1? It is not the same part but could I substitute this one instead?
+- Does this come with different color faceplates?
+- Will this work with kenmore dryer 101.85872401
+- Do you remove old refrigerator
+- is it under the counter or portable?
+- does it read in celsius?? does it read in celsius??
+- will this fit model Amana ASD2422WRB01, says # 2174109A
+- The drip pans are wide enough to for my stove's burners to fit. But what is the distance between the two burner openings?
+- Does this ice maker have a 6 pin connector?
+- We need a dryer vent cover that is a flat attachment to the wall. Is there any protrusion behind the plate that attaches it to the wall?
+- Compatible with HAF-CIN filter? (Samsung RF25HMEDBSR)
+- Does this come with the two clips to attach it?
+- Can you change the tap handle?
+- are they the kind that stay on the burner when the burner is in use?
+- If both burners are used at the same time, will power be split between the two?
+- I work on old Amps, can it test 350 volt &amp; 450 volt capacitors.this question is pertaining to the Atlas ESR 70
+- is this d shaped is this for a jenn air counter top inserted range?
+- how often do you have to change the filter in the HCM-350 Honeywell Cool Mist Humidifier
+- How can we repair the E15 error code?
+- Is the part number the one in the picture or the one in the listing title - Water Pump 3363394 3348015
+- The reviews are overwhelmingly poor. Has anyone replaced this model with something they can recommend?
+- Is it a normal size one? like one that you would use in a kitchen?
+- will this fit model LG LSC26905TT?
+- can this product be used with propane gas?
+- what color is the light? blue? white? I assume it can be set to stay illuminated with the door closed?
+- Should these little 100cc absorbers warm up when exposed to air?
+- My model is a KitchenAid KHMS155LSS-3. Looking for a stainless steel handle instead of this cheap plastic one. HELP PLEASE!
+- I have a strong sulphur odor in my cold water(on a well). Will your filter remove this?
+- Does this part fit Hotpoint model #RB52C3WW?
+- looking for ice maker for amana model # ARSE66ZBS does this product work with chill zone
+- After replacing this part my oven randomly turns off and on while baking. Could this be a defective part? Or a different problem?
+- WHAT GAUGE IS THIS CORD?
+- Has anyone purchased this oven recently?
+- Can this hood be vented through the wall instead of the roof? And if yes, do I need any additional venting materials?
+- Is it auto defrost or manual
+- Why can't this be used in ultrasonic humidifiers?
+- Will this fit model LGUI2149LP0?
+- Is this truly an LG, the LG website does not mention this company, is it really 500 gallons or 300 like the others?
+- Is it ventless?? Ie. Do the two filters absorb all the uptake (smoke,fumes etc) thereby not needing a takeaway duct to the outside of building ???
+- How long will provide a device, I want a large amount ?
+- Some dual fuel top burners will not light during a power outage due to a built in safety feature. Does this one have that safety feature?
+- The part number in the description and the part number in the item title *ARE DIFFERENT PART NUMBERS*. Which is right?
+- does this stove have an electronic ignition?
+- Does this come with the Thermal Cutoff Switch?
+- Is this a replacement for part number 8557850 or 348846. I have Kenmore dryer model number 110.64672400.
+- I need drip pans with three slots for the burner frames to fit into. Are these set up for that?
+- Does this hold all brands of kegs or just heineken? Thanks
+- Is this actually a genuine Whirlpool part? I know many things listed as genuine are actually cheap chinese imports.. thx
+- does this ice maker also keep the ice frozen?
+- Can this unit be converted to dispense wine and how to convert?
+- Can this unit be built into a bar or cabinet?
+- Hi, will these parts fit a Whirlpool model # LXR-7144EQ1?
+- Will they fit the burner grates of a Frigidaire Stove, Model GLGF386DBJ (Galaxy Series)
+- Will this work with DU1301XTV02?
+- After you snap it in, can it be removed later for cleaning?
+- I have an existing concrete driveway I want to install it in. I need to know what size trench to saw cut width/depth.Should I overcut it and backfil
+- Can it work with 220 and 120 ?
+- what country was this manufactured in?
+- Does this come with a cord-and-plug assembly, or do I have to hard wire it in?
+- where do we get filters for non ducted instullation
+- The ice maker stopped working after about 12 months, now it constantly makes a clicking noise every 1-3 seconds. Any ideas?
+- How much pounds of clothes does this machine hold?
+- Does this model have the Hot Surface Indicator Light and the Heating Element ON Indicator Light?
+- Will this fit fggf3032mf gas stove?
+- I have the top load but it has a lock when it starts. How can you get the lock to disengage to put fabric softener in the rinse cycle?
+- I understand there are 3 adjustable shelves inside, what does the door inside look like?
+- Will this fit a Roper microwave model # MHE14XMQ-2 ?
+- My GE Refrigerator Model is PSM27SHSC GS and Main Control Board No. 200D4852G016 (WR55X10552), The question is, the model offer (GE WR55X10942) work?
+- do I need the end caps to properly install this shelf (3201150) or will it be ok without them?
+- does it have a built in water heater?
+- How tall is the tower (to know space needed under the counter)?Also, is there any reason the CO2 container can't go inside on the shelf?
+- Technical Question: water is flooding ice maker/freezer. Should I assume it's the solenoid valve that's failed? Thanks!
+- Will it work with model #PS890565 also will the original drawers fit
+- can this top be insalled over an oven?
+- how long does it take to wash a normal load of dishes?
+- What is the hose diameter? Connection to the drainpipe is 7/8. Hose from dishwasher starts out at 1/2, then goes to 3/4 and then to 7/8.
+- can this control my whole home humidifier as well?
+- I'm looking for something that will stick to the ceiling and hold a lamp. Will this work?
+- Will the 3 pack water filters work in a Kenmore Elite, French doors frigerator, and is there free shipping?
+- Will they fit Thermador?
+- Has anyone tried these to hold 12 ounce plastic coke bottles? Those things just won't stand up on wire shelves...
+- CAN YOU JUST PLUG IT IN ONCE IT IS SEATED?
+- why honeywell quicksteam humidifier leaks
+- Does anyone know the size of these cutouts which hold individual spoon? I would like to confirm they can indeed fit the spoons I have...
+- will it fit in model .#wtw7340xw0 ser.#c04272505
+- Will this work with the JED8130 cooktop to replace the grill?
+- how do you calibrate this meter my water readings r "000" ?
+- does this part fit a cabrio agi model #wtw6300sbi
+- Do the clothes come out linty? I can't afford to buy a dryer yet.
+- Will this fit GE stove JSP34BDW2BB
+- Would this item fit a model FGUS2642LFO (Frigidaire Gallery)? Like many comments, the clear bins are horrible and crack. Is the white stronger? Thx
+- What is the temperature rating on these? Can they be used to filter water from the water heater?
+- I have about 41/2" clearance. How much of this will the unit take up?
+- can it be mounted on pitched ceiling
+- leaking
+- Is this a 10 pack or single outlet?
+- What is the height of the base; we're having a clearance problem with our shutters in the window above our sink and need something about 4 inches tall
+- What size are the burners and what is the largest pot I can put on this stove top?
+- Can I purchase 4 knobs and save on the shipping, or do I have to pay the shipping charge per knob?
+- Is the case made out of wood?
+- where are these made?
+- Is there a back light? What is the warranty?
+- I want to use this filer in combination with the filter in my refrig. Is this possible
+- Does anyone have problem with this range hood going beserk? It turns on and off on its own whenever it feels like it.
+- Does this fit JTP86Bof1bb
+- What kind of batteries does this device use?
+- Where can I purchase an extension for this range hood? Please answer at your earliest convenience.
+- While this product gets many 5* reviews - it's the those with the unit the longest that are giving 1*. Can someone who has had it awhile comment.
+- What is the inside diameter of the dain line?
+- Does this work on the regular house plug?
+- why such divergent reviews???
+- I bought this element, it shorted out anyone know the reason why? It lasted a little over a year, had already installed a new receptacle for the plug
+- does this filter fit model 72053 refrigerator
+- Can this unit be installed with a recirculating kit? Can't vent outside.
+- What type of pan do you use over the bridge?
+- Is this the same thing as a "PAR 16" light, or similar "standard" size? Anyone know another way to buy the replacement (other than Dacor)?
+- what kind of light bulbs does this take?
+- will this fit Maytag PGR4410CDQ
+- will this work on DLG1102W
+- Can you recharge this by plugging into a car?
+- Will this fit a full size leinenkugels keg? We're wanting summer shandy all summer.
+- will it fit 8.5 inches long and 5.5 inches wide
+- will this work with a kenmore model number 79071208703
+- What does your warranty cover and for what period of time?
+- what are the dimensions of this rack?
+- Is the inside able to be cleaned due to the constant flow of water and it will grow mold and become unsanitary??
+- how can you stop the washer from draining out when you want to add an item?
+- how would you rate noise level?
+- My TV is a 51 inch flat screen and sits in a corner on a glass tv stand. Is this a solution for me?
+- Will it fit DEILW-2 MODEL?
+- do i get the plastic piece with the blade _the one that runs trough the center ? whats included in the package
+- Is the face display black or stainless steel color? thank you
+- will this fit my Maytag model CRG9700CAW
+- What are the INSIDE dimensions of this freezer?
+- Is this for 4396841p pur refrigerator filter?
+- How far apart are the screw holes center to center? I need exactly 5 1/2"
+- what are the outside measurements?
+- Do you have to turn off the water supply before changing this filter?
+- What size are the letters? What size is the head (total)?
+- will this work on my magic chef fridge model number CTB1821ARW
+- Can this be used for a 10-0 ceiling?
+- Is it stainless steel? What material is it made of?
+- If a vent is not setup in my apartment, how do I vent the dryer efficiently?
+- Will this fit Maytag model MDG308DAWW?
+- Just bought a GSWF cartridge to fit CSCP5UGXCFSS fridge. Prior I used Swift water filter that was fine. The GE one won't fit any suggestions?
+- Will any of these ceramic drip pans fit a Frigidaire cook top?
+- Will this rack fit GE GSD5650D01CC model?
+- Can the height be shortened? I have a 10 inch bulkhead, so there is only 54 inches from the top of the stove to the top of the bulkhead. Can the hood be shortened to 24 -28 inches? The minimum from bottom of the hood to cooktop is 26 inches.
+- Is this a PAIR of racks, or a single rack?
+- Will this lower dishwasher rack fits my whirlpool model DU810SWLT0? I don't see it listed for compatibility.
+- will knobs fit kenmore#362.75275692
+- Is this unit frost free or auto defrost?
+- Why is this valve not approved by plumbing inspectors?
+- i have a 30 inch whirpool oven, will this fit? i have not measured the racks, just it's a 30 inch oven
+- how is this measurement read for this dishwasher (LENGTHxWIDTHxHEIGHT)? 24.5 x 34.5 x 23.9 inches
+- Does it have a dishwasher hookup
+- Does this work with a KitchenAid KUDC10FXSS5?
+- would you be able to suggest where I can get the cords and venting? thank you, if they are easy to obtain and aren't pricey i'd go with this set :D
+- Does it work with gtdp300gm1ws? Thanks
+- My paddles on the inside two of the three are missing would that make it leak whirlpool duet front loader
+- What size screws do you use to mount the bracket to the filter head?
+- Will this work for a kitchen aid KEBS278ABL-0
+- Can you please tell me the diameter of this? It says 1" which is obviously wrong!!
+- Will this fit on an older GE stove? The original GE stove knob requires a push in, then turn.
+- Does it work with CEM2940TQ0 ? I am buying also 3977767.. Do I need fuse for this dryer ? It's coin operated electric dryer
+- how do you lock the wheels
+- Can you wash cups or other dishes that are dishwasher safe for top rack only? Has anyone tried washing them in this machine?
+- Will this work with a 1992 Magic Chef gas stove, model 34MA-3TKXW? Thanks.
+- Just bought the stainless version of this kegerator - what is the loose metal plate that came with it inside?
+- Will this fit Kenmore side by side model 59651673100? Thanks
+- Could I get an installation manual on line? I missed the hard copy.
+- how to repair the dispenser lid lever?
+- Is this rechargeable?
+- Would these bags be suitable for filling with a boiling liquid? Or would that melt them?
+- does the whirlaway 191 have an internal fuse?
+- Can you sell me the wire that goes to the thermostat with 3/8spade and 1/4" spade connectors? Thanks!
+- description says halogen bulbs, but they are not included. Is it safe to assume that I can use a CFL, or LED bulb (medium base) in order to save elect
+- What is the hose made out of (plastic vs steel)? I have the Panda non-automatic washer and the hose was a plastic, flimsy white hose. Same hose?
+- This looks like pretty solid metal tap. It does not look as though it is easily opened &amp; closed by one hand. How do you actually use it?
+- Does this model have the damper included for the seven inch duct.
+- Will this fit my dishwasher GSD4010z05aa and is this a genuine ge part? Thanks
+- I have an older model Waste King "gourmet" disposer installed in 1997 and need a new splash guard for it. This one LOOKS the same, but will it fit?
+- Model CSHS6UGZB do you know what water filter plug works on this cafe model refrigerator?
+- is this one item, or two drip pans?
+- Does it share the same template (duct cutout size) as the older model #56?
+- How do they measure the 8' length? (*INCLUDING* or *EXCLUDING* the curved hanger section at the end) I need to know how long the corrugated section is
+- Will this griddle fit model FGGF304DLF? Its center grate is 18.75" D by 9.25" W in center. It tapers to 8.5" W at ends.
+- Will this filter work on an Rfg295a
+- Do these filters go in the bottom grill or in the refrigerator? We have a side by side.
+- so this one turns the blades in the wrong direction? it turn counter clockwise. which makes it blow toward the water tray and away from the compressor
+- why will my new freezer not cool?
+- needed SinkTop Switch?
+- can a fullsize comforter fit and wash in this washer
+- Is the agitator supposed to run so slow?
+- how many light bulbs does it use
+- Are the filters genuine Keurig water filters?
+- does the silverware come out clean after a cycle?
+- I have an 8' ceiling, can this be mounted on the wall with only using one seamless piece? It will be vented out.
+- Are the lights dimmable?
+- I have a 7ft 8in ceiling. Will this range hood work for that? Also, we don't want the hood the hand more than 24 inches from the ceiling.
+- I have a frigidaire side by side ice maker looks just like this can't find a number except on icemaker model #MI 0109031 will this fit?
+- My electric stove is Danby model DER3009W would these work?
+- will this fit Whirlpool Washer model # ghw9400pl0?
+- Does it work with Samsung RF4287HARS/XAA?
+- What are the dimensions of the unit?
+- What is the difference between a regular oven and a convection oven?
+- What is the weight?
+- Will this element work on a Frigidaire wall oven model RBJ G94?
+- Does this have a vacuum switch that automatically turns the motor on when the dyer turns on?
+- I ordered this hood with the carbon filter so i could use it as a ventless,ductless unit, please tell me its possible, Is it ventless too?
+- inside is a white o ring sits on top of the rubber gasket underneath the white teeth. Do i needit if i get this is kit? Mine has broke.
+- does this assembly fit other stoves, esp. Hotpoint??
+- What is the part number for the water filter?
+- I gather that this unit could be installed over a built-in under counter wall oven? But I need to be sure! Thank you for your help.
+- Is this a hard wire installation or plug-in?
+- Is it cool to the touch with your hand when it's on? I saw something like that on tv. Is this the same type of item?
+- Will this fit indoor model numer PS8688061?
+- What is the voltage 110 or 220??
+- It shows quantity "6". Are there six filters for the price shown?
+- Will this fit an ET1FHTXMQ01 Whirlpool Top Freezer Refridgerator
+- Does it use the same amount of dish detergent as the largerdishwashers? Can you use the dish detergent pods?
+- i have the dryer dock but it keeps falling down the lower part why?
+- Does anyone happen to know if this ice maker would properly install into an "Amana TSI22VW" refrigerator?
+- Hi, does this come with a Base thermostat and a portable one? Meaning, does it come with one that goes where the one I have now is,and a portable one?
+- What, exactly, is in this stuff? I can't find that info anywhere online.
+- I bought this item from you and it is not even close to accurate, How do I calibrate it? Or should I just return it.
+- I don't have a receptacle for this unit yet, where on the wall is it best to locate it? thanks
+- Does this handle fit washer model GHW9100LW1
+- Would this filter work on my Frigidaire FRS6R4EW2 refrigerator?
+- Will this part fit on my Frigidaire Dryer model # FDEB23RGS2?
+- will this work on a roper IM#s 106 626636, ice maker has stopped working?
+- I have a GE Profile side by side refrigerator model PSS26MSRSS. The water dispenser just trickles water. It also makes a little noise while it dispenses water. I tried defrosting water line. That is not the answer. The Ice maker &amp; dispensor works fine....
+- What's the fridge temperature? Does it goes down to 40 degrees?
+- Is this one work with Whirlpool GY396LXGQ5
+- Does a regulator come with the cooktop?
+- Would the two pedestals fit Maytag 5000 series?
+- Are all the legs on this (height) adjustable? Just wanted to confirm before ordering since I have a considerable lip to my sink.
+- will this fit model kdfe304dblo
+- Just bought this, installed it but the water tastes horrible. Same as tap. Anyone getting this issue?
+- does it dry also
+- I need to get the candy mix up to a 310 degrees F. Will the new induction cooktop make things that hot?
+- Do you guys send to GA.?
+- are the filters activated charcoal or activated carbon?
+- is this replacement for part number w10254338
+- How long does it take to heat up the water in the hottest setting?
+- I have a Kenmore dishwasher model# 665.13732K600. Is this the correct detergent dispenser for my dishwasher?
+- People have mentioned that water drains very slow with this disposal, will this be a big problem in a single bowl sink? (Have the Kolher Stages sink)
+- what are the dimensions
+- How small is the ice on the smallest setting? Is it comparable to Sonic ice?
+- will this work for Kenmore model 106.74209402 ?
+- will it work on Magic Chef oven model 8114P732-60?
+- what type of Samsung refrigerators does this fit
+- can you install this under a counter
+- where is the dyer lint removal
+- Does this vent externally?
+- Are they machine washable and reusable?
+- will this one work to replace the badger 1 1/3 HP
+- does it melt after a while?
+- I have the Portable Comfort Control but I stepped on it. If I replace it with a new one, is it easy to set up?
+- I bought the crane drop shape humidifier 2012. Will this filter fit?
+- can it be switch in Fahrenheit as well as C?
+- will this hold champagne bottles?
+- Is this a genuine Broan part or a third-party "knock-off?"
+- Will this work with 84" ceilings/7ft? It appears to come in 2 sections. I'll be using ventless.
+- can you fry chicken etc. in this cooker
+- Are these hose made in the USA
+- Need recirculating kit?
+- Will this fit a Kenmore 10657572790? I believe it is a Whirlpool. the existing dead one has no part number
+- I've never heard of "Danby". Are they a reputable co.?Would this refrigerator be considered "top-of-the-line" "cheap-disposable" or something between?
+- We use a hand held steamer on present glass top. Do you think it would be okay to use on this surface?
+- Does this hood mount on four corners around the motor? does it have a short 6" duct attached to the motor with a damper built in?
+- What is the BTU range?
+- how much detergent do I use in the Danby 1.7 washer?
+- How do you deal with the washer spinning out so much that the clothes are horribly wrinkled?
+- will this kit work on whirlpool lg5701xswo dryer
+- Will it fit Samsung model RS265TD?
+- What are the dimensions of this item?
+- reduction in lead
+- Has anyone replaced an Insinkerator 444 with this model?
+- what size is this gasket
+- Can you please state in the description the type of nuts. male or female plugs this In-line water filter requires "OR" show a close-up (bottom &amp; top)
+- Does not reset??
+- Will this work with a 2-stage Bryant AC/Heat gaspac? The thermostat the dealer installed is programmable and we don't need it.
+- Dose it come with a Indoor Dryer Vent ? and Is it easy to clean the filter net?
+- Does this fit the GE JBP24B0H1WH?
+- Is the smooth cooktop suitable for cast iron or heavy pressure canners?
+- will this fit Frigidaire FRS6HR5JB4?
+- I have an older GE refrigerator. The model # is TFX26ZPDA BB The serial # is SZ22137. Would this filter work for our refrigerator?
+- Will they fit a Whirlpool RF365BXFN?
+- is this timer good for ouydoor use
+- How many filters are included in an order or what is the quantity?
+- will this filter fit a kenmore
+- What space (W/H/D) shall be provided for installation of the GE PYE23kSDSS refrigerator?
+- Will model MH7110XBQ-6 fit?
+- will this fit my washer 110.47089600?
+- is this compatible with RFG238AARS?
+- Where do you get Parts
+- can i use cast iron cvookware
+- Would this replace the drain pump whirlpool part 461970201671?
+- Has anyone had any issues with the filter having a white grease like substance on the little black gaskets that are on the end "nubs" of the filter
+- what are the dimensions?
+- what are the dimensions
+- Will this fit Whirlpool dryer model GEC9858EQ0?
+- is it 110?
+- my panel keeps flashing 5d. there is no 5d. I called your 800 number and they checked it out and they agreed that there is no 5d. so now what!?
+- Can you use one pedestal with a stacked set of Whirlpool Duet Sport wash and dryer?
+- Will it reduce sulfur smell?
+- My new amana fills but will not go to wash cycle???
+- My whirlpool washer model is WFW9150WW01, will this bearing fit?
+- What grid filter comes with this model?
+- What are the measurements of the mounting hole?
+- I have a ceramic top free standing range and need some thing to fill the gap between the range and counter top. Are these heat resistent?
+- what is the largest quart pot can you use
+- Do they come in other colors?
+- Can I purchase replacement heating elements. For the Wall Lenk 125 branding iron?
+- What size are the "cut-holes' for this cooktop ? I want to make sure it will fit into the space.
+- Does the basket have compartments under the "flaps"?
+- can I use non stick pans?
+- Is the tower tall enough to run up through my counter if I install the kegerator under the counter?
+- is it going with the filter or not.
+- does this contain 2 filters? There are 2 filters measuring 6.5x5 inches that came with the humidifier that fit into the filter space.
+- Do these hang from the ceiling? I have a window behind the stove and intend to vent out above it. Any thoughts?
+- Dimensions: what is the width, depth, hight in inches
+- My dishwasher has such a strong suction after running a load that the door is hard to open and then rips the gasket off when you finally open the door
+- Will it replace Whirlpool Filter 4396701?
+- Will these fit the HWM-450?
+- how much ice does it hold, and do i need to run a water line to it, thanks
+- is it plug in or does it need to be wired?
+- Will this work for Kenmore 110.68722700 ?
+- Can I use this with two iphones instead of an iphone and an ipad?
+- Is the ice solid and hard or is it chompable? I would love true nugget ice but only large commercial machines make it.
+- The depth is listed as 30-34 inches. This model is "counter depth" and is listed to have a depth of 24.13" without handles on other sites??
+- Why don't reviewers mention the stove model that they were trying to fit? Remarks like: "They didn't fit my stove." don't help much.
+- I have a plain concrete driveway, could I use this to pour over the existing driveway to get a design? Ergo: The weight of a vehicle?
+- How do I remove the front?
+- Does anyone know if this work on a Roper RT 18dkxkq03? Thank you
+- Does this filter have a handle or recessed handle to turn the filter and lock or unlock it. I can't see one in the picture.
+- Will this fit a whirlpool side by side model WRS586FLDB00
+- Will this fit my Whirlpool Duet WED9500TW3
+- Will this rack fit my GSD3460GOOSS dishwasher?
+- when i add this to my cart, it shows a picture of Intelli DM8lt - is this truly a recent model Intelli IMT-301?
+- Can I use this if the two are stacked? Will it support the weight? Thanks!
+- Can this be used as a ductless system? If so, what is needed?
+- I would like to buy replacement baffle filter for Cavaliere-Euro SV218D 30" Stainless Steel Wall Mount Range Hood, what is the price w/ shipping?
+- Does this work for my whirlpool wed9400sw1?
+- Getting E1 error on dishwasher will this fix the problem?
+- I have a 7ft ceiling. can I cut this to top of the chimney to fit it.
+- Is there an option to use it with normal washer connections (separate hoses for hot water, cold water and waste water)?
+- Good Morning, I would like to know how's packaged for delivery? can I get it in a plain box no details on it? advise, thanks
+- will it fit maytag bravo 300 series dryer?
+- How often does it need to be cleaned out?
+- If any one switched out the lights, how did you? and mine only shows military time does all do this?
+- Is it recommended that for a 2-zone house (upstairs and downstairs) that you get two of these units?
+- does it have a built in agitator?
+- My dorm limits the amount of amps to 11 or less. How many amps does this fridge use up?
+- The picture shows a box that reads " CaIiber IV" but the post says it's a "III"; please explain this discrepancy. Thanks
+- Can I screw on different Tap handles?
+- How big a bucket should be to use this washer? Of course bucket... (This was auto correction.... which annoys me)
+- how much does it weight
+- what is manufacturer's warranty?
+- do you have this in chrome and longer than 20 1/2 inches?
+- Will this repair kit work on Whirlpool Ultimate 2 LS090 10PW6? Thank you
+- can unit be mounted directly to ceiling, which is vented?
+- How much ice the ice maker can make at once? Thank you in advance for your answers!
+- Thermador fridge. Model Number: T301R70NSP/08. Need water filter. Thermador's item number is 740570. Bosch makes these. Part# and cost or link. Arif
+- Ultrasonic vs electric
+- I have a Millers rubberized 7.5gal. keg. Will it fit?
+- how far apart are the screw holes?
+- Can this range hood be installed NON-VENTED???
+- how many filters comes with one order?
+- What is the height?
+- Will this heating element fit a GDE309? Thanks!
+- is the curved part stainless or glass
+- Does this chamber have fit with system one 60 Series black cover?
+- Is this product compatible with DA29-00003G? The description does not seem to indicate this but when I did a search, this product appeared in the list
+- does this work for a KHMS155LSS-3 Microwave
+- How do you change the temperature reading from centigrade to Fahrenheit ?
+- Is This Door Bin a match for FRS6HR5HMB5
+- This is 16 gauge? I noticed the one I have on my existing disposal is an 18 AWG cord. Do I really need to replace it with a better gauged one?
+- Is this the OEM?
+- do the pedestals are necessary?
+- does this replace ps404017
+- what is shipping weight
+- does this come with the cables and hoses?
+- do you have to use halogen lights or can you substitute LED?
+- can the flip down lids be removed?
+- This looks as though it would work, but will it replace part number 22001138 for Maytag LAT9804AAE?
+- Does it have a Fragrance?
+- Are the upp and lower ovens are BOTH gas and convection, or just one or the other. Can anyone clarify? trying to decide between this and profile.
+- Will this work on my Hotpoint glass top--model # R B 790D T2BB?
+- Will this product fit my G.E. dryer? model# WSM2420TAZWW OR model# WSM2420TAACC serial# RR600228Z Thanks,
+- How does it do with noise level? Does it run quiet or does it make quite a bit of noise?
+- Is there any advantage having a LCD display unit over the standard button unit. Also handy man is asking $600 to install it with vent. Is it fair?
+- Will this work for Kenmore 110.68722700 ?
+- Will they wash and dry a comforter?
+- will this fit modle pavt234aww
+- Why can't I use it in a vaporizer
+- will this work in model FEF375bhbb?
+- What kind of detergent is recommended? My building has one of these, and my clothes are not coming out very clean at all. Been using ALL clear packets
+- is this a charcoal filter&gt;?
+- Would it rust?
+- Does it have a jack for external power yet? I have one of these a couple years old and the batteries don't last very long.
+- What kind of filter does this have in it.
+- In the ConsumerReports 2014 Buying Guide it shows the "Samsung WA422PRHDWR" as the #2 Top Loader (pg 143). How can it be so good there and bad here?
+- Will this fit a Kenmore Coldspot 106.53644300?
+- I'm upgrading my disposal from a Insinkerator 5 to the Evolution. Do I need to purchase a new power cord? or can I use the one I have?
+- I want to keep my foster kittens from going from room to room; I want to cut the strips to fit the folding doors. Can I?o
+- Is this the correct element for a Frigidaire wall oven RBE E 94?
+- Has anybody kept this in their garage, if so, how did it hold up with regards to frost build up and keeping things frozen? I live in a warm climate.
+- Replacement for r22?
+- does it have 11ft ceiling capability
+- Is this part OEM - and if it is why would it be melting the bottom of dishwashers? - Bad Temp Sensor?
+- my oven model is jbs26w5wh. I need the lower element. ge's site says this will work? wb44x10009 or wb44xk10005.
+- Is this filter type A?
+- What type of faucet do you need to buy so the one-faucet hook-up will fit? Is there a piece you can buy to screw into your existing faucet? Thanks.
+- How do I measure ? I need one Large and 3 small... 10" ~ 6"
+- Can you tell me what the dimensions are on this unit. The details say 6x6x6.
+- can it wash one pair of jeans
+- what is live and what is neutral
+- What is the power requirement for this uniit?
+- Is there a different filter available that removes fluoride?
+- Does the refrigerator come with a waterline or do you have to buy that extra?
+- Why is one filter $30.77 and six are $224.99.? That would be more expensive apiece for six.
+- I have a Frigidaire FTF530FSO Front loading washer. What kit is correct for this model? Thanks Charles
+- Does this price include a power cord?
+- Will this work for whirlpool gold GI5SVAXVL01
+- I have a Magic Chef CTB1821arw that does NOT have a factory ice maker in it. Is this the proper kit to install one?
+- This says it has built in water heater. Does that mean I don't need to use hot water? Do I have to hook hot water to it?
+- Why is water not coming out after changing to this filter
+- My current filter is 4396508, it does not have a letter P after it. Are they the same filter?
+- What is the height of just the door that swings out without the hinge? Feet removable? Trying to fit in a 24" height cabinet face)
+- Is this the correct bulb for a GE Gold Accubake Microwave (interior lamp)?
+- Is this compatible with Frigidaire FPHD2491KF0 ?
+- is this replace Kenmore wf-nlc240v
+- why does ice taste funny
+- What is the front of the door made of,,,aluminum stainless steel other?
+- HOW DO YOU PUT THE WATER IN THE WASHER
+- Please advise diameter and height. Thank you.
+- will this replace a (700854-4 part no.) jenn.air knob?
+- will this fit a Kenmore?
+- Should the filter make a strange "woosh" noise (like air) when putting in the new filter?
+- Will this work with Whirpool Model # LA8800XTWO
+- Will this work on the 36" model? The kit I got from Sears only has what appears to be the 30" part.
+- do you get both coils?
+- does this sump assembly fit LG dishwasher Model LDF6920ST?
+- Will this work to connect a WGD9200SQ0 to a WFW9150WW00 washer?
+- What about installation? Will they install it on delivery?
+- Is the frig door bin large enough to accomodate milk gallons?
+- Does this unit have an automatic shutoff. If not, what Honeywell units do have automatic shutoffs?
+- Does it come in white?
+- Whe the oven fan kicks on, does it affect the flame on the burners
+- How heavy is the base? If I have this sitting above the dryer on the back of the washer, will it topple over?
+- Is the power cord included ? Thanks.
+- can you still slide the machine into place with these pads on? My washer is up against a wall and I won't be able to access two of the feet
+- Will this fit Whirlpool #325FDAB02? It's the same part number I got from the place where I purchased the refrigerator, but I don't see this model num
+- Is this filter can replace ( P4RFKB2 or P4RFKB12)
+- Will this fit a Kenmore Elite HE3 model 110.42832 200?
+- Will this motor and motor electrical board work on my front loading model MAH5500BWQ? any issues?
+- What depth in inches is this model?
+- Frigidaire's website shows the depth as 21 3/4, this description shows 21". What is the exact depth?
+- where is the vent on this mircowave, top or back?
+- What are the different colored round "things" for and do they show or do they go underneath the knobs? Thanks
+- I have a Frigidaire DW model # FDB1500LFCO and need to replace the bottom rack. Does this rack fit my 2008 DW? Thanks!
+- left side broken on this part, handyman came and replaced this with W10350376, now right side broke, is it the same part as left side ones ?
+- Does this product ship with one or both filters?
+- Will this periscope be long enough for Whirlpool washer model no.WTW4800XQ 27" measuring from the center vent? Thank you.
+- Will it fit Frigidaire Model # FRS6R5ESB6?
+- Can I switch a 5 volt mini humidifier in an incubator with one of these?
+- Do you have the kit for wfw9750ww01? thank you
+- will it fit range ffef3018lb?
+- Does this fit a GE Profile gas range with number 183D8269 stamped on the back?
+- Does it get all of the detergent and softner out when rinsing the clothes?
+- Does the disposal need a power cord or is it direct-wired, installation design
+- I bought one of these and it has never moved from 60 degrees.It's 32 outside. Isn't there suppose to be a little coil thing on the back?
+- This Broan undercabinet range hood takes a 75 watt bulb. Standard base? Will a CFL or LED physically fit in that space?
+- is it a chest freezer or does it have a door???
+- hi will it fit whirlpool gh7145xfb-1 grille
+- Is it possible to use a bucket to fill the machine and drain into another bucket or would it malfunction due to it being automatic?
+- Hello As long is it?
+- How long are the hoses?
+- The photos show lights in front. Why is everyone saying they are in the rear!
+- DOes this kit include the leveling system?
+- Can I wash straws in these, or are the openings too big? My current dishwasher basket the straws fall through the holes on the sides/bottoms.
+- Can this dishwasher sit on top of counter? Are the top and sides finished I have a bad back and this would keep me from bendin over so much.
+- Will this work for a whirlpool lgb6200kq0?
+- Does this machine get installed under the counter? I need to replace an under counter washer...
+- Could this be installed directly under a kitchen sink with garbage disposal?
+- Does this filter work for Bosch b22cs80sns?
+- can the freezer door be reversed to open the opposite direction?
+- Is there a bread proofer
+- Is this for the wfmc 5801uc/15?
+- Are the door hinges made of plastic or metal?
+- Does it have solid prongs or looped prongs? I just purchased with solid prongs and to does not lay flat
+- u dont got to hook it up to the sink do u for the water to go in and does it drain all the water out of clothes like a reg washer does
+- What is the recommended distance from cooktop to the unit itself
+- the pump we took out of our washer says 120 V AC-60 Hz 80 W CL.F..this pump looks to be the same? our washer model number is nfw7200tw , should work?
+- GSWF
+- Will this range hood work for a 7ft 71/2 inch ceiling? We also do not want the hood to hang lower their 22 inches from the ceiling.
+- Will this part fit GE Model # GSL22JFPHBS ?
+- I ordered this one, but it has the wrong gender connector. Is the polarity critical when I solder on the old connector?
+- will this work for amana model DRS2660BW MFG# PDRS2660BWO Serial# 10943532CE?
+- Will these work in the Kuerig single cup maker?
+- Does it connect w/ aluminum hoses?
+- what is the product dimensions
+- Will this pump assembly fit a Maytag 4000 ModelMHWE450WW01
+- what size is the spacing between the racks?
+- Need to replace broken crisper pan for frigidaire model lghs2665kf1. what is the correct part #? thx
+- what is the inside and outside diameter of this item?
+- warranty
+- WILL THIS FIT MODEL (P) MSD2641KEB ?
+- Can you use two burners at once with a cast iron griddle? Is it picky about matching the size of the pot to the burner size?
+- I'd like to convert the beer line for use with corny kegs. What size barb fits the beer line?
+- my current filter says haf-sin/xme and da29-00020a/b. is this a compatible replacement?
+- Is this part the same as 5303276601 safety valve? Looking to fix my Tappan oven. 76423223/08011-85029375. Thank you!
+- I have a jen aire and the knob looks like this and the number on the bottom is KIP 5D75 will this knob work? I know that whirlpool makes jenn aire
+- arrival time
+- Do doors pop open when other door is closed? Saw floor model &amp; when I closed left door, right popped open &amp; vice versa.
+- Can you pull the shelves out to customize space in the unit for say a gallon of milk?
+- What is the warranty?
+- What is the actual height of the fridge unit (minus the rack and the wheel space)
+- We have a Kenmore ultra fresh model 106.56666501, is this the right part?
+- What is the brightness of those two LED lights (W equivalent)? e.g. 2W LED is about 20W euivalent. How easy can I change to more bright light?
+- What contaminants does these filters reduce?
+- Will this rack (WD28X10335) fit my GE dishwasher model GSD4620Z04BB? My rack has 6 rows of upright posts not 4 as the one shown.
+- is this for cold water only?
+- Will the original ice maker "stripper" work with this replacement ice maker? The stripper strips the ice from the ice maker mold. Thank you!
+- Will this work for Model #6600SW2?
+- TROUBLE SHOOT
+- Do you have to plug this into a wall hookup or can I set it up in my bedroom/ or bathroom?
+- I have Frigidaire Model #FGX831CS0, and every search states this is the bearing kit model for my Frigidaire dryer-washer combo. Can you confirm this is the right part?
+- will this kit fit Whirlpool WED6400SW1 ?
+- is this come with wanrranty or i have to buy the warranty service?
+- How do you set the time? at first the time was accurate and now I can't reset/fix it.
+- will it fit a 70 series model? Thanks
+- My Hotpoint stove is model RB790SH4SA needs a Broil element, will this one work or do you have the correct one? Thanks
+- Can I use this in a Waste King Disposal? The one that I have does not allow water to drain.
+- can the oven work with propane gas only
+- What is the right temperature setting for an upright frost free freezer (Frigidaire)
+- Can someone tell me if this Badger 5 disposer is simple to replace (with my old broken Badger 5)? (i.e. Can I do it myself vs. hiring a plumber )
+- Is a scooper included?
+- Does it work on lgLFX31925
+- Is this a smooth touch can opener where the lid doesn't fall into the can?
+- Can I use it inside an oven?
+- How often do you change the filters?
+- Have whirlpool lde6400w1. is this correct element ?
+- Is this the same as 2972411400
+- I need a built in dishwasher we have a Maytag which never performed well and is a piece of crap. What is out there for a family of four...we do dished 2-3xs per week.
+- I have a whirlpool "super capacity 465" stove and would like to get 2- 8" &amp; 2- 6" with pans: the "Y" type, do you have sets? can you supply these?
+- what is the warranty period
+- What is the warranty for this product?
+- will this fit Hotpoing R B754 0Y3WH (serial av289911Q ) ?
+- does this comes in set of 4 or this price is just for one ??
+- will this work well in a two car garage that is adequately vented with 'whirly type' spinners in the roof?
+- will it work for model #11062722101 #348850?
+- None of the pictures show the tank, just the tubing (which I don't believe I need). Is the big tank actually part of this?
+- Will this fit a 3 1/4 opening? Thanks
+- will this one work if the vent is coming out the ground
+- how is the apif 300 iron remover filter system?
+- Does this fit JBP24B0H1WH?
+- what does after market mean
+- Who makes this part?
+- Is this replaceable with WR57X10032
+- Will the unit also control a humidifier?
+- Does this filter work with a Pro Care PCCM-832N cool mist humidifier?
+- Will this works on my Kenmore Elite Oasis HE washer Model 11027092603
+- Is it true that this runs off a battery?
+- will this work for whirlpool model LA8860XW?
+- which washing machine has leading reviews?
+- do tines in back of rack fold down
+- What is the width / diameter of the stem that fits into the grate? (I see several different answers below)
+- Will the 6 and 8 in units fit Fridgidaire model FFEC3603LW?
+- how are whirlpool washing machine reviews?
+- The faucet adapter does not fit. Anyone know how I'm supposed to know what size I should get? Nowhere in the manual does it say what size this one is.
+- my waser model # is wfw8300sw is this the right door latch?
+- Is this the part I need to replace the ignitor on my KitchenAid gas cooktop model KFGS366VSS ? The front left burner will not ignite.
+- need motor only m008 15 watt 120vac is motor only available ?
+- do you need to turn off the water before replacing the filter?
+- Where do I find installation instructions, I have misplaced mine...
+- Is this company, EUREKA, related the vacuum cleaner maker?
+- Do I need a different regulator to run two different kegs?
+- Does it come with beer? If so, what kind?
+- Hello, I am looking for this model # in a kenmore: 240534901. Yours says Electrolux. Is it the same? Thks, Elizabeth
+- Well this motor fit my maytag dryer the model on motor is s58nxmmy6739 the dryer model is pye2200ayw if not do you have any motor in stock
+- Does this fit a Jenn Air refrigerator
+- size
+- How is this refrigerator shipped? Via amazon's normal UPS method?
+- Is there an applicator brush?
+- Is this compatible with t36it800np?
+- How do I know if I have a cap. starter motor? I have a small cage blower from a hot water tank. it is 110/220. I will use as 110.
+- I would like to know if this dryer provides it own hair dryer, I do not own one?
+- How to vent this dryer? I"m thinking about getting this dryer, but i don't know how to vent this dryer.I live an apartment and I dont have an exterior vent.Do I need buy vent kit or not?
+- Would this filter work on my Frigidaire FRS6R4EW2 refrigerator?
+- How do you fit it into an area that is not the exact dimensions of the cutout? ex area needed to be filled is 48 inches by 37 inches.
+- Is this a drip pan and ring combo?
+- Is this easy to take apart to clean? And how well does it drain? Or should I just get one without the tray?
+- Will this part work for a Frigidaire washer Model# FCCW3000FS ?
+- Will this fit a whirlpool front loader WFW9400su01
+- This is listed as an electric unit, however under your technical details fuel type says "Gas". Could you please explain?
+- kitchen aid refrigerator model #KBFS5EWMS10 Will this filter work in my refrigerator
+- CAN I use it for canning fruits and vegies
+- Does your filter -filter out the same things the GE filter does? if not, what are the differences?
+- Is this cast iron or cast aluminum? Thanks!
+- My racks measure just over 24" wide and just over 16" deep - will they fit my oven?
+- how many knobs comes in a pack
+- Will this work on an Amana cooktop?
+- Will it work with model wf337aar/xaa
+- Does anybody else have a problem with the chrome/stainless steel strip on the lid? Mine is all scratched up, from little use!
+- In purchasing the optional Stainless Steel Baffle Filters (Cavaliere D-IM) how many are needed for SV218D-I36?
+- do you have to hook it up to a vent or is it ventless?
+- Does this set come stackable
+- what is the height and width (exterior)?
+- I got this fridge in jul 2011 n the blue display panel is off in certain sectors! Do u have this problem too?
+- Would two 1/6 kegs fit in here? I know I would have to buy a dual tap.
+- Does this work for W10291030? It looks the same.
+- I purchased the part @10189077 Suspension for my Cabrio, Model WTW7800XWO. I didn't have the model when I ordered. Will it work on my washer?
+- The picture illustrates this part as 240v but I need to make sure it's 120v. Can you please tell me if this part is 120v?
+- Help- it leaks!! We just got ours set up today. It works quickly and makes good ice but we can't ignore the leak. Any suggestions for a quick fix???
+- Will this replace Frigidaire part number RIV-12AE?
+- Can it store Ice as well as make it?
+- does this transmition fix my ge td1370db washing machine
+- I assume the cord is removable from the tray, correct? Thanks!
+- Do these filters replace lg french 4 door refrigerator? Thanks
+- Do these fit the Kitchenaid range?
+- I would like to use these for a backsplash. I need panels that are only about 20" tall though. Do you sell panels that would work?
+- will this work for a whirlpool dyrer model ler4634eq0?
+- Everyone seems to be fully focused on the amount of saving! I am yet to see a comparison of the quality of water from the original MWF GE vs. this one
+- is this hood is ductless ?
+- does it check for a leaky cap?
+- stops at rinse and spin cycle, why?
+- dear sir how many kilo metres
+- What's the best way to clean the lines? Also, do I need to clean the lines before I use it for the first time?
+- WHATS THW WARRANTY ON THE FAN AND MOTOR. HAD MINE FOR 6 MONTHS AND THE FAN AND MOTOR STOPPED WORKING . cCan this be replaced for free?
+- Hello. This dishwasher hot de water? I need to know because I haven&acute;t hot water conection to dishwasher.
+- Where is this washing machine made?
+- How many in a package?
+- If these are so great why don't washing machine manuf. just install it in the machine like hot tub manuf do?
+- May I mount this unit over an island or is it just for the wall?
+- What is the fan running while using the stove top?
+- Will this fit model RB787WCWW? Ordered one last week and got the wrong part...it wouldn't fit.
+- Does it have a spin cycle?
+- Do you know what is the hight of this range hood? I need range hood with only 5 inch hight.
+- does it come with the connectors?
+- do you have replacement knobs for hotpoint stove?
+- Does it filter well?
+- Can this be run from a generator??
+- What's the spec of replacemet fuse?
+- Will you deliver it to my kitchen and take my old fridge?
+- I have an outdoor temperature sensor wired in to my current thermostat. Does the Lyric have input terminals for this sensor?
+- How many knobs come with this?
+- how does the self cleaning work and does it actually do a good cleaning job?
+- How do you drain the water from the unit?
+- I see the tub kit comes with a tube of amblygon grease. Should we be using grease anywhere with this bearing kit?
+- are they the original pure source unopened for Frigidaire?
+- I replaced my icemaker, and the valve on the back, but i still fills bucket up with mostly water
+- Does this unit come with all needed parts for installation? If not, what must I also buy?
+- Does this part fit Whirlpool MH3184XPS-4?
+- Does this fit a kenmore 110.97087601 model
+- Question for the pros: Does this heat constantly, or in cycles. If in cycles, how long? Mine is only heating for the first 30 seconds then stops.
+- I have a full size dryer. this product won't work on the dryer?
+- GE
+- Will this fit a DV410AER/XAA dryer?
+- Will this work with a cool mist humidifier?
+- Does the SPT Portable Countertop Dishwasher require a sink with a garbage disposal?
+- Will this work on Magic Chef model 31211XAS?
+- is it possible to take the wheels off so that i can keep the tubes always out ready for use without moving the dishwasher?
+- DOES THIS REPLACE PART 5231JA2002A?
+- I need to cut the chimney as it is too long. Any suggestions?
+- Is it safe for septic tanks?
+- How is dryer working now? I'm looking for a new gas dryer and this one is on my list. Do you have any other complaints about it?
+- I have a GE Profile Arcitica Refrigerator with a top freezer. The fan runs, but there is no cooling of either the freezer component or the bottom part. What could be the problem?
+- Where is the control board located?
+- Do they hook up the refrigerator, the way technician from Sears installs?
+- How often does it need to be cleaned out?
+- if i have a vent that i am using, and i put this thing too. is this will give me any benefit ?
+- My dryer model number is dbxr463eg6ww will this know fit? and does it have the little metal ring that is needed to install?
+- Will this set fit GE model egd3000boww gas dryer
+- I have a GE dbxr463edww and the drum bearing slide slots have cracked. Will this drum bearing and slides fit my dryer?
+- Is this the same door bin for a Kenmore Elite fridge Model # 59673503200?
+- can the unit be vented out of the wall and not the roof
+- I need to keep a converted freezer at 65F for dry curing meat but occasionally need to heat to 95F for a day or 2. Can I program this unit to do it?
+- rust spots on clothes after in samsung dryer
+- Do any of you vent your dryer?
+- how many pieces was this?
+- I'm looking for a dishwasher that, when it loses power and then the power is restored, will begin running again without needing to have a reset button pushed. Any suggestions? Thanks!
+- Each water supply is different, but in general how often does the filter need to be replaced vs. regular cleaning?
+- Is this the right valve for Whirlpool GS563LXSB0?
+- The description said that the devoice comes with one controller and one temp probe. What about the humidity sensor?
+- Would you recommend this for a 2 Speed Range Hood (Electric Range) Fan to control fan speed?
+- Can this be installed on outside wall? I am planning to install on wall that is 4 feet away from outside wall.
+- Has anybody figured out how to add a turn-off button or anything like that to rid this sentry system? It seems always on as we use ovens a lot. Thanks
+- LGWM3470HWA - Has anyone had problems with the gray &amp; red lettering wearing off front panel of washer &amp; dryer? I've had 6 panel replacements.
+- I show that for Whirlpool GHW9100LW, the tub is W10253864, so your bearing is B00GSES3ZG. Is this correct?
+- Will it remove fluoride?
+- do you have a ceiling mount
+- does this ice maker fit refrigerator model rf266abpn
+- Is this an island mount or a wall mount? The description says island, but the model number says wall mount.
+- Do I need this for the kitchen hood installation?
+- my washer is model # WTW6600SW2 will the part W10189077 suspension for washer my machine?work on
+- Is the charcoal filter a separate accessory from the aluminium mesh?
+- I have ice maker model ntgt001ta1 Will this fit? Refrigerator model is RS26WUNS
+- Will this fit KENMORE 628.4557990? thank you, Bob
+- what are the dimensions ?
+- How cold dose it get? I mean, what temperature will it get the can down too? 35&ordm; - 40&ordm; ?
+- I have GE Range Model #JBS55DM2WW and I am looking for Smooth top element front right. Will this 8" fit my model?
+- Where is this filter made?
+- Is this a stackable unit
+- What is the decibel level of the vent? The Cavaliere-Euro AP238-PS29-30 model claims 43dB to 68dB.
+- Will the fridge be installed for me? I do not know how to install one
+- How many come in the pack, just one?
+- Will this fit the Kenmore Series 90 Washer model 110.28922790
+- Can it fit my Samsung RF26VAB model? if yes, I go buy it.
+- what is the warranty
+- It's 42 inches wide, but what is the depth of the hood?
+- can you hook it in perminantly?
+- What is the warranty on the Marshall Fridge?
+- Is the item durable?
+- Would this filter work for my frigidaire frs6hr5hsb5 refrigerator?
+- where is this filter made?
+- The picture doesn't look like the correct part. The correct part has tabbed sides as opposed to straight edges. Does this fit a dv410aew/xaa?
+- Why the picture looks different from Zephyr website for ak2100a?
+- how high does the hood raise?
+- I have a Kenmore dishwasher with the same part number and it looks exactly the sam as this whirlpool part. Will it work for our Kenmore dishwasher?
+- What voltage is the item
+- Can you fit a queen sized flat sheet?
+- Does this unit come with the 4" round aluminum pipe and plastic collar?
+- What did everyone do about the end not being included? It would have been nice if the description would have mentioned that there is only 1 end fitting!
+- Does this come in the metal frame?
+- Will this 316499900 griddle fit a Frigidaire FGF348KCN Gas Range
+- Will this kit work for my Whirlpool electric front loader dryer MODEL: WED9200SQ0?
+- I have a water softener, so . . . do I need this filter? Do I need to use distilled water?
+- Will this fit Kenmore Elite dishwasher model 665.13922K010
+- I need a kenmore 46-9930 are these interchangable?
+- will it fit MDC4650AWW3
+- Can you put pots and pans in it?
+- What is the inside diameter of this hose?
+- Does this part work on DLGX 3571W steam dryer
+- How do you find the noise level on low, med, high?
+- Does someone know if this would stack ANY combination of samsung washers and dryers?
+- what are the dimensions of the ceiling opening? I need a hood with the ceiling opening that is no more that 12'' (one foot) wide.
+- Is this a generic water filter and not a true Whirlppol brand?
+- Will this cartridge work in a Jenn-Air Model SVE47500W?
+- Has anyone tried fitting this product with heating cables to help prevent ice dams? Which cables work and how difficult was the adaptation?
+- Is this made in the US?
+- Will this work on model WR30
+- Has anyone had an issue with the water tasting musty? My house water is perfect. Changed the filter 2 months ago and never had any issue until now
+- Are the doors reversible?
+- Will this work in place of 316075104?
+- Is this a 110 or 220 plug?
+- Can I install it myself?
+- Will it work with DU943PWKT0?
+- any problems with this oven so far??
+- Does it fit 5231JA2002A?
+- I have similar gap btwn end of counterop and (obviously taller) fridge next to it. Any ideas for how to fill THAT gap? Tx!
+- If I put this in a large closet (under stairs) will it cause the closet to get warm, as it dissipates heat? Anyone noticed?
+- Thanks for your answers to my previous question. We will have to connect to a soffit, that is about 4 feet above the range, would it be a problem?
+- Does this fridge hold temperature well (40 degrees)?
+- Does it agitate like a regular washing machine?
+- will this fit model lg lsc27910tt
+- Will this kit fit the GE TPX21BRBG BB side-by-side?
+- will this replace a (700854-4 part no.) jenn.air knob?
+- HI my refrigerator is white on the inside, do you have your shelve AP2116036 in white ? i dont want any other color or it wont match
+- Can this be used in Honeywell humidifiers?
+- I have a Model-KUDS01FKSS0-Kitchenaid-Dishwash... this work?
+- Can the knob be oriented with "off* at 9 o'clock rather than 12 o'clock position?
+- Will this fit mvwb400vq0 model number?
+- Can you get a gas dryer instead of electric
+- Would this fit for a Hot Point Brand Range ?
+- What beer types does it take? Different kegs have different adapters. I want one that will dispense Amber Boch
+- Like others have reported, my GE WD24X10043 unicouple is leaking at the faucet adapter. What has actually failed within the unicouple to make it leak?
+- What is the length of the handle? My model is MH1150XMQ1.
+- Will this fit into a GE range?
+- Is it one side or do you get both sides for $4.99?
+- The part number on my 8 inch element is mp26ya. From the picture it looks like it would work. If not do you have a link to one that would work?
+- will these knobs fit model RF360bxyw-1
+- what are the dimensions of the oven?
+- what is the cfm settings?
+- you show a cooktop, but it says its a cover. what is it for $63.00?
+- Will this fit my Jennair it is model SVE47100 . We bought in 1997 . TY.
+- I have a RCA/GE model MTX25G refrigerator that did not come with an icemaker but a GE UK-KIT-4 or a GE UK-KIT-5 icemaker was installed. It no longer works &amp; it has a new water line &amp; I've been told I need a new water valve. Will this one work?
+- how easy is it to install
+- I have the Can25 WR30X10093 and it makes hollow ice. Is this one going to do the same thing after replacing it?
+- Does the tempo of the metronome reset itself after being turned off? Or would it stay at the same tempo that I was using (before turning it off)?
+- I'm looking for a system where I can detect when a gate is opened. I want a sound inside the house so I know when the gate is opened.
+- This will be my first kegerator. Do I need to buy a keg? Rent one? How long will the beer be good for? Any extras I need to buy besides the keg? Th
+- What material is this product made of? Is it metal? Ceramic?
+- What are actual depth and height? Is it really 20" deep and 7.5" tall?
+- Can this be used with propane gas?
+- Filter in our Honeywell HCM 6009 not same size as the one listed as replacement..it came in humidifier ours is smaller????
+- does this fit the pshs6rgxcdss?
+- this ice maker builds a yellowish mass and have to be cleaning the inside. I guess I have to buy a water calcium filter, which one should I buy?
+- Do you get a pair or just one hose for $12.88?
+- Will this work with a Whirlpool Cabrio m/n WTW6600SW2?
+- Will this fit an Amana TX20QL
+- The water flows through the inlet hose without a problem and is connected tightly. However, the water does not flow into the tub. Why is this?
+- Does this come with attached piping to fit into existing piping?
+- can I replace Badger 1 1/3 with a Badger 5 1/2 - with same connections?
+- how many gallons will the this filter filter?
+- Can it be used with a single phase 1 amp blower motor?
+- What is the temp range?
+- Will it fit a Kenmore stove model#790.71344700 ?
+- Does it have a rinse cycle?
+- I am thinking about getting a pack of three as it is cheaper than the single pack. Does anybody know the shelf life of these filters?
+- Will these fit a GE JBS27B?
+- what are the diamentions ??
+- how deep is this rack? my frig is smaller and I need one that is about 14" deep
+- How easy is it to clean the mold?
+- Does this kit contain the door flap? I didn't see any specifics about the flap. I need the whole kit with the flap in it.
+- Do these have the mounting holes in the sides for the Kenmore compactor?
+- Has anyone used this on a Bosch dishwasher?
+- Does the GV 7" Range Hood Carbon Filter Ductless Installation Kit work with this hood. So it will be unvented? http://amzn.com/B005OLT538
+- Honeywell is a US company right?
+- will this unit work horizontal vent ( wall vent)
+- How long is the cord?
+- what kind of warranty does this ice maker come with?
+- Will this work on the Samsung induction flexzone stove top?
+- Do the water hoses come with it?
+- Does it plug into a regular outlet??
+- Will this fit Bonaire BCM 658, filter BWF100P/HWF100P?
+- I have a Frigidaire FEF365BGWC oven, I understand the heating element that I need is part # 316075104. Will this ERB5103 Bake Element work for me?
+- What's the difference in the black and the clear top? And does it really not come with the gasket? It is shown in the picture.
+- Looks like the glass would need constant cleaning, above and below. Does it not look dirty with just a little use?
+- will it fit with 4389195r part no. or Model No.106.8609912
+- Is there any such thing as a dual fuel range with gas and electric rather than gas and convection?
+- how do you place bleach in washing machine any help I cant figure it out thanks
+- can you went out the back
+- Why is the weight of the product listed at 1 lb. and shipping weight is 4 lbs.?
+- Will this work in the door of a Kenmore #10641563801. Also, we are looking for more replacement parts, what is the best way to know what fits?
+- how many cloths can it contain?
+- Will this work on hotpoint stove or only Whirlpool appliances?
+- can this freezer be used in a commercial kitchen? I live in Columbus Ohio
+- how high with door up but folded? How tall with out wheels.
+- Does this come with 3 or 4 of the little white pieces? Mine needs 4!
+- is this the entire washer pump assembly, as shown ?
+- will this fit my kenmore 500 series model #11027522600
+- Does this model have stainless steel side panels?
+- I just received this freezer and on the back there is a round white sticker and underneath there is a lump Does anybody else have this on theirs?
+- Will it fit a frgidaire modelGLDB653ASO
+- if I buy any of the simplehuman products off Amazon, do they still have their 5 year manufacturer's warranty?
+- I just purchased this in January and it already burned out. Is there a warranty?
+- will this fit kenmore model number 110.72802101?
+- This won't work if my old "fastfill" filter has 2 connectors, right? Just want to be sure since can''t return it. thx
+- Will this fit with Cabrio WTW5840BW0?
+- Do I need an extension for a 10' ceiling? If so, do you sell one?
+- Will this work for an island?
+- Can the electrical connection to the hood enter from the top of the unit?
+- will it fit Maytag model# MHWE300VF00 ?
+- i don't have enough space for a exhaust hood or over the range exhaust microwave, any suggestions of product to provide exhaust ? is it required?
+- Does it come with calibration certificate?
+- Will this filter fit my Roper Model # REX3514PQO, Serial # MR5151287 ?
+- why is there a rubber ring around the hygrometer?
+- hat is dimention of ESK7V1051?W
+- Will this work for a Kenmore Mod #76096011407?
+- can i put it in a home-refrigerator and as a result to make humidity to be around 90%-95% ?
+- I know a sensor can be near a steam dryer to detect a leak-but how does the unit "know" that the dryer is getting water? Do u have to turn a switch?
+- Can this be powered from an outlet plug or do I have to hard-wire it in?
+- If refrigerator fan WR60X10074 is compatibility with WR60X10185
+- Will this work with MAH8700AWW?
+- will it work on thermador prg304?
+- Can this open a 32 oz can if crushed tomatoes or any other really wide can?
+- will these stick to stainless steel refrigerator
+- I have an amana fridge, model number TZI21Q2W , will these gaskets fit my freezer door and fridge door??????
+- What is the difference in the CWF 1012 filter and the CWF 1016 filter for the Clear 2 O pitcher
+- Will this work on the DLGX3371R?
+- will this work for lg wm6875h*ca
+- does this come with 1 year warranty?
+- does it fit HM1700? I see someone left same question but I dont see answer.
+- Mini washer
+- will this work on jenair A106
+- it wont drain!!! what is wrong with it??????????????????
+- Does this work for a Kitchen Aid Washer?
+- Hello. will this work on a maytag mhw4000bw1 washer? thank you
+- Will it hold a pint of milk in the standard carton?
+- can it be cut to fit
+- The only area this will fit is to put it sideways. Would there be problems, and how long are the hoses?
+- do you have trouble with the clothes being tangled and knotted up?
+- Is the wine rack removable? Could it be removed and then more cans/bottles be stored in its place?
+- Will this fit maytag dryers
+- i thought it also controled the fan opperations ?
+- Not clear on what is included. Does this come with a: CO2 regulator, CO2 tank, keg valve connection, and serving tap?
+- What voltage 110 or 220?
+- the pictures show a pedestal, is it included? if not how much?
+- how low to the floor is the washer? do you have to get down on the floor to unload?
+- Will it fit the latest GE w/french doors?-how many kits i need?
+- it will fit model#LSC26905tt ?
+- Which one is this?
+- Does this kit include all parts that are in the US-EZ-4 kit minus the faucet?
+- What is the required space with the cover all the way up? So how much space would it need under a counter in order to open the cover completely?
+- Have ge model dts181cwrw what icemaker wwill fit
+- Does this work w/ Model Number J BS55D M2WW lights still come on but front right burner stopped working on us issue facing with cooking stove Thanks
+- Does this fit a kenmore 110.97087601 model
+- Is this compatible with part number 101443-A, have Thermador T361T70NNP/05
+- Will this also fit the washer GGW9300PW4 or is there a different part number for that.
+- I make Knifes and need to reduce the sfm of a bandsaw from 2360sfm to 1600sfm??
+- Does it fit mde2600ayw?
+- Some reviewers have said this rack is "flimsy". I don't want to take a chance and order if it's not as sturdy as original. Comments?
+- Can you remove the shelves for the cans, so that it would support a row of beer bottles?
+- How fast is the fast boil -- to boil a pot of water, for example (I know it can vary, but would like a rough sense of how it compares). Thanks!
+- when ordering this ,does iron and head come intact together ?
+- How long is the handle
+- I plan to supply R22 to installer. How is the correct EPA form obtained?
+- Can it be mounted outside for a Florida home (Stays above freezing) on a well? Our piping is run under the foundation so no place to install inside.
+- Is the exhaust on the right side?
+- Power off delay digital timer stuck at 1:00:00 and whole display keeps flashing. Have tried everything in manual, now what?
+- will this fit in the FRONT of the dishwasher instead of the side?
+- does this one replace part #ps2351984
+- Do they have flow restrictors in side of them?
+- Will this work on a 30 amp breaker or does it need 40 amps?
+- Does this Garbage Disposal have GrindShear Ring&reg; The ideal solution for stringy foods like cornhusks and celery is the GrindShear ring&reg; .
+- Will this fit a Whirlpool Model # EWT13JWR1 ?
+- can you remove any of the racks?
+- Does this fit the Vicks V3700 Starry Night Cool Mist Humidifier?
+- When you facing the front of the unit, wich side is longer, left to right or front to back?
+- do you change/replace the whole unit or an insert? does it take 1/4 inch pipe to connect?
+- DOES THIS FIT ON A GE JBP84SM-SS?
+- where is this filter located
+- How does this differ from: Range Kleen 11920-4X GE Drip Pans?
+- Our current range is set into the floor approximately 1/2 inch. (Tile laid after the oven was put in place.) Will this impact the use of the bottom oven?
+- Can I getl the same picture Samsung DA29-00020B that you posted?
+- can fridge work without the water filter installed
+- Where is this made?
+- Is this compatable with a Maytag model SDE4606AYW heating element?
+- Is the color a shiny chrome or brushed steel?
+- does this come with the spacer that is shown in several youtube videos? or do you simply slide it on after removing the duckbill grommet?
+- once these are in place on a stacked washer and dryer, would a person be able to move the machines at all in case they needed to get behind it?
+- How long after installing the unit did it start producing ice? The manual says it may take up to 24 hours. I'm still waiting after 4 hours.
+- Is it dual fuel?
+- Will this burner element work on model RJE3165N?
+- Do I have to install a blower for this product?
+- Is this hood designed for use under a 15" or 12" cabinet? What is the measurement of the hood top before it slants down?
+- can anyone tell me how to attach to 3/8 water valve using the compression fittings? Lowes doesn't have a direct part for this. plumbing help please!
+- can someone clarify which symbols go with which wash cycle? the manuak seriously needs a rewrite.
+- Is the Range dishwasher safe?
+- how much does it weigh?
+- How do I change the temperature from Celsius to Fahrenheit
+- what is the CFM or power?
+- Can the bulbs we swapped out at home for LED bulbs?
+- is this same as kenmore 4638447
+- Will this product fit to my whirlpool mod: WET3300SQ2 DRYER?? I m looking the one by the door side, i dont know if that is front of back...
+- is this unit able to be wired or does it have a plug for 110?
+- what is the width of this lint filter?
+- WATER LEAKS
+- does this gauge relative humidity or actual humidity
+- Will this thermostat perform basic functionality cool/heat on/off (manually) without being paired to a z-wave GW. I Won' have a gateway for 1-2 months
+- Is this a 120V hook up?
+- Is this the same (compatible) with Holiday baking element #2395?
+- How high a temperature will the oven heat? My wife loves to bake.
+- Do I need to tear off the black outside before I put the new filter into the machine?
+- Does it make crushed ice also?
+- Is it easy to toast in the upper oven? Are there presets to quickly toast bread or buns? We are looking to ditch the toaster oven.
+- Is the interior black or white? Product pictures are conflicting.
+- i have gallery series frigidaire will this part work for my stove
+- What happens with this part in the summer time when the temperature gets above 80 degrees? Does it ever turn off?
+- does this fit MDBTT59AWW?
+- does it fit frigidaire
+- Can these units be ordered without a sensor? I have extra sensors from previous project we can use.
+- 5 gallon keg doesnt fit! Cant find anyone making the same complaint, so maybe my keg is non standard size?
+- Does this filter come packaged? If so, did it say MICROTEK on the packaging?
+- Will this filter work with the french door fridge model #B26FT70SNS
+- is this compatible with Maytag LDE482 dryer
+- Is the side body panel stainless steel or black?
+- My Unit is Model No. PSS26MGPB BB The mounting bracket looks a little different but otherwise... Is this a go?
+- are the fans noisey and run for long periods
+- WILL THIS PART FIT A FRIGIDAIRE FEF364DWD
+- Does the top separate from the bottom for easy transport up a tight staircase?
+- please explain how this runs by batteries?
+- Where is this part made?
+- Is this a genuine Pilot Rock fire pit? Or a knock off?
+- Will this fit Honeywell 6011i inside dia.8in outside 19 in 7and half tall
+- does it automatically stop leak?
+- Will it work for Whirlpool WFW9550WR00?
+- Will it work with model number DU1014XTX03?
+- I measure my rack it is 24 3/4 wide, will this rack fits?
+- If you don't use the extra rinse does the machine stop after it is finished right before the extra rinse on the dial?
+- does it come with a cord
+- My old Waste King is "hard wired". Will this be a good replacement and how difficult will it be to make the connection?
+- Can the Cavaliere UC200-1830 Under Cabinet Hood can be installed with horizontal venting from the back of the unit? No up-vent. possible in my kitchen
+- will it work on glass cooktop ? I want to know from the manufacturer not just some one who thinks so
+- How much ice does the bin hold?
+- does anyone know where we can get aluminum filters from? please let me know. thank you!
+- Does the vent exhaust exit from the top of the unit into the ceiling, or does it exhaust into the adjacent wall?
+- is this range hood 30" inch wide because it's showing different on product description
+- Does geofencing work for multiple users? Say three people in a house all with iphones set on the 7mi geofence setting.
+- Is it magnetic
+- Does this stove require 30 or 60 amp plug I've been reading that some of the newer stoves need the higher amperage
+- Will the glass shelve come off? Iwould like to frame the hood in hickory. if so what are the dimension without the glass
+- Do you have a range control board for a frigidaire FGF348KCJ gas stove?
+- I need WR60X10043 197D2039p006 and this device looks just like it. Is it the same compatible device?
+- Does this ice maker have a warranty? If so, what is it (how long)?
+- can it be use for LP
+- Diemensions: 30"Wx24"D the cut sheet says 35.43w, which one is right?
+- Will this fit a JBP72?
+- I sure need to know if this can be used on a rock/stone yard to pick up leaf debris but leaves behind the decorative stone?
+- How noisy is this machine
+- Can this be used in commercial kitchen? Is it certified? Also, what is the temperature range?
+- Will this icemaker fit a 106.59292990 sidebyside fridge?
+- does this filter work with whirlpool model #LG5771XWWO
+- What are the dimensions of this unit? The description says 1 x 1 x 1 inches, clearly that can't be right.
+- What is the warrantee that comes with this?
+- Can these induction cooktops be used to put a canning pot on and generate the proper heat to do the job?
+- I see it says 9.95 for the used but as I keep scrolling down it states 49.95 is it 9 plus shipping? Does it operate
+- will this work on a GE oven JGBBP33BEH5BB?
+- Is this valve for both the water dispenser and ice maker?
+- Will this unit work in my Kitchenaid KSSC42QMS side by side refrigerator ice maker--on the unit itself it says IM #S 626664
+- Does this unit have a CO2 ppm detector?
+- cfm*
+- will this replace a (700854-4 part no.) jenn.air knob?
+- Can you move the wire shelf in the freezer up to the top notch? It is way too low for what I need to use the space for.
+- Will this fit a mah4000aww ?
+- is this air filter compatible with Kenmore elite 46-9918
+- How much does the bigger pan measure? Does it measure 9.75"
+- does the unit have an energy guide sticker that estimates energy use for one year, like refrigerators do?
+- Is this a direct preplacement for Amana dryer belt 4049271? What is the size?
+- has anyone use this hose for a portable washer? (magic chef 1.6 cu. ft top washer)
+- Will these fit my older model Frigidaire Electric Stove?
+- I have GE PTC22MFMAL and wonder which bucket and auger will fit.
+- Would it hold a mirror of 10-12 lbs ? II plan to put it on the wall, above the sofa. The mirror just has one hole at the back.
+- 2 questions: Is this part that you are selling made by Whirlpool? And, what is the warranty on this item? Thanks!
+- How long is the power cord? Is it a typical grounded plug? Thanks
+- Will this fit Jenn air model DW731W?
+- Does this come with ALL the needed accessories to make sure the mini-keg hooks up to the machine?
+- Does this hood have a recirculating or ductless option?
+- Does it auto start after power outage
+- What is the height of the unit in dimensions?
+- What material is the netting made of?
+- Does this handle work with the KHMS2050SSS-2 model kitchenaid
+- does this handle fit washer model GHW9400PL1
+- I just ordered the three pack (Part Number 5231JA2006B). I read all the bait &amp; switch stories. Are they still sending the A model instead of the B?
+- my icemaker now makes chuncks of ice then stops but a lot of my freezer is coated with ice. is this from the icemaker or the water valve?
+- Will this work on an older gas range?
+- i need the part that fits on top where the mist come out where and who may have this part?
+- Will this adaptor work when replacing FXRT filter ?
+- Will this fit the Whirlpool Gold Model # GH4155XPS-1 ?
+- Can this be used with a gas dryer. Thank You
+- what is the difference between the pIC2 and Pic Pro?
+- Will it fit my Frigidaire Model #PHSC39EESS5?
+- My ice tastes musty, is there a filter?
+- we need water filter and how to replace instructions
+- Can you confirm if this Kenmore Refrigerator Icemaker Ice Maker &amp; Water Valve 4318047 part fits on model 253.53679303 Kenmore
+- will this fit Thermador (OEM: Bosch) older cooktop?
+- I'd like info on the warranties for these items. thanks
+- will it fit a sears refrigerator
+- Does this hood require a wall outlet to plug into or how is it wired?
+- Washer won't drain. How do I locate the problem ? Model#wfw94hexw2
+- how long is the waranty?
+- Is the vent considered to be a metal foil vent? Can't use a foil vent with my dryer, manu. suggests a heavy metal vent, which are a pain to maneuver.
+- do these work as replacements for a puresource 3 filter for a Frigidaire?
+- is it frost free or not
+- Does this just plug in?
+- WILL THIS WORK ON A FRIGIDAIRE CER3600AS1
+- Are there any limitations as to what dishwasher detergent etc we can use?
+- Does this replace NLC240V? Thanks for your help
+- THe dimensions are 24x29.3x32.4. Is that length, width(depth), height?
+- I want to install this into a cathedral ceiling. Is that possible?
+- Does the Speed Queen AWN 432 have cold-water wash?
+- can it be mounted with the cart. hanging out to the side or hoz.?
+- i have a 1202 coffee maker. will these fit? the 11WF is too big
+- Does this machine require a window to be opened for a vent?
+- does this come with the wiring harness
+- Does the handle in the picture come with the basket?
+- I have enough silverware baskets in my dishwasher but wondered if this basket will fit on the top rack?
+- Will this bin fit Samsung Model R4287HARS/XAA?
+- I purchased the Z-line ZLKB30 about a year ago and love it. I recently noticed one of the lights go out which I didn't expect this soon. Doesn't look like the bulb can be changed but the whole assembly. How do i go about ordering this part? Thank you.
+- does it have to be vented
+- What is the measurement for the mounting screws and also the duct opening? We need an online version of the installation manual to know the details..
+- is the door switchable?
+- So, is the diameter 3 1/8" or 3 1/2"? I see both answers, which doesn't make sense since there's not a size choice option.
+- What distance from the cooktop should the hood be mounted please?
+- Does this model fit in Broan PM250?
+- Does this model have the soft close crisper drawers?
+- Is this plug white, or the beige as in the customer images above?
+- What are the CORRECT actual dimensions of this filter??? The description on Amazon for this item states : 1.5" X 2.5" X 3.5".
+- How tall is this machine? Does it have several washing modes (i.e. normal, gentle)? Also how does it drain? Thank you.
+- Will this work on a GE portable dishwasher model: GSC3500N10WW. Sure looks like the same part our's currently has. Thank you.
+- Does this fit the nutone range hood with the same model number?
+- Can this be rear vented
+- Is the Freezer Frost Free?
+- Is this compatible with a maytag de303?
+- What kind of material is it made of?
+- Does this part have 2 harness plugs
+- I am looking to buy a top &amp; bottom burner for a GE oven, model #JKP76GOP486. Will this one fit?
+- Is this filter for a Kenmore side by side? Does it install at the bottom of the fridge?
+- will this part work on my Hotpoint oven?
+- Will this work fora 10' ceiling? If not, is there an extension kit?
+- Will this replace S 106 626639 ice maker installed in my Amana refrigarator
+- What are the cubes like from this machine? Small big?
+- One of my bulbs went out and I am having a hard time removing it..should it just pull out or does it screw in?
+- This looks like what I need but the dimensions are different: mine is 10 1/2 inches long (longest) and 6 inches wide (widest) whih one do I need? th
+- I am interested in a roll-about that you connect to your kitchen sink. Is this one compatible
+- Does it heat the clothes as it spins?
+- does it fit model ei28bs55iw1
+- Will this part fit on a Maytag Neptune MAH5500BWW Ser. no. A2997618CJ ? Boot 12002533
+- relay on board clicks, compressor or fans will not run, temp. display reads -47
+- How do I know if my faucet is compatible with the unit? I live in an apartment where I cannot replace the faucet.
+- any thought s on if this would be too big for a baby's room?
+- Hi, does this fit my Samsung RFG237?
+- Will this work for Whirlpool LSC8244EQ1 washer? Thanks
+- Are the lights in the front ? Appears to be by pic but want to be sure
+- Hello - I have an older Jenn Air that uses what seems to match pic. The opening is about 1 1/2 x 1 1/2. I need 2 lg &amp; 2 s - what is in package?
+- I have a Magic Chef electric stove with a three small burner and one large burner. I wanted to know if these stove drip burner fits into my stove.
+- Does anyone have a copy of the instruction sheet?
+- Why does the photo show the mounting tab opposite where it should be?
+- Does the oven have a conventional bake mode or only convection?
+- The bottom of my bin has a number of DA63-05391. It measures 13.5" x 9". What is the replacement number that I need?
+- does this fit GFE27GSDDSS?
+- Is this OEM or not? The ad says yes; one of the comments says no.
+- Is there a trick to installing this? Water is not coming out through the filter after installation.
+- I have a Frigidaire with a bin number PS430121 will this fit
+- hi, how can i tell if this will fit my fridge? I have a GE profile fridge
+- Hi! Could some of you tell me if the base of this lightbulb is "intermediate"? The details say Base Type E27, which does not help. Thanks!!!
+- will lint screen filter 339392 fit lint screen lg5651xmwor a whirlpool dryer
+- Is this compatible with model # BAR888A?
+- can i use it when there is a power failure
+- What beers can fit this dispenser? All 5 liter kegs?
+- Can you give overall length in inches. Thanks
+- How easy is this to install under a cabinet. The electrical box is in the cabinet above it. I do not want to install as an exhaust model.
+- Does this have the loop connectors or the solid rectangle plugs?
+- Is the Genuine OEM FSP Whirlpool Kitchen Aid Blender Rubber Seal part number 9704204 suitable for Kitchenaid blender KSB560CU1?
+- Will this work on maytag model sde3606aym
+- Will this fit kenmore elite Model 66517052402?
+- Will this hood work with an 87" ceiling?
+- I bought this unit a few months back and one led light burnt out. How can i get a replacement light?
+- I have model W10461429A, is this the right part?
+- So we put an entire packet into what you are about to seal? Making baked goods to ship. Will these help our goods stay fresh longer while shipping?
+- Will this replace a Whirlpool 8565582 heating element look the same. Mine 5400 watts 240 volts thanks
+- Will this work for a model # FEF352AUG frigidaire oven.
+- This will work with GE MSWF Refrigerator?
+- Does it come with hose
+- is this energy star rated?
+- Who delivers and will they place it where we want it? This is going in our garage and we have no refrigerator that needs to be moved! Thanks so much
+- does it have a cycle time adjustment
+- Does this work with GE Monogram range model ZDP304N P1SS?
+- What is the depth of this product?
+- Will this heating element work with Siemens Model HG24 UC? I had a Norton Model 501A heating element on it and it burnt out after about 3 years.
+- This fan mentions that is adjustable for height. Can you slide this up when not need and then back down when desired?
+- How many do you get for $9.53?
+- Will this fit model FFBD2405KS0A?
+- WHat is the gross (TOTAL) weight of a FULL bottle of R410a, without packaging of course.
+- how do you connect the filter to the humidifier
+- how is this mounted--is there several screws that I have to put in my wall?
+- My Kenmore part number is: 240337103. Will this drawer work?
+- does this have a little freezer inside? I am hoping it doesn't
+- Are these heavier? Some of the drip pans are tinny, and don't last very long.
+- Does the freezer have a drain at the bottom to use when defrosting
+- What are the interior dimensions of this freezer?
+- I have a refrigerator, Whirlpool model WSF26C2EXY02, I need to know if it will fit the door and if its the one that 2 gallons of milk will fit in?
+- I bought this for my LG dishwasher, LDF6810ST/02? But it's not exactly the same, is it correct for my machine?
+- Does it fit DLE2101W dryer?
+- will this be safe built in countertop over stainless steel dishwasher leaving 2" of space in between? will it heat only pan and not dishwasher?
+- can i attatch a water line to the unit for automatic water refill?
+- Capacity: My question is how much ice can the unit hold before you need to empty it?
+- Does this one have the studs on the back for the junction box and the hole on the back side for the heating element.. for the gas and eletric model
+- Does this have a digital thermostat display? Anyone know the temperature ranges?
+- What is this made of? Is it plastic or metal?
+- Filter is hard with deposits after 2 months. Do I replace it or clean it? Thank you
+- This part brings the thermostat and install cables?
+- Ducted installation but lots of of air coming out of the slots on top. IS it normal?
+- could this work instead of part 4452807, a discontinued oven rack for kitchenaid range KDRP407HBU10?
+- - What are the dimensions of this item?
+- Will this fit a bottom mount Kenmore refrigerator 596 series?
+- I have a osmosis whole-house drinking water system. Will the RF4289hars icemaker/drinking water system work when the filter is out as I don't need it?
+- Does the ground wire (green) have a circular end on it? The pic looks like it's just a straight wire at the end.
+- Its not a freezer unit, so if not used all day the ice will melt and go back into the system? Do the ice cubes ever get stuck together in a clump?
+- will this work with an amana range?
+- We wash work clothes that have grease &amp; farm dirt on the jeans. How does the Speed Queen do on heavily soiled items?
+- can the drawers be removed for storage of larger items?
+- Hi there will this fit the model # 5470340A thanks
+- what are the inside and outside diameters and height of these rings?
+- WORK FOR GE GFC530F
+- Will this pump fit kenmore model number 110.42936220?
+- How do I install this into a cathedral ceiling?
+- Does this work w/ Model Number J BS55D M2WW lights still come on but front right burner stopped working on us issue facing with cooking stove Thanks
+- Will this work with any dishwasher? I have an LG dishwasher..Thanks
+- Do these filters work on thermador refrigerator?
+- What are the dimensions of the oven? I need to know the height specifically.
+- does this include the bucket?
+- Does it come with any couplers?
+- Will this unit replace S 106 626639 installed on my Amana without any modification? Amana SXD25QA3W
+- Will this plug in to a wall outlet or needs to be wired
+- What is the Energy Compsumtion of this Chest Freezer or the Amps or Wattage. Thank you!
+- Does this fit the Whirlpool WFS 1071BD front loader
+- Can R410a be used and or mixed with R-22
+- Does it vent out the back or the top
+- this is the only one that I have seen the "G" at the end of the model number. What is the difference between the ADE4BR and ADE4BRG??
+- I WANT A BROIL UNIT FOR A HOTPOINT MODEL RB787WH1WW
+- Can this be programmed to wash and then dry? Meaning if I set it to wash &amp; dry when I leave, will it be dry when I return? Or do I have to set it to dry after wash cycle?
+- Will this work for gsl25jftabs?
+- What are the measurements, including the handle?
+- Does anyone have longterm experience with this fix? We installed this replacement 6 months ago, but we have leaks again.
+- Will this work for a Whirlpool ED5VHEXVB04? I have already purchased a door chute kit but then realized one of the plastic hinges were broken.
+- hello, i need drip pans and heat elements for my stove : whirlpool Mod. RF302BXKW, THIS STOVE HAS 3 SIX INCHES AND ONE EIGHT ELEMENT , DO YUO HAVE IT
+- Has anyone installed this as a built-in under a countertop or in an island? If so, does it work well in that type of application?
+- How many dead bodies can I store in this thing?
+- do these fit a Sunbeam model # 2412?
+- Is this compatible with WGD8800YC?
+- Do I have to have a computer to run it, or can I buy a USB-wall adapter to plug it into the wall?
+- Is replacement needed if I already have softened water? My water softener is highly effective. I see no minerals at all and the water tastes great.
+- Is this replacement for Frigidaire part 316199900?
+- what kind of ice does it make? Looking for nugget ice, like Sonic restaurants
+- Will this part fit a GE Profile Side by Side, model TFH27PR?
+- I have a 80 inch high ceiling, will this work.
+- Using these bags to store dry dog food in a #2 plastic container. Are the bags shipped so that they do not get creased causing leaks?
+- will this fit model LSQ9200LQ0,whirlpool
+- mine has totally lost power....checked the plug &amp; breaker. Just finished washing a load &amp; went to put in another load &amp; boom...absolutely no power!!
+- can i make water level go higher permanatley on new speed queen top load washer since water restrictions on new washer
+- How many rollers are there on a dryer?
+- will this fit kenmore model 59652672200?
+- I am replacing a kitchenaid, would this fit kitchenmaids quick mounting system?
+- BEER Cans does anyone know if they fit. They are just a little wider then soda cans.
+- Why does the bottom rack goes off track often
+- Does it come with a carbon filter for non-ducted venting?
+- Does anyone know how many amps this refrigerator uses?
+- How well does the ductless install work to remove cooking odors?
+- is it 6 in, 8, 10 in?
+- Is the hardware included? e.g. screws, washers. etc?
+- How much ice does the hopper hold at one time
+- Does this work for all samsung dryers?
+- What are the brands for your bearing and seal?
+- does this work on model PSC25NSTB
+- Can I use this to also power my laptop computer and for how long?
+- Does it come with blow dryer?
+- Does the ice come out with an off smell or taste from the inside of machine being all pastic?? I just bought a different brand with this issue??
+- I need lint filter for my Kenmore 80 series dryer. It needs to be 20 1/4" in length and 7 1/4" wide with a white handle. Will this one work?
+- thanks but wouldn't one of the lower prices portable washing machines work just as well for this purpose even if not branded for this purpose don't th
+- Does this filter have some kind of filter inside of it to stop grease?
+- Does this machine have a limit of how hot the water can be? (The Basecamp washer instructions say the water used should not exceed 113 F.) Thanks
+- Do you just cut this in half with tin snips and slide part of it back over itself and then tape it?
+- Does this fit a kenmore model 795.7032?
+- Is this made in the USA?
+- will this replace an amana sxd25jw-p1104001ww ice maker
+- Does this rack come with the individual cookie sheets for each layer? Are they attached?
+- is this universal how do i know it is going to fit
+- Will the lid fit and stay on this if you leave out the filter and top water reservoir so this can be used as a tea dispenser?
+- The title of the item and Product Information say DA97-07603A, but the Product Features says DA97-07603B. Which is it?
+- Which side is the electrical cord on (if you're looking at the back)?
+- does this unit have a wall hanger to hold it in place while you secure the mounting screws/bolts? it looks heavy! or do i need some 2x4 and a jack?
+- does it have a down draft?
+- does it comes with the glass
+- Does the window sensor have an on/off switch? My teen has been sneaking out at night, I just want to make sure she cannot disable the sensor.
+- Is it compatible to replace my Maytag UKF8001 Pur Refrigerator Water filter?
+- How long does it take to run a load of dishes?
+- This filter works great, but the red light alerting me to replace my filter is still on. Is there a way to turn it off?
+- What is included with the hood? Light bulbs? Ductless components?
+- Will it fit whirlpool cabrio WGD6600VU0?
+- I need a rack for my GE P7 wall oven, model #JKP07G0J5BG - measurements are 18-3/4"w x 17"d - can you give me part # and/or source? thx
+- The number I have is 4396710 . Can I use the same 4396841 PUR Push Button Side by Side Refrigerator Water Filter
+- Will this work with a microwave serial # TR U 50 42971?
+- Does this filter work for Bosch b22cs80sns?
+- Do I have to worry about hackers breaking into it? Will that break the eggs? Is there a virus checker for it?
+- Is this filter the same as Whirlpool filter 4396710? The one Ipreviously bought didn't have a P at the end of the filter number.
+- I have a whirlpool lint filter part # PS1487948 / Dryer model # WGD6400SW2, will this filter fit my machine?
+- where do you get the extension kit?
+- Can this be used in other brand humidifiers?
+- Can this filter be used as an inline filter for refrigerator ice maker (no water dispenser)? I have been using the yellow twist and lock product specifically marketed for the purpose, but was told the green filter was more effective.
+- Freezer number F1411Vi ?
+- Does this work with hot-water heat (radiators)? If not explicitly an option (many old, cheap honeywells have this) will short cycle boiler and waste energy
+- This filter says Filter2, is there another Filter1 somewhere in the refrigerator ?
+- Is the lower portion SOLELY for wine or could it also store cans, bottles, etc?
+- Will this work with 84" ceilings/7ft? It appears to come in 2 sections. I'll be using ventless.
+- I just received these today and the indicators on the O2 absorbers are both pink but sealed are they still usable
+- will this fit 106-55526400 kenmore ref.
+- will this fit a hot point bottom burner model RB526H3WW
+- Is there any way to get the doors to close tight? They pop back open and need to be manually closed. Had it checked out and the repairman couldn't see anything wrong, including the leveling.
+- I'm looking for this type of hose without the the flood control feature. Does this hose have one? If not I'll order it. thanks
+- Have a ge profile cooktop stove can I use this? Is it stainless steel?
+- Has anyone else had problems removing this filter after using for some time?? I have had a Swift Green installed for a while and the light recently came on to replace. I bought a new filter but can not get the old one to budge, we have now broken the...
+- will kcm22wf fit a kcm1402 coffee maker ?
+- Do these ovens vent outward, toward you if you are standing in front of it ... or is it made to vent upward, out the upper back of the unit?
+- How does it handle lint removal? My curren washer Whirlpool Cabrio fails completely and leaves a lg quantity of white streaks on black items. Just aw
+- Is this bin clear?, with white plastic only at the rim around the top?
+- I need something that will allow food to pass into the disposal but prevent kitchen utensils from doing so. Will this do the job?
+- magic chef compatible?
+- will this part fit my FFHT1814LWA FRIGIDAIRE REFRIGERATOR?
+- Can you use it in just a regular humidifier (cool water)?
+- Can the coil be removed or lifted up to clean the drip tray?
+- does these filters fit Whirlpool MH1150XMB-1 BLACK over the range microwave oven
+- Will this fit a wcvh6600hbb
+- Should the LED display stay lit when it is powered on? It is hard to tell when it is actually on....
+- Is their 2 in a pkg?
+- Will this fit a PSS26SGRESS side by side GE? Thanks
+- Is this compatible with (46 9930) filter for kenmore fridge
+- do you have this in color chrome and perhaps 22' or 21' in Length?
+- What are the dimensions of this product in the box?
+- Is this 2188656 compatible with MDL ES5HAXSA00 whirlpool
+- is code f2 a problem for you?
+- Do you need to use plumber's putty for installation ?
+- how do I remove ice maker?
+- Can these Knobs fit a GE Profile Model PGB916SEM1SS SERIAL NO. WH254149P?
+- Is this a 2 filters pack?
+- Unit easy to clean? Heard gas-on-glass are hard to keep clean and become pitted. Those of you who have owned this for years, are you still happy?
+- Does the RP130 have lighting? I didn't see any specs for lights.
+- how deep are they?
+- Does the washer come with hoses for water and drain? Three hoses? Thanks!
+- do i use tap water in the machine?
+- is this setup to be ventless?
+- i need on the right side
+- Is this 220VAC version?
+- is this compatable with frigidaire model FFTR1814Q?
+- is the price for all the fourt drip pan
+- width with door closed?
+- inside drum is wobbling
+- what is the lowest temp setting? i like cold beer!
+- Is this the same as a 316455410R ? Will it service a frigidaire FGF337ASA stove?
+- What kind of controls does this have? Number of speeds, clock, timer?
+- Is the model # of this item PureSourcePlus WFCB / RC200?
+- Will this work on a WM2501HVA?
+- Is this a pur 4396701
+- Are they white as pictured or a silver metal finish?
+- Hi from Italy, coming to ny in april. Is it 230/220v ? I have a GE TPG24PR
+- Can I control three ceiling fans with one control?
+- It this for the hole set up as show ?
+- How much of the old baffle has to be cut away--just the flaps or the rim as well?
+- What are the exact dimensions of the 6-Inch and 8-inch pans?
+- What kind of pots and pans are suitable for induction cooking?
+- I just installed this ice maker, lasted ONE WEEK and failed, it burned up internally. Now it floods my kitchen. How long is the warranty?
+- How to remove ice maker bucket or tray when it appears to be stuck probably frozen
+- will this replace a 700854-4 jenn.air knob?
+- Does this unit comes with filters
+- how to use the built in cooking timer
+- Will this fit GHW9300PW4
+- What is Dba rating
+- Will this work for my Maytag MDBH955AWB Quiet Series 300 Legacy Series?
+- Can you use this on old records, some going back to late 1800's, to get rid of mold? Will the stains or mold spots disappear or is it more of a neutra
+- 80% sure I'll vent it outdoors, BUT if I choose ductless, has anyone noticed if exhaust from top of unit discolors white cabinetry?
+- it is 120 v or 240 v ?
+- is it a 110 volt or 220 volt
+- Is the max length of 18" measured from center of duct output to center of duct input or elsewhere?
+- 5231ja2006a or 5231ja2006b: Is the part numbers of these filters 5231ja2006a or 5231ja2006b?
+- IS the lid locking? Another model had a magnet - does this one? I want a washer without locking lid so I can let clothes soak.
+- Can it hold 16 oz Monster Energy drinks? If so, how many on each shelf?
+- Are these food grade? As in, I can put them directly in with dry food in metallized bags?
+- what is c1,c2,c3,c4,c5 in degrees and are 5 enough?duxtop has 10
+- the title says freezer, but the description says refrigerator. Which one is is?
+- Does this come with an LP conversion kit?
+- Will this fit a Kenmore Dishwasher 66513742K603? Thanks!
+- If no power cord is included, how do I plug in the disposal unit?
+- is it made of ceramic or glass
+- pair
+- Is this freezer frost free?
+- Is this freezer frost free or must it be defrosted?
+- are there two hoses and do they come with rubber washers for each connector?
+- Is the color black?
+- Do you have a water filter bypass plug that for a GE Profile Model PSH23PSRASV Refrigerator?
+- how many cu.ft is it?
+- What is the installed depth of this machine? Is it really just 29.75", or do I need to allot more space to install this washer?
+- Is it quiet
+- Where do I find spin only cycle on LG steam 11kg washing machine?
+- does it use batteries
+- Will it works for Whirlpool RF114PXSQ0?
+- Can you couple 2 of these together for tall ceilings?
+- Does this come with a power cord, drain hose, or hot/cold connection hoses?
+- Instructions say change every 6 months. Shouldn't the change rate be in gallons of water used? Family of 2 as opposed to family of 6....
+- will this fit part 4396918 in Whirlpool fridge?
+- Can a refrigerator like this be placed in a very large closet?
+- What are the dimensions of the machine
+- Is the height of the racks adjustable?
+- what are the exterior dimensions? the picture looks square (which is what i need ... 8"?) but the stated dimensions are14x11x12.
+- Is anyone having a problem with water temperature? Our machine only gets lukewarm even on the hot setting. Sensors replaced no help.
+- how does this thing work? does the lid open like a kettle when the dryer is on?
+- How long is the cord?
+- will this fit a Whirlpool Model # WTW5500SQ0?
+- Does it fit on kenmore washer series 90?
+- will this work in a jenn air model A 122 Cartridge 3000W 240 Volts
+- this product says it can be used in my Whirlpool refrigerator. Since it has been installed, our ice maker no longer works. What is the issue?
+- Can the dryer set directly on carpet?
+- Is there a stainless steel version?
+- I have a Fridgidaire FRS26rlecs2. Will this work?
+- are the ice cubes clear
+- GE Profile dpsb513EBOWW will this motor fit this machine.. Went to the site for Profile GE and it said it would work?
+- What is the storage life of the r22 in the canister? I 'd like to keep a canister on hand for future recharges by my HVAC tech.
+- Is this tv self-standing or does it come with a stand?
+- Will these filters fit Bionaire model BCM7204?
+- What is the air and water filter number for the LFX33975st?
+- what are the L x W x H dimensions?
+- Can this filter work with Samsung RS265TDRS refrigerator?
+- Is this filter a replacement for 38442?
+- Can you open the washer during the wash cycle?
+- what is voltage for this device? is it 110v-120v or 100-240v?
+- Does it have a lock on it? need to keep kids out.
+- question about the moisture, does it release any while in use? how is it for RVs?
+- Which SQ electric dryer offers moisture sensing?
+- Would you recommend this product for monitoring the humidity in a crawl space remotely?
+- Does this parts compatible with GE 25.4 Cu.Ft Capacity Side-By-Side Refrigerator (Model No.: GSS25LSMB)? Do you sell fan blade?
+- how far below the counter top does this sit?
+- so this will come with the 100 mesh cartridge and has 2" slip fit in and out correct? thanks karl
+- Do you have to order the conversion kit separately or does it come with it?
+- Does it work with LG model # LFX29927?
+- Will this fit Maytag LAT5004 LAT5005 washers?
+- I got this filter but the back of my Frig has this big white water hose going into the bottom of the unit ....What happened to the small hose ?
+- Do you need to add water for it to rinse?
+- Will they fit Roper model FE930GW?
+- i need to know, if this part is compatible with DU1015XTXS, i have the chopper blade in my hand and look the same, but i need to be secure
+- Does it come with down-draft? Or, are we supposed to have an overhead hood for ventilation?
+- How many would I have to put into a 1 gallon bag?
+- Is this kit compatible with Maytag HYG3460AWW? I could verify the belt but am having trouble with the rest.
+- Would this pick up pine needles on a lawn?
+- would this part work for the samsung model wa422prhdwr
+- I have a GE refridgerator GSH25SGRESS...will this one work in it? The circuit board looks identical to mine. thank you
+- Will this fit a GE JGB630REF range? thank you
+- How long is the cord?
+- What are the connectors made from? Brass or stainless steel?
+- Ship charges to 60060 ?
+- What is the spacing between screwholes?
+- What are these used for?? Could they fit in wine bottle or jar openings for making a lamp? Thank you.
+- Do you have to hold down the IS button or does it stay on after you press it one time?
+- What is the amperage draw?
+- how cando I attache it to the wall , I already have a granit installed?
+- Does your washer sound like it is in a bind when it is washing?
+- What is the actual depth: 20 inches or 22 inches? The description shows both depths.
+- Does this hood needs non ducted filters
+- Is this range hood a 12 volt or 120?
+- Frigidaire FLSE60RGS1 washer/ dryer combo- will this work and how do you find out?
+- Will this replace a 3352293 pump?
+- what gauge is this Stanley 31536 extension cord?
+- Are these Frigidaire filters or generic brand
+- Will this filter work with the french door fridge model #B26FT70SNS
+- We just received this oven. Does it include a power cord?
+- I cannot find any official reference to testing these filters nor official website. How can we know they are safe?
+- How does it do washing cloth diapers?
+- What are the demensions of the air stack? I cant seemt find this info.
+- All the image shows is the tubing. Does this come with the entire "KIT"? Does it have the connections to add to PEX Tubing supply line under sink?
+- Is this Convection Oven ?
+- I wonder if this part works also in frezeer. I bought another with the exact series of numbers (WR60X10185), but came without the sensor.
+- will they fit an old caloric range?
+- What size knives can the knife block accommodate? I've got 8-10" chef's knives that I use/ wash regularly.
+- Will this work with a Kenmore model 106.59966803?
+- lg 30" convecion wall oven
+- Will these pans fit model JES9860AAW ?
+- what is the actual thick of this hood
+- I bought these air filters and it did not say on the box they were for the HAP 240 air filter, so I returned has anyone else had that problem
+- How many amps does the ice maker take? We were going to use it for camping.
+- Has anyone used a cast iron griddle on the two side burners with success? I am trying to decide between this &amp; kitchenaid that has the bridge feature.
+- Is this motor the same as a 500 Kenmore 334304?
+- do you have to defrost this freezer? If so how difficult is it to do? Assisted living unit thanks
+- Is this considered an A type filter?
+- Will it fit Kenmore model 110.47512603?
+- Can the ice maker be removed to make more room in the freezer?
+- hi, will this fit model number: 41790872991? thank you!
+- i have part # 297366104. Will this board work?
+- Can I download the logged data without the special software (e.g. as a text file)? I'm wondering if this can be used with linux and mac.
+- What are the dimensions of the hanging baskets? Thanks!
+- Product description states "9x5x7" which is what I need, but then the Technical description states "7x9.5x12.5". Anyone know the truth?
+- will it work in my wd 52631?
+- what filter pod fits kcm1202
+- Is this accurate for reading body temperature of people?
+- Are the biggest eyes in the front of the range? The one I have seen are like that making difficult to reach controls in the back, when a big pot in us
+- Will these bowls fit an older Amana?
+- about the measures High, longer and wide?
+- Also, my ceilings are too tall for it to be attached to it. Can the vent go into the wall?
+- Do magnets work on the front of this refrigerator? Thanks!
+- Can the light be turned off?
+- How many watts does this model have? 1500w or 2000w?
+- Does this kit work with Haier electric dryers?
+- trying to install this unit (ductless) Pg 8 in the installation guid refers to a "optional air diverter" wher can i get this?
+- can this lint trap mounton the wall
+- Does the temperature easily adjust? I need it to hold it at 50-55 degrees is there a setting for that?
+- Is it possible to have it cut down to four Feet?...thanks!
+- is this a four pack? or 1 pc only?
+- will this part fit my kenmore laundry center washer Model#417-97972701?
+- How long (on average) do the filters last?
+- If I order this through amazon do I have contact with the NuWave website? I have noticed poor comments with their site.
+- Does this run quietly?
+- to this work wed admiral gas dryer md. agd4475t91
+- Keep ice frozen? Does this model keep the ice frozen, or does it all start melting as soon as it's made?
+- Does your display area stay warm even when the range is off?
+- Does it come in black?
+- I haven't purchase it yet, is the lid sharp after it's opened?
+- is this made by kenmore
+- can this be built in?
+- will this work for my electrolux icon? The part number I have is 241685704. it looks like the correct part, and your item came up with my part number.
+- N841 is what i currently have with an ice maker. Is this unit set up so I could install my ice maker in this refrigerator?
+- Is this NIST certified? Can it be used to monitor vaccine temperatures?
+- Is the reversible grill seasoned or do you need to do that yourself?
+- Hi, This looks like the same pump I am look to replace on my Amana Front Loder. Would you know if this is a commonly used pump?
+- I haven't gotten this yet but can someone tell me how to do just a rinse and hold
+- does this come with the software
+- Is the shipping $6.95 applied to every filter if I order mutliple filters (like 3 air filters?) *** **Took me 2 days but found the answer in small print. Even if I order 4 filters the shipping charge is applied to each filter. Appliance Zone has this...
+- Can this be vented on the back or needs to go to the ceiling?
+- what are the batteries for
+- Possible to turn relay on when set temperature is reached and then shut off after 10 minutes? I'm trying to connect this to a pump that will turn on when the temperature has reached 130F and then run for 10 minutes and turn off. Is that possible with...
+- We do a lot of saute and searing cooking + some wok cooking every so often (Asian cooking!). Can the high setting handle this type of cooking?
+- what size is it?
+- My present disposal has a 3 bolt connection. Would changing to the twist type connection for a new disposal make installation complicated?
+- I have a Maytag PTB2149FR is this the correct ice maker for my model?
+- At what frequency does the filter need to be changed?
+- Is this part compatible with the Kitchenaid Dishwasher model #KUDK03CTSS2?
+- can it be used for a gas drier
+- The title of the ad states that these are 1 Micron. However, the product description states 5 Micron. Are these truly 1 Micron?
+- will this timer fit a whirlpool dryer md no LER7646EQ2 ?
+- do you have a bellow that will fit model # 110.4751 4753
+- picture shows 2 sensors, is this a 2pk? Also do any connectors come with sensors? Thanks
+- LG french door stainless steel refrigerator door alarm keeps going off. Doors are secure with nothing blocking.
+- What are the exact dimensions of this product? I have exactly 31 inches of open space on my kitchen, so there's little margin for error. Thanks.
+- will it work with amana side by side?
+- Does anyone know where I can get a replacement key for this? I lost mine and need it now that we have mobile 8 month old twins.
+- The ad. For this item said it is 18" long but one of the answers for this was 12.5" . Could you tell me what the real length is. Thank you Mary Lou
+- Is there something online that says this product will meet code. My inspector is saying it does not meet code.
+- why will my new freezer not cool?
+- Will this fit Model # WFW9200SQ00
+- My hydro cell does not float in the water -- it sinks to the bottom. Is that okay?
+- Hello. Can you tell me if the Amana Electric Heatng Element 61927 kit is a replacement part/fit an Amana Model # LED20AW?
+- Is the surface glass or metal?
+- Does it have a drain hose to empty the water with, or must you turn it over to drain it?
+- With the door open, what is the height from the bottom of the opening in the front of the dryer to the floor?
+- Anyone else notice that you have to tip the machine forward afterwards to get the remaining water out?
+- I am trying to decide between this model and the Haier HLP24E (the 1.5 cubic foot one). Has anyone owned both that can give a recommendation?
+- Can the duct vent on top be opened up to 8" or 10" as the 6" vent is too small for 900CFM, which means too much noise as air moves through 6" hole?
+- Where is made?
+- say will not fit apatment size hotpoint?
+- is this portable?
+- Can it get down to -40C?
+- Is warranty offered by Frigidaire? Some manufacturers don't standby their warranty if the product is brought online.
+- Does this cap fit whirlpool refrigerator model#ED2FHAXSB04 and our water filter #4396841?
+- Can install the disposal with only this, and not the built on splash guard. That would make cleaning a snap.
+- include water heater or must be install water heater outside?
+- Will this seal fit a kitchenaid blender, model KSB540ER0
+- What is the internal dimensions of the refrigerator and can all of the shelves be removed?
+- How many lbs. does it wash
+- I see the measurments but it does not specify which one is the width/depth/height.. can anyone give these to me?
+- Does this part fit model number: FEF364DSE?
+- does the stacking kit come with the dryer?
+- Is the 28 pounds of storage correct? Seems small to hold that much.
+- Is this a standard 4inch diameter vent system. Thanks.
+- Can this be used on gas stove when making polenta which needs low heat.
+- how much ice will it hold in the resevoir.
+- How do you properly close and seal the bag once you have opened it?
+- This shows it will fit a Whirlaway 291 1/2 hp disposal has anyone used it for a Whirlaway disposal?
+- What is the margin of error on this thing
+- Can you exchange the singe tap for a double tap on this unit?
+- Two questions: What are the BTU ratings for all the burners?, and What are the distances in inches center to center between burners?
+- Will this Rack work with JTP55SP2SS double wall oven? The model I own has two humps on either side.
+- How easy to replace existing badger 1 with badger 5?
+- I have a GC1000PE model. Is this model compatible with it? Also will the power cord of 1000PE model work with this model?
+- is the bottom separate or is it hooked together
+- Does it have its own shutoff for replacing the filter?
+- Will this fit Frigidaire Model FDB510LCBO
+- this have the timer inside and key
+- When this product is shipped to my house (in it's package) will it fit thru my 30" wide door?
+- I have a whirlpool model # RS610PXGW11 will these work
+- Does this filter work with the Graco 1.5 gallon humidifier?
+- How do you get the fridge to cool below 38 degrees?
+- hi if i order this model and ship to canada is the warrenty valid in canada
+- What size of lag bolts am I supposed to use to mount this to the bracket? The holes in the top of the filter unit are not threaded.
+- Does the pan come with the white trim on the handle that says "convertible vegetables/meat"?
+- Can I wash a queen size comforter in this model? This is a deal breaker for me.
+- I just received mine. On the bottom center is a jagged edge where the plastic was cut. Does anyone else have this issue? Thanks
+- How does it get rid of the water? Does it spin or just drain?
+- Is it 220v applicable?
+- Any Fiestaware owners care to say whether the dishes fit? I see a lot of complaints about the tight fit of the plates.
+- Is a keg included?
+- hi,can you tell me if this board will work on ge side by side fridge model # PSM27SHSC GS NO. SL424515
+- is the dryer vent in the back?
+- Will this Maintenance Kit fit my Kenmore model 11062802101?
+- Where can I get a 10ft extension for this unit? Will Broan 10ft ext (Lowes) kit fit this model? I know they're different make but has anyone tried?
+- Will this work for the HE3?
+- Does it fit a Samsung Refregerater # RS2533W
+- does it fit kitchen aid disposals?
+- Will a DA290002B interchange with a DA2900020B?
+- Mine after 2 uses is leaking water from the plastic knob. Can I purchase a replacement?
+- Is my current 34 1/2" x 20 1/4" cut out too large to fit this unit?
+- Will the we17x10010 replace a we17m37?
+- what brand and model # of oven does this fit? maybe several, i would like to hear from all of you whose ovens it does fit well. thx
+- What exactly does it fix?
+- Is the 24 inch dimension the width or the depth?
+- I have a Norcold model 1200LRIMSS in my RV and I think it calls for a model #633324 ice maker., Will this unit work as a replacement ?
+- does it have down draft
+- what is the exact measurements of the basket
+- how well insulated is storage bucket
+- Will you please tell me exactly what is included in this kit?
+- how do I replace Whirlpool 902894 Door Gasket?
+- Will it fit kenmore Elite fridge model #401.41003011?
+- will this work for whirlpool washer model wtw5200vq2?
+- Can anyone verify that this is the correct kit to add an icemaker to a Whirlpool mod. # ET18GK ? And if so, does this contain ALL parts for an add-on.
+- My kit had a horrible petroleum smell. Did anyone have this issue?
+- Will this pizza hold large pizzas? I'm thinking Red Baron or even the Sam's Large pizzas. I can't find any interior dimensions.
+- Is this item paper and is it a 15 inch bag?
+- Will this unit give me two readings - one where the main display is and another where the remote is placed (outside)?
+- Will this work for my Magic Chef 3868xvw oven?
+- Will this fit the SL-D2 model?
+- Does this replace the lg adq36006101 filter?
+- Does it fit model kude70fxss1
+- Does this vent contain heat?? Can you use it on portable air conditioners
+- What light bulb does Broan 390 require?
+- how many pounds can i put in ?
+- Does this replace Kenmore filter 5231JA2006
+- Is there a list of the contaminants which are filtered out?
+- Is this fridge actually 74 inches tall?
+- is the overall height WITH the pedestals 55"?
+- Does this product come with a conversion kit?
+- I have a frigidaire gas range FGFLZ87GCA. Will this igniter work?
+- Is this screen the Almond color?
+- How long are the wires, from the edge of the ceramic body to the start of the connector?
+- Can this work on a non threaded faucet?
+- Do you have to turn the water off to change the filter?
+- Can this unit be vented through the wall?
+- I tested voltages on all wires, but tested two units and neither turn on. Anything I'm missing?
+- How does this muffle noise and prevent splash back with the large holes--you can see the bottom of the disposer thru the large center opening?
+- I've had mine for a month now,and it used to make ice that was"softer",easy to crunch. All of the sudden it is making ice that is really hard. Why?
+- Do all the O2 absorbers have to be used at once or are the individually sealed?
+- does it come with wheels portable?
+- Have 12 foot ceiling. What can I do? Would two extensions fit together?
+- Will this replace model Nutone model 696ND-B or what will?
+- does this particular unit have the metal as the heating element or the funny raise hump? I'm looking for the older model with the metal plate.
+- what are the filter measurements please?
+- Model LE6150xsw1 is this the correct part?
+- Did GE get the issue fix that leaves black marks on clothes?
+- Does the filter actually need to be mounted to a wall, or will it function normally laying on the ground behind the fridge?
+- shipping and handling is $352.49. is there a way to get rid off this fees? and whats the return policy on the item is there is any damage or if not wo
+- Is this model compatible with samsung RSG257AARS?
+- will this replace an amana sxd25jw-p1104001ww ice maker
+- are you able to use these on JGBP88SEM2SS
+- If installation is purchased, is the power cable included as part of the installation fee?
+- does this come in a pack of 2 filters?
+- May I know what is Org.?
+- What is the proper handle to go with this basket?
+- has anyone used it with a firgidaire refrigerator?
+- What is the AI-215's current consumption at 120V? Just look at the product label on the back of the unit, it will be listed in WATTS or AMPS.
+- can queen comforter wash in this
+- is this a 16 gauge or 14 gauge cord
+- What are the dimensions in terms of footprint (where the legs are)? The dimensions listed 21.8 x 20.2 seem too big and almost square. Might not fit on my counter. I don't care if the wine part goes over the sink. The legs must fit on the counter!
+- Is the dimension exactly 29.5" and 23.6"? Do you have an installation manual online?
+- how tall is this refrigerator?( Moses)
+- Will it fit Model MDBH955AWS ?
+- Is there a way to turn off heated drying? All I have is a ProDry button and it doesn't even light up when I press it, but heat runs with every wash.
+- WIll this kit work on Whirlpool WED9200SQ0 FRONT LOADER ELECTRIC DRYER?
+- What is the width of the vent stack?
+- do they have to be positioned in a particular part of the dishwasher rack
+- How long are the wash setting times?
+- do you have grates to fit a kenmore gas range or will these fit?
+- I have a electic stove that has varying sizes of burners. here its mentioned as 8 inch. What can i do for small burners ? How many plates in package?
+- Are all GE Standard fitting? The numbers on my knob sare as follows: KIP5B5S and 191D2826 and 191D3419 there is also PBT 2. Will these work for me?
+- Can this be installed vent free?
+- Is this the same size as the A122?
+- Anyone have an issue with their pots and pans wobbling on the cast iron grates?
+- can it be wall mounted
+- Is any hardware included?
+- Are both ovens electric? why is there a 12000 BTU Broiler burner specified?
+- Does it fix whirlpool french door water filter?
+- What are the internal dimensions? In inches or centimeters please. Units are important. Also what are the wall thicknesses?
+- My valve reads Y-30128-35. Will this part work or will the two letters on the end prevent it? Also, they look just the same
+- Will this basket fit Kenmore Elite model 665 16264400?
+- will it fit kitchenaid KUDS35FXSS8
+- I'm looking for something to use in a dorm room. This say's "connector type: water line". Can we not simply plug in a reqular outlet?
+- Does anyone have this installed on a wood floor? Any vibration or "walking" issues? If so, how did you fix them?
+- I just installed one of these filters, water didn't come through when I turned faucet on, tried to remove filter and reinstall and it exploded??
+- Why does the product name include "Deep"? Are there different dimensions for the same part 2187172?
+- Does this have to be hard wired?or can it be plugged into an outlet?
+- Does it have FM Radio?
+- Does this fit the 11047512600 washer?
+- Will this fit a GE model DHDSR46EE1WW electric dryer?
+- Hi. Can you tell me please what the difference is in model DD24STI7 and DD24SI7? Thank you in advance for your time.
+- What is the size of the drying drum in cubic feet; in other words, drying capacity?
+- Will these bags fit a Broan Elite compactor?
+- Good afternoon. This tablet serves the GE model GLM23REW?
+- Smells
+- Is the clock 12 or 24 hours?
+- will it fit the quiet series 200 Model MDB7751AWS
+- will this replace AP4087111 (on a C201-C jenn air cooktop)?
+- Is it actually in stock and can be shipped in 2 -3 days?
+- how do you remove old filter
+- Is this the LG Part No. ADQ3600610?
+- How do you remove the drain hose for storage without water splashing all over the floor from the lower opening?
+- Where do you measure for the width?
+- How many BTU have each burnner?
+- What is the dimension of the whole roof cap
+- will lthis fit a majic chef 2002 (3 BURNER) STOVE
+- Will it attach to wall?
+- What is the length of this cord?
+- Can you dry more than one item at a time? Was thinking light shirts or thin workout clothes
+- i have a 10 1/2 foot ceiling... will this attach to the pieces that came with the hood so that I can get the maximum height?
+- does this cartridge #4396508 replace #4396547
+- What is the diameter? 2.25 or 1.8 or 1-3/4
+- can it use in place of a # 4396509 filter
+- Will the Panda portable washer and dryer fit on this stand?
+- Can anyone tell me the N rating on these magnets?
+- is this compatible with the refrigerator model KF1901?
+- Will this work for a Kenmore smart reach?
+- Another question, can they replace knobs from a model #AKH35. I don't mind paying the $8.00 +for 4 burners, but you can keep the oven knobs
+- can this range be converted to propane
+- Is this the correct part for the burned-out broiler element on my GE range model JBP80C0F1CC?
+- Will these knobs fit my Jen air gas range.? It's 14years old.
+- Will this fit a Maytag Neptune Model # MDE6700AYW?
+- can this be used on a gas dryer ???
+- is working with O keefe &amp; merritt?
+- Does this filter in any way affect the function of the refrigerator or damage the motor if not replaced? Is this thing necessary?
+- Will cast iron pots work on the PIC?
+- Have you got a picture of it with the door open? I'd like to see the baskets.
+- How often does the filter need to be changed on an AP903 when it is used only 4 months a year
+- Is Amazon still shipping the discontinued model DCF401W1 or are they now shipping DCF401W? Danby's website says DCF401W1 is now discontinued. TY!
+- How many btus?
+- hi,can you tell me if this board will work on ge side by side fridge model # PSM27SHSC GS NO. SL424515
+- does trim come with the product to cover the space between the ovens and the cabinets?
+- Can this be used outdoors on a covered patio?
+- Is there a 6" to 3 1/4 x 10" adapter for a rectangular duct? What is the width of the chimney?
+- We have a Badger 500-1 garbage disposal, will this fit?
+- I can turn the insinkerator using this, but still stiff, even after turning it a dozen times. I still get hum -no spin- only when turn on. Next steps?
+- does this product fit the in-sink-erator Badger 5 1/2 hp
+- How do you know if this part needs replacing? I replaced a broken door lever, but the door hangs down, so the part won't fit in the hole.
+- will this work with Tappan model 316244408
+- does it have a D shape insert
+- Is this product compatible with a Whirlpool ET21GKXHW00? Thanks
+- Will this fit Maytag Model DWU9200AAX?
+- will it work with kenmore 911.93471891
+- does this ice maker also keep the ice frozen?
+- Do you use a 1/2" flare connection to connect the propane or a female pipe thread or npt? Or other?
+- One of the reviews on another site mentioned a faulty timer/beeper noise. Has anyone else had this issue? Thanks in advance!
+- This is the correct part number for my Kenmore Range, but it is listed here as a Frigidare part. Are they compatible? I have a Kenmore 79094102703
+- Had Whirlpool washer for 2 yrs.-piece of junk. Is LG any better than Whirlpool high efficiency washer with direct drive?
+- Will this fit on stove model EER4001N02SS
+- what size halogen bulbs dose it take and which filters do I nee d to purchase?
+- is there a warranty on this item?
+- How long do the batteries last in the wireless temperature sensors?
+- can this replace amana 106 626639?
+- Kenmore washer 60 series had no isolator ring, found oil leaking on transmission, do I need get this complete kit?
+- About how many standard water bottles could fit in this fridge? Does it allow for 2 rows of water bottles on the top and bottom?
+- Does this come with the back hinges and scres so it can be attatched to the back of the cooktop?
+- Hi. Will this work for my whirlpool duet wed9270xw1 dryer?
+- Does it has a lock option? I was wondering if this product has a lock option in order to prevent a kid that could open the valve.
+- Will this item fit a Norcold1200 LRIM refrigerator?
+- Do you have to soak these bags in water first? I had some prevously that you had to soak and it was sort of a pain...Thanks
+- Is this cooler door in frame designed for a walk in with a floor or with out a floor
+- Is the stainless steel finish coated
+- Is this filter made in USA?
+- what is the size in inches or centimeters,can I hang the dryer on the wall, my old one hangs
+- Are these the correct bearings for the Frigidaire FWT445GES2? If not, would you provide a link if you have the correct size? Thank you!
+- Does the washing machine have a stop (magnetic or other) that holds the door slightly open when not in use (to discourage mold growth)?
+- How easy is it to cut ?
+- The reviews are so varying. Is this product working correctly????
+- Can the filter be cleaned easily with soap?Thanks
+- I have an old lady kenmore 11078890800 they have discontinued the part is there a compatible fuse I can use or am i out of luck
+- if there is water leaking from dispenser what do you do?
+- How does the ice maker connect to refrig? I see a tube, but not where it connects? Does it have instructions
+- Is this the correct kit for model WED9610XW
+- Will this filter work for Whirpool duo dryer WGD9450WU?
+- My wife is concerned that she will break a glass top / smooth top cooktop. Is this a concern?
+- Need an ice maker for Samsung Model RFG297AARS/XAA. Is this the correct replacement part?
+- who makes this fan?
+- I would like to buy two, can I purchase a left and a right hinged model?
+- Will this fit a daewoo microwave?
+- What is the voltage 115 or 220?
+- Does this lint filter work well alone or are the other two parts recommended required for it to work properly?
+- Will this work on a Kenmore Model # 3639711786?
+- I want this unit but I need the connectors to run about a foot longer. Has anyone hacked into the the lines to extend them? Do tell!
+- Can this be used on gas stove when making polenta which needs low heat.
+- Does this knob fit a GE Model GTDX100EMOWW Dryer?
+- Can the slide out tray be inserted from either side of the main rack?
+- How much is the size difference between small and large cubes? I got a machine yesterday, and there doesn't seem to be much difference in size.
+- gas range whirlpool model sf362lxtto oven lights but will not stay lite?
+- When do you expect an ANDROID (85% Worldwide Marketshare) App?
+- Will it use the water from the melted ice to make new ice cubes?
+- Provides downdraft vent?
+- Love this oven, anyone having trouble with the plug getting in the way of pushing it all the way back against the wall? Looking for some tips
+- Will this fit whirlpool model ET5WSEX5Q00 It has never had an Ice maker but it is supose to be set up for one
+- Can you stack two of these on each other?
+- Does this come with instructions on how to replace the coupler?
+- What material are these made of? Plastic, Metal?
+- How long is the normal wash cycle suppose to be on this dishwasher?
+- will this work on kenmore 11027072604
+- Can the ovens be used without convection? in other words, can the convectioin feature be left off?
+- 50 lbs. of "ice storage" . . . does that mean that it will actually "store" ice for an extended period of time (several days, weeks)?
+- Is it CSA approved?
+- xcould this hose be screwed into the existing exhaust hose I have on my portable air conditioner
+- Does this filter fit a HAP9412WF Model
+- How long is the handle
+- I need a tank only for Serial Number 96216161886 water heater by atwood. _ also GEA 6E 4D number - 1991
+- Does this come with one or two racks?
+- Will magnets stick to the sides of this refrigerator? I have magnetic spice racks to save space and need to know if they will stick before purchasing
+- Are knobs metal or plastic
+- Are the extenders heat resistend? I have a Gas stove will it work?
+- Is it delivered in a unmark box
+- does itspin the cloths
+- We have GE GXRLQR installed in our recently bought house water tab and we need to replace the filter. Is there a special one for regular water faucet?
+- Do these work on induction cooktops?
+- My wife likes the falter and wider type surface coils, are theses like that that? cant tell from the photo.
+- my cabinets will allow 30 inches wide. will it fit?
+- Is the drain board inclined? Rubbermaid no longer makes the drain board on an incline. The flat drain boards don't fit over an over mount sink.
+- I have a gc1000 that no longer grinds. Is this model the same size, as I have little room (2 or 3 inches) underneath before trap pipe
+- I have a Whirlpool Duet Sport, model WFW8400TB00. Will it fit?
+- Do you need a plumber to install this? How do you install it?
+- Do you have insinkerator splash guards Model Nol 348241--4 inches in diameter
+- will they fit a kenmore model number79094212400
+- We live in Toronto where the temperatures drop below zero. Would this unit be design for a colder climate?
+- The photo doesn't show the other side -- can I slide one of the vent holes to fit a 12" space between holes?
+- is there lighting in the freezer and refrigerator?
+- Is the silverware tray easily removable to enable putting in the dishwasher to help prevent mold from pooled water?
+- what is the difference between WSW-1 vs WSW-2?
+- How high does the recessed portion raise the washer. I am trying to lift my pedestal to clear the lip of the drain pan.
+- Is it a built-in unit? If not, what is the diffefence between built-in and under counter unit?
+- is this replica? because my fridge came with a blue filter, this purple filter leaks,clogs and water taste bad.
+- can you use it all the time
+- No word is mentioned on how the rack is mounted???????
+- I have a body glove filter system in my restaurant that uses the body glove BG-3000S or BG-3000R &amp; ever pure H300 EV927200. Will this unit work?
+- Does it need roller wheels to move around? Can you recommend some that would fit to make thie freezer portable?
+- The pictures show an icemaker, is that included?
+- will this fit model mav6257aww
+- Why is your list price higher than on the Bosch website? Bosch lists this at $1,999.
+- Does it have a lock on it?
+- I have a Frigidaire FGF366DSA stove...will this work?
+- Does it fit model # GTDP300EMOWS
+- Do these fit in the AOS 7146 travel humifier tank?
+- I'm looking for an electric can opener for my grandmother who has arthritis. Is this one that would be easy for her to use?
+- Does this come with the drip tray and chrome rail?
+- is there extension kit for this vent?
+- I don't have an undermount sink, would the drainer work?
+- does it buzz when it's finished?
+- Is there any way to set the clock to standard time?
+- Can anyone help with providing installation instructions for this dispenser in Maytag Dishwasher Mod/MDBTT53AWW1? Thanks!
+- rug
+- Why is the dispenser light on the door still red and not blue after the pureadvantage water filter has been changed?
+- Is this heavy duty enough to use for a flush line on an ag pump, 20 psi for approx 1 minute? Is it clear enough to see dirty water? Thanks.
+- Does it come with the middle wash arm and tube and all the clips and parts?
+- Why does the manual warn against using with an extension cord? I have no outlet in my kitchen that's close enough.
+- How come the GE dimentions are 12.3x5x4.9 2pounds and Samsung 14.2x7.8x7.2 5pounds ?
+- Is the door reversible??
+- Does it work for RS265td? It says my water filter model number is HAF-CIN
+- I live in the country &amp; I have a well. Will I need to add salt? If so, will this machine accept a salt additive?
+- Does it come with screen? Or screen shall be purchased separately?
+- What size Co2 container does this come with?
+- does it work for r LG LSC27921ST?
+- What are the interior dimensions of the freezer?
+- why does nf light come on always ?
+- ARE THE SCREWS INCLUDED
+- does this igniter fit model hgs232uc
+- is this a pack of 4
+- Will 8 oz jelly jars fit in this storage bin or are there any better bins for storage of 8 oz jelly jars? Thanks.
+- DO you have the link to buy the device that goes between them?
+- The Hi-Temp light is on and the alarm frequently starts beeping. The temp is well below zero. Will replacing this fix the problem?
+- Does this remove the mold and stains as well as kill it?
+- What are some of the defects that require the unit to be returned?
+- I have a kenmore He4t model 11045981400. Will it work for mine?
+- I was going to order one but the price jumped from $118 to $143 in a day so it's cheaper to order it from Frigidaire. Why did the price jump?
+- will this work for GE model DCLR333ET1WW
+- Does the unit extend all the way to the bottom of an 8ft ceiling?
+- How do you lower the side to accommodate tall glasses? Which tab is moveable?
+- Is this downdraft ventilation?
+- Can u use this fridge in a RV or travel trailer?
+- Does the external probe measure BOTH Temp &amp; Humidity?
+- What type of warranty does this come with
+- Hello, I have a maytag dryer model LSE7804ACE. Is this the correct part?
+- Is this the newer v4 kit, or the old kit? Someone who has purchased this recently, please answer. Thank you!
+- is it hardwired
+- What are the dimensions of the basket ?
+- Does this fit an LG Front Load WM2050CW?
+- Does anyone know where I can get install instructions for this on a kitchenaid KUDS30IXWH1
+- 110 volt o 220volt
+- how hard to change filter?
+- Do I need a special Power Cord to plug this and the non-duct kit into a standard wall outlet?
+- Different sites list this with different heights. How tall is this unit, not including when you open the lid? Just the unit, when not in use. Thanks.
+- can you leave the ice in the ice maker or does it need to be removed after it is done
+- Does this make "sonic" ice? also called pearl ice, soft ice
+- Does it fit PF SW2MDCA SS
+- will this work for my MAH4000AWW?
+- What's the difference between the GVAI-30 and this one other than the clock? I don't see anything in the specs to say otherwise.
+- Will this replace INF-240P-871
+- what is a power cord?
+- Are these black? Almost look dark green on my screen/
+- Does it come in it's original packaging? and is the upc 50946008387
+- Compressor delay? Does this unit allow a programmable delay for use with a compressor so as not to shorten the life of the compressor?
+- Is it safe for plants?
+- Is this dishwasher energy star certified? If not, how much energy does it use?
+- Will this door handle fit on Model # FFHT2126 ?
+- does this part work with Kenmore model 596.79872990?
+- Will you also install both the washer and electric dryer?
+- How many plates can this hold?
+- Mine does not spin fast, clothes are so heavy with water.Had 2 electricians out.This is my 2nd one,returned 1st-DKW to do. What's wrong?
+- will this replace a 700854-4 jenn.air knob?
+- I want to hook up a stovetop to a 150 gln propane tank. Can I do this?
+- myfilter#9020whatwillfit
+- Unable to remove old filter to replace. Pushed in and turned counter clockwise. It only turned a small amount, and not 90 degrees. How to remove it?
+- DOes this machine make "clear" ice or regular ice?
+- Will this fit in the Whirlpool White Ice Side-by-SIde referigerator?
+- will this fit Thermador (OEM: Bosch) older cooktop?
+- After approximately one year of use it is extremely noisy when pumping the water from the reservoir. Is it possible to clean the fan mechanism?
+- Is it megnetic? Will magnets stay on?
+- What shape are the ice cubes dispensed? In the picture above, they appear to be like cubes rather than the half moon shapes normally produced.
+- water leak on floor want to know anybody had prob with hoses under machine
+- Can anyone say if this LFX28968ST fridge is rated to operate at 50Hz or 60Hz frequency? It should be written on a tag on the fridge somewhere.
+- Does the horizontal model filter out the water in a faster flowing stream than the vertical model?
+- I understant the way it collects the lint, but what happens to the humidity? Will I end up with wet walls?
+- are there 2 ice makers or 1?
+- Is there some assembly required? I need to know if the customer has to add the fluid for the thermometer
+- What is the warranty
+- Is this the same as LG filter 5231JA2006B-S? It's hard to tell by looking at the picture.
+- Does it hold professional sized cookie sheets?
+- Is this the version with the rubber band + clamp, or the one with the threaded hook + nut? The small preview image on this page shows the threaded/nut version, but the large image shows the rubber band.
+- for the lfx 3395 is it a new one and can you waive shipping cost to duluth ga(30097)
+- how many gallons we should drain before using it?
+- does it get cold enough
+- Any you folks tell me if this might be an effective &amp; reliable dimmer for 12v LED lighting strips? Those marketed for that purpose appear to be junk.
+- can the door hinges be swapped to the left side?
+- Good morning, if i buy the Keg Cooler , do i need any aditional accesory so i can use it, thank you
+- Will this replace a Samsung model DA29-00020A/B filter?
+- One answer is that fridge has auto defrost and another answer states it has no freezer. I'm confused!
+- how do you get the temperature below 37
+- I have a KSRB22FKSS04 Whirlpool side by side MFG date 08/03. Is this the right kit for that fridge and does it include both sensors?
+- Can you turn the convection feature off?
+- Does it fit for all Whirlpool Duet models? My washer is WFW94HEXW2 and dryer is WGD94HEXW1... thanks very much
+- Once removed - does it have enough "stick" to re-use the same piece if I have to get bubbles out?
+- Does this filter fit the kenmore elite 795.72093.312?
+- Does the tank come with the gasket kit?
+- 15 Percent Off Dosent Work?? Hitachi DB3DL: When you go to checkout it dosent take anything off???
+- Does the old stack kit fit on the new washer and old dryer?
+- after two uses the large drip pan has paint missing can this be replaced or repainted.....
+- 120V? I think i have 110V at my house in DC area. Can I use this unit here?
+- Is the oven self-cleaning?
+- how long does beer stay fresh? how often do you have to change CO2 and where do you buy those? do smaller kegs stay fresh longer? how/when do u clean?
+- Will this work to on a MAH6500AWW? Ours is original and moldy despite bleach treatments.
+- My Kitchen Aid side by side is model #KSRV22FVBTOO. It is a type 22 MSSA. Will this Whirlpool 4396508 work for me?
+- Does this model turn off automatically after the cycle is finished? What improvements does the DDW1899BLS-1 (-1 at end) offer over the DDW1899BLS?
+- The cartridge in the picture appears to have white specs therefore it would be a white, which would indicate it is model JEA8120ADW. Can you verify?
+- This doesn't need to drain while in operation? I am a truck driver and would like to place it in seat, want to make sure it doesnt shoot water out
+- How do I correct the alarm that sounds on my Bosch Ascenta Dish Washer?
+- Does this unit have external sensors?if so how many,am looking for one to use specifically in a Greenhouse.
+- What size is the output duct requirement?
+- Does this element include the hanger bracket or do you re-use the original one?
+- Does this disposer come with a stainless steel mount?
+- Can I put the GE Profile convection single wall oven below this cooktop?
+- How do you get a 3 year warranty?
+- will this kit fit my Magic Chef refrigerator?
+- will this filter work in a kenmore side by side model #58787892.
+- Can it be mounted on a wall?
+- Will it fit a sub zero 611?
+- will this fit model lg lsc27910tt
+- Does this system remove iron? My water has an extremely high content.
+- What are the dimensions?
+- does this filter work on all style 8?
+- why is my Danby 700 making so much noise?
+- Will this filter fit Kenmore Elite Model # 795.7107
+- Can the lights be turned off completely?
+- will it fit model # lsr8010pq2
+- Is this the right set for Whirlpool Model ghw9100lw1
+- Thermador fridge. Model Number: T301R70NSP/08. Need water filter. Thermador's item number is 740570. Bosch makes these. Part# and cost or link. Arif
+- so any way to remove this mold? just replace the rubber gasket/lining? apparently not easy to re-insert...
+- Does a filter come with hood
+- Is this filter ULTRAWF correct to replace Frigidaire P/N 242017801?
+- Will this fit a potscrubber 1230 GSD1230T63WW? Thank you!
+- How much water does it's reservoir hold?
+- My first time buying outlets, if I get these will I need to know anything about the ones I'm replacing or are these sort-of universal?
+- Can this hood be ducted horizontally through a wall?
+- Is this the correct ice maker for a KitchenAid KSBS25INBL00?
+- I am wondering if this wall cap fits 3" round duct since I could not make the hole larger?
+- Will it fit Whirlpool Dryer WED9500TW2?
+- What are the grayness made of? Thanks!!
+- Does it hook up to any faucet?
+- Does this contain all the same parts as a Whirlpool PN 285790 Lining/Band (always for less)? Hard to see from the pics.
+- My stove is 26" deep but this hood is only 22". Does it work well with smoke/smell from the front burners?
+- will a standard european keg fit in this kegerator?
+- Stopped washing can't open door?
+- We prefer nitro poured beers rather than CO2. Is it possible to use nitro with this dispenser?
+- Does this have the assembly and the latch? Thanks
+- Are these the aluminum filters or are these fabric or paper? If the latter, do they go underneath the aluminum ones that came with the hood? Thanks!
+- Is it dual voltage (110-240 v)
+- Does it have a .25 Inch Fitting?
+- Does the indicator strip to become colored all the way along when it's time to change?
+- What are the different colored round "things" for and do they show or do they go underneath the knobs? Thanks
+- Kenmore refridgerator: Does anyone know if this model works with the Kenmore refrigerators.
+- Does this work with stackable washer/dryers?
+- does this washer have a spin cycle?
+- Will this Small PermaWick Filter fit model # 33201 Hunter Humidifier?
+- why is it cheaper to buy two one packs than one two pack?
+- doest it have volume control?
+- how do you lock the wheels on cye23tsdss
+- do you also have to replace the retaining rings when replacing this part?
+- Will it fit MDE2706AYW Maytag super size dryer?
+- Does the tub fill with water for the rinse cycle or does it spray the clothes with water to rinse them?
+- Is this the same as Aprilaire 35 (2 Pack) Humidifier Filters
+- My appliances are brushed stainless steel. Is the back splash shinny or brushed?
+- Does this kegerator have a lock on it so that we can keep it locked when not using??
+- does it come in black?
+- Where do you get the griddle and can you swap out for their other knobs? Love it so far.
+- Is the product same as the picture you posted? Are these all included - "metal box enclosing coin slide &amp; locked coin vault"? Any keys?
+- model e128bs561so where shut off arm on ice naker is it spring loaded?
+- Is this the BEST countertop, electric washer there is out there?
+- Where does it fit in the frig?
+- Is this refrigerator quiet enough for a small open floor plan?
+- I need WHIRLPOOL RF365BXWW1 SWITCH 3149400
+- Can this open a 32 oz can if crushed tomatoes or any other really wide can?
+- Does it fit model RF4287HA?
+- How many clothes (say t-shirts) can you comfortably fit into it without stuffing them in? On average how much can you wash at one time?
+- Does this dryer require 220 volt power?
+- Is this a genuine GE product, or by an after-market manufacturer FOR a GE appliance?
+- What is the power consumption? Thinking of using it on a boat but would need and inverter.
+- will it sit on the floor of the oven or does it need a rack?
+- what about the dishwasher connection?
+- It says it produces a "batch" of ice in 15 minutes. How many cubes is that (medium size)?
+- I have a Kitchen Aid KCM1402 coffee maker will these pods fit
+- Does the electricity have an American Plug or a Europe Plug?
+- Will this fit a Whirlpool conquest Ref model: GS6SHAXKQ01?
+- Does this beverage cooler have an auto defrost or frost free feature?
+- This is a re-circulating fan correct? Does it need charcaol filter?
+- How does one remove accumulated lint? Snaps off?
+- Do I need two of these for each side of my baby ball python's tank?
+- On the Samsung French Door refrigerators, does anyone else have an issue with the freezer door making a loud crack or pop noise when being opened?
+- What kind of warrenty does this part have? I bought this part on 10/25/14 and it has a crack in the plastic that has started to leak water.
+- my opening appears to be 29.9 inches do you think this will fit
+- Will it fit Model KSB5WW3?
+- Product specs say 14.2" high. Does that include flange? My drain line is 14.5" below sink base and runs directly below disposal. Will it fit?
+- is this a vented dryer or ventless?
+- I have a height opening in my bar of exactly 33 1/2 inches. I don't want to squeeze this in. Can I take the feet off to gain more space?
+- Does this range have Sabbath Mode?
+- Is it safe to keep this unit on a carpeted floor?
+- Does it replace 641425
+- What will fit an Amana 20 Model bc20kw?
+- can it be used as a Fridge too? or only as a freezer
+- does it work with the S9?
+- can you get a remote control with this hood? And will it accommodate 9' ceilings?
+- Hi. How are you? Can I put my refrigerator magnets on top of the film? Thank you.
+- can this be used to force carbonate beer?
+- Does it have two timers that can operate simultaneously for when both ovens are in use at the same time??
+- Do you ship item to PR?
+- Is this device good for getting out tough stains? Is this better than using my hands?
+- what are the dimensions of the drainer tray ? My crrent one is 21" by 18" and I would actually like one a little wider.
+- Will this work on my astro turf sun deck for picking up bugs and leaves?
+- Is this range hood quiet when it is on?
+- is this part for whirlpool fridge model number ed2khaxvb00?
+- Is this part for in MF12665XEM Maytag refrigerator?
+- I'm putting in new granite countertops as well as the downdraft cooktop . . . does it matter which I do first?
+- do I need an adapter for the faucet hookup?
+- Is this washer/dryer combo compatible with gas hookups?
+- What problems are you having with you Whirlpool Duet GHW9250MT1 washing machine?
+- How do I purchase a warranty for this product?
+- is that a warming drawer on the bottom or is it just cosmetic?
+- will it fit a 106 626649
+- Does this come with installation instructions?
+- What are the dimensions of the opening?
+- How does it drain?
+- How deep is the lip on the rack?
+- I've got it attached, but it puts out a LOT of foam. First beer was nothing but foam; no liquid beer at all. I can't see how to adjust it.
+- Does this work for Fruit leathers?
+- Can the water outlet hose be installed on either side of the washer? Thanks.
+- I have a GE top freezer, with bottom fridge needing part #WR51x0368, will this part work or does it have to be exact?
+- is it suitable for a family of 5?
+- Is there a difference between the aluminum hose versus the plastic one, in heat transfer, taking hotter air out of a room? Is one better?
+- I have a gas stove and want to do install hood as ventless using the charcoal filters. Never had a gas stove so is that safe way to use the hood?
+- Will Whirlpool XHP1550VW pedestal fit Maytag Maxima Model #MED5100DW?
+- What is the minimal allowable clearance between top of a gas range and bottom of this hood?
+- Will this blade fit a 2002 Kitchenaid dishwasher, model KUDP01LWH0?
+- My model isn't listed, but looks the same. WPXH214AOWW - picture of the back would be helpful.
+- is this for KF 1911 Vi
+- Does this fit model FEFB66ECH?
+- Are these stackable when they contain food items?
+- Just received it but my faucet is a regular one with no threads. Any suggestions on what I should do?
+- is this ac / dc powered or just dc?
+- my paperwork shows this as the replacement filter, HAPF300D but it is not showing my unit model # which is HAP716-U they look the same on the one side but the ones I have have clips on the other side. Will they fit my unit?
+- does this retract on its own after you stretch it out or does it stay in the same position?
+- I have 9 ft ceilings. Can I add an extension or will this possibly work for me?
+- Is this the correct part for LG gas dryer model DLGx5171W ?
+- Is this the same as Kenmore's because their part no. Is the same . Will it fit KENMORE Elite HE3 Model No. 11042822203?
+- does this plug into a regular outlet?
+- which filter are they used in.?
+- Does anyone know what the Watt Hours would be for this battery?
+- What brand is this reviewing?
+- Will this fit a Hotpoint stovetop? One place says yes. Another place says no.
+- does the thermometer only work when plugged into an ios device?
+- will it work for model 106.54789801
+- Is an extension available for a 10' ceiling? If so, how much?
+- what is the amps?
+- Our stove is a Frigidaire? Will this element work on it?
+- Do they come with a stackable feature?
+- does this have a water filter?
+- Does the duct kit come with the range.
+- Can you stack these on top of each other. So if I bought 2 could I have them 2 high instead of 2 wide?
+- I'm replacing a 30" JenAir glass cooktop and we have granite counters. I'm worried the cutout won't match exactly- what size will this require?
+- Is one of ovens convection?
+- How loud is the downdraft?
+- does this fit maytag
+- I have amana model tx21vw, will this replacement ice maker fit? thankyou!
+- Does this work with a Smartthings hub and app?
+- I have a Maytag model MDC4560Aww1 dishwasher. Will this kit work on my drain fill hose?
+- non vented?
+- Is there any truth to the rumor that you can NOT use aluminum foil in the ovens on this range?
+- I am looking for the whirlpool part # ps345247. whenever I searched for it, it showed different parts number. Are those parts the same?
+- why does it have a vent hole..do they all have that or do i need to know which one my washer takes? i have ghw9200lq
+- is the whirlpool 4396508 the same as kenmore 90102 refrigerator filter
+- Does motor 279827 work for Kenmore 3395652 motor model #110.76722690 dryer with no difference.
+- is this just a dry/empty cylinder or is it full of refrigerant?
+- What are the dimensions of this filter?? WF2
+- Will it work with a electric baseboard heat in one bedroom?
+- i need a new ice maker but cannot find part here is the mod.# ed5chqxvq01 whirlpool please help
+- I have a older maytag Neptune before they added a drain to the boot. Will this newer version with drain still work as a replacement?
+- maytag quiet 300 dishwasher will it fit ?
+- I just hooked mine up for the first time and beer is spraying everywhere out of the holes where the faucet screws onto the shank. Any thoughts?
+- How long does this ducting stretch out to?
+- how large is the ice storage compartment?
+- Is it the same as part #: adq36006102
+- How tall is the stack on this E159 Broan hood?
+- Can this be used outdoors? Or do you know of a flat extension cord which is indoor/outdoor?
+- Is this compatable with Frigidaire FRS6R5ESB6?
+- How tall is this refirgerator i feet? How high does it stand from the ground
+- Will this work with a REMstar plus with c-flex CPA
+- Will it fit into a 27 inch wide space?
+- Has Amazon fixed the "Bait and Switch" with customers? The customer comments are rife with ordering "B" filters, but getting inferior "A" models.
+- Is the depth 27 inches?
+- good afternoon, would like to know if this kit is compatible for Cavaliere-Euro model SV218Z2-I42 42 Inch 900 CFM Island Mounted Stainless Steel Range
+- Will this work for a Maytag washer model MAV9501EW?
+- Is this product compatible with the AOS 7144 which normally takes a Hydrostick?
+- Will it remove sulfur from our well water?
+- Does this have a 4 pin wiring harness or 8 pin?
+- Does this have a hookup for a dishwasher?
+- Smell
+- Need to see interior, and cannot find outside dimensions
+- Is the drain tray angled so the water goes into the sink &amp; NOT all over the counters?
+- Is this bin suitable for the FREEZER? (I see others that say Freezer Storage Tray, but they are too big for my freezer.)
+- There is water in the bottom after spin.Thought it was my 6ft high drain tube that was backwashing.Reconfigured it to go 3ft up. Still happening.
+- Does this key fit Kenmore Elite upright freezer?
+- Does it fit Kitchen Aid model # KFCS22EBMS8
+- where is this product made?
+- I've had my vent hood for about 3-4 months. This morning it started making rapid-fire clicking noises (nothing turned on). Anyone had this problem?
+- What filter fits the model HCM-710?
+- does it have auto defrost
+- Is this compatible with GE Oven JK955SOF3SS?
+- Is door reversible?
+- I want to know how long it actually takes to wash a typical load of laundry. 40 mins? 60 mins?
+- Does this fit KENMORE DISHWASHER #66517373301 ? I researched it and looks like a good fit but would like to make sure before I buy
+- What are the customer reviews for Frigidaire 30" 5 burner gas stove?
+- will knobs fit kenmore#362.75275692
+- Will this work with the Frigidaire Front Load Coin Operated Electric Dryer - FCED3000WH
+- Is there a extension piece that I can get to raise the tape head base off the fridge? (so I can mount the tap head base on a counter top)
+- Does this fit a 7'6" ceiling height?
+- Can this unit work with 10' ceilings? If so, what would I need? Thank you!!
+- Does this filter remove fluoride from the water?
+- will this replace a (700854-4 part no.) jenn.air knob?
+- Does this unit have to be serviced? Does the unit require replacement filters - etc. after a period of time?
+- Why does amazon charge so much?
+- Several people provided bad reviews for the filters not working after a few days. Why did they not last?
+- hi what size box does this come with
+- need owners manual
+- WILL THIS FIT MODEL (P) MSD2641KEB ?
+- I have an old Tappan kitchen, 4 burners...will it fit mine?
+- Can it wash 1 or 2 towels at a time?
+- Are the bulbs and filter included or must I purchase these separately? Also, does it truly fit in a 30-in space?
+- i have a maytag mvwx500xlo will this work
+- How hard is the stainless to keep clean? Is it really stainless steel or a stainless steel look.
+- How much does this unit weigh?
+- The box that it arrives by fedex, does it say washing machine because landlord and nosey neighbors may have a problem. Del. 5/1 but I'm at work.
+- Does it hook up to water
+- How much water does the unit use in a cycle? How many Gallons?
+- What is the width and length of the roll?
+- why are there 6 cams in the kit when only 4 are needed?
+- I don't have power where the fan will be on. Where should the outlet be installed if the fan's installed 30" above the stove? link to instructions?
+- what is the size of the duct vent
+- Does it have a freezer? Will I have to manually defrost?
+- Can this be installed over a dishwasher?
+- does it remove lint and hair from clothing?
+- How long does it take for the chemical odor to go away. I just received one minutes ago. Thanks!
+- I have a GE Profile model no. PFS22SISBSS and the control brd model no. 0158-04-03.... Will this WR55X10552 work for my model?
+- What are these drip pans made from? GE says there should be a difference between the left and right because of the curvature at the top outer corners.
+- good day I need bearings and seal kit for model whirlool wfw9300vu02
+- Does the propane conversion kit come with it?
+- Where is this filter manufactured?
+- will this fit model fef366cca
+- Can this dryer handle bedding? I have a full-size bed and I wonder if I'll still have to find quarters to dry my blankets.
+- Will this filter work for my frigidaire FRS3HR35KSO refrigerator?
+- What quantity of liquid is used per gallon of water?
+- I was thinking about using this as an in-sink dish rack. Is the material something I could drill holes into for drainage?
+- Can the middle drawer be changed from freezer to fridge? does it have individual temperature control?
+- Are these lead free?
+- How does it hook up AND Drain?
+- Can this be used as is for nonducted or does it require the conversion kit?
+- where are they made
+- what are the dimensions
+- Can I pass a coax cable thru it?
+- is this the same part as for the kenmore oasis themostat
+- Can it be raised after installation - wanting the height to be higher it was installed at 36" want to raise to 30"
+- Does this work for an island hood or is it only for a wall mount? thank you!
+- Is this the black blender jar seal for model KSB560CUD ? Thanks!
+- Is it common for this not to work.. even after being just a few days old? I am still getting white dust all over my electronics and such.
+- This hood is for 8-9 foot ceilings. What extention would fit for a 12 foot ceiling?
+- does this work as a built-in? I don;t want to have three inches on all sides...I need cabinets and countertop flush with this product.
+- Does this come with electrical wires, the picture does not show but I would like to have this
+- I just bought a model without led lights, do you sell a kit that allows for upgrade to led lights (it looks like simple plug n play for switching)
+- Where can I get connectors for kenmore filter 46-38447?
+- Will these fit a Tappan electric stove? Older model, no model number, 20 yrs +
+- will this work for an Rv? My wife and I live in a 5th wheel trailer with laundry hookup's I am thinking of buying this dryer will it work for my needs
+- Will this work with a Frigidaire FGGF304DLF1?
+- What is the wattage of each LED?
+- No water come in an it hummming
+- Will this work with Whirlpool WGD70HEBW 1?
+- How many amps and what type of connection does this require? Can I hardwire it using romex or does it use a cord to be plugged into a receptacle?
+- how long is warranty ?
+- is the cooking grate removable?
+- what is the difference between honewell HC14 and HC14N filter?
+- Does it have just a clock, or does it also have a timer?
+- does it come with the tub seal or do need to order one
+- the description says black, but the picture is white. what color is the unit? thx.
+- Will this humidistat work with a Totaline P110-LBP2417 humidifier??
+- How well does this wash eggs?
+- What does ASSEMBLY mean?
+- what is the difference between the 46-38447 and an 38447 please?
+- How can one tell if the range hood is ducted or non-ducted? When the fan is turned on, there's air blowing out from the front of the hood.
+- Will this fit GE model WBVH6240HWW
+- is it good for canning
+- GE gshs5kgxgcss can't fix. Changed valve/flapper/Filter Assembly&amp;Tube/solenoid/put filter bypass/Water Tank Assembly, nothing workd. SM leak continue
+- I would like to know if the agitator kicks some butt on this machine or is it like all the rest...barely moves??? Thank you for your assistance.
+- How many watts?
+- why is used filter more expensive than new
+- I have a wall switch. My current insinkerator has a cover that will activate the unit.Will the cover control plus unit operate the same way ?
+- what type of power cord
+- Can it be built in your kitchen with cabinets around it?
+- Does this include the housing?
+- Does this water filter fit Kichenaid KCM223 coffee maker?
+- I have a four year old Whirlpool electric stove. I can't find out if they will fit my model. Any suggestions?
+- Does this igniter coming with those two porcelain wire nuts (Supco T1164 Porcelain Wire Nut, High Heat, 18-14 Wire, Small Size #1) shown on the picture or that have to be purchased separately?
+- The product dimensions (1 x 0.3 x 0.9 inches) listed in the technical details don't seem to match the picture. What is the actual size of the filter?
+- Dimensions show 25 1/4 Depth - with normal units 5" more is required for vent, water hoses, etc. Does this system really fit in 25"?
+- Is this part the equivalent of the Estate thermal cut off #279816 --- it is an older model, looks exactly the same but??
+- How tall is it?
+- How is this dyer vented.? Do you need to vent in out a window or a receptacle that leads to the outside of the building?
+- has anyone had issues with the warming burner not shutting off?
+- I have a GE Spectra-glass top stove and a few days ago,the heating element fried.The broil part works.I was wondering if this will work.
+- will tis fit my mhwe400ww01, is it a direct fit, are the bearings strong enough to handle the 1100 rpm spin ?
+- Is this durable enough to be put out on a covered deck? My deck doesn't get direct sun and is pretty protected from the elements.
+- size: where are the measurements
+- ANY REVIEWS ON WHIRLPOOL WTW 4850BW?
+- will it fit elite b40?
+- Has anyone replaced the little screen? Where did you obtain?
+- does the glass have a greenish tone? I/m trying to match it with a light fixture.
+- is the finished brushed SS? can you dim the led lights?
+- Will this vent grill fit whirlpool mh8150xjt1 ? thanks, Ron O.
+- I have an Insink Erator model # Pro 17-6, serial # 05011534733. batch feed. It no longer works. Will this Insink Erator fit in where myoldmodelfits?
+- I have a Kenmore Elite and found the model # for the icemaker was 2198597 at Sears web site. Can I use this product even though it is for Whirlpool?
+- Stupid question...does this hood come with a motor? My parents are insisting that for the $, it can't come with a motor -- that it is just the hood!
+- The information on the 6325 said it is constructed of cast aluminum. Aluminum does not work on induction cook tops as it is not magnetic. How than can it work?
+- I want to roll it in front of my sink, hook it up to the faucet, plug it in, and run it. Does the portability kit have a long enough hose?
+- Will this fit my Crosley CRTE151AW5? Is the fill tube, water inlet valve and water inlet line included?
+- will this element fit the amana AER5511AAW heating element
+- Can you put this under a counter and mount the tap on the counter? Will there be a large hole in the top of the fridge I will have to insulate?
+- Would this be effective for a pair of jeans? Doing a dozen of: socks, underwear, shirts. Loads to small to take to the laundrymat
+- Anyone install this with round ducting in place in kitchen?
+- is there a matching dryer for this washer
+- I used Maytag water filter PUR W 10193691 for side by side KichenAid refrigerator. Is this Whirlpool water filter 4396710 interchangeable with Maytag PUR water filter W10193691 ?
+- Is this a down draft cooktop?
+- what color is it?
+- I need to replace a frigidaire icemaker Part # IM115, will this fit?
+- What is the length of this flex hose? I'm looking for something in the 5-10 foot range, but cannot find any specs here
+- does it need a separate vent hood
+- How do I reset the filter on my Kenmore Elite model # 46-9690?
+- door locked ,why won't it open or run?
+- How many feet from the humidifier does the sensor read?
+- Will this hose work with a GE wsxh208a1ww washer?
+- The gap between my stove and counter is very narrow. How thick are they?
+- does the dishwasher beep when the cycle is finished?
+- WIll this fit Maytag series 200? MDB6600AWQ
+- Does it have added artificial fragrance?
+- Is it hard wired or plug in?
+- what kind of a rating would you give this ice maker?
+- Will it work with Lennox HCWB17/HCWB12?
+- What is the experience controling top heat with the touch panel (no knob)?
+- coils now heat only high or off after installing the new element receptacle?
+- What is the difference from the 523JA2006A and the 523JA2006B other than price?
+- Is this filter model # 07134220?
+- how does this unit connect to a kitchen sink?
+- what's the voltage usage of this item
+- Does this product come with the install kit?
+- Does the Bosch dishwasher have a garbage grinder built in or just a filter ?
+- Is this actual stainless steel or painted? Has anyone noticed any problems with rusting? Thanks.
+- Is that for one or four?
+- does the hot water dispenser lock to accidental prevent burns
+- I need to mount a vent hood about 28-30" above the cooking surface. Will this greatly impact the efficiency of this vent hood?
+- I prefer hand washing my table settings but don't do not always have time to hand dry. Can you use this to dry only?
+- is there any way to increase the water it uses so it actually cleans my clothes?
+- I lost my owner's manual. How do I change this filter ? Where is it located ? thanks!
+- What are the reviews of LG LDF7774ST
+- What is the drying rack? Is it something that comes extra or is it some gadget for the dryer?
+- will this work with firgidaire model LEQ2152EE0
+- What does this product weigh?
+- Is this unit including a keg as pictured ?
+- How do you load wine glasses in the lg
+- can you wash a queen sheet?
+- what if the controls are not aligned
+- Is this stackable or regular size? Thanks!
+- can it be vented through the wall instead vertically thru roof
+- How cleanable is it?
+- where do the rubber mounts go on the back of the vent hood?
+- Does this humidifier produce the nasty "white dust" caused by minerals in tap water??
+- is this motor the same as a kenmore 3976707
+- Would this part work on a Kenmore 665.16372301 Dishwasher?
+- Do these drum rollers come with the triangle snaps to keep them on the axle?
+- Will this kit fit the Kenmore Elite 11087872601?
+- What is the difference from the 523JA2006A and the 523JA2006B other than price?
+- Does this assembly include the motor? Thanks.
+- Is the bottom baking element exposed or hidden? Thank you
+- I have a Whirlpool WGD5500XW0, it is currently set for natural gas, and my new house is propane. Do I use this kit to convert it? Thank you!
+- Is the ice made in cubes?
+- Will this work for the JB700S N1SS range?
+- I need to replace my water filter for my samsung RF26XAERS side by side fridge--will this work?
+- How much noise does it make when running?
+- how many cubic feet is this refrigerator
+- is this a ventless dryer?
+- Is this compatible with Samsung RS265TDWP?
+- What size center to center of mounting holes.
+- hi--the last switch did the trick for light in fre subzero 511--will the same switch work for the fan switch?? looks to be same switch thanks
+- Will this part #281282 also fit my old Maytag Model DG512, Series 7 gas dryer? Thank you.
+- There is a temperature control inside the unit, that goes from 1 to 7. Which is coldest, 1 or 7?
+- Can you cut it easily to your need? I need about a foot.
+- I have a two part question. Does the machine drain completely? &amp; How dry do the clothes come out once it's done? Thank you.
+- DOES machine use HE detergent?
+- Can it be attached to a table to use as a fondant roller
+- will this pump fit my maytag to load model pav2300aww
+- Does it work for Kenmore 110.86983810 dryer?
+- What is the width rough opening?
+- WILL BELT FIT MODEL GFWH2400LOWW
+- This seems like a lot of money for a simple mechanical product. Does the manufacture provide replacement parts, particularly the rollers?
+- Whirlpool GR465LXKS is this element around 6" in diameter? Thanks.
+- What is the location/spacing of the screw holes?
+- Is this a universal range element that will fit even a kenmore electric range?
+- Can I purchase this Item and submit a letter of intent to have a certified tech use it on my unit?
+- What turns it on O or -
+- is there a better replacement knob that won't crinkle for jgb800sep2ss ge gas stove?
+- I need a mini fridge for a dorm room. Is this one quiet enough that it won't wake you up in the middle of the night?
+- Are the filters mesh or baffle?
+- will this capture dust from cat litter?.. need to use in basement room with cat litter boxes
+- will this fit kenmore model 2539260211 part # 216470200
+- Does this item have multiple speed options?
+- Can the unit be vented between joist to outside?
+- What are the different colored round "things" for and do they show or do they go underneath the knobs? Thanks
+- Voltage: Is it 110v-240v?
+- will this work for my ge gss25sgmd fridge? It doesn't look the same
+- what is the size ?
+- Will this fit kenmore 106.44273600?
+- Is this set up to run two ball lock kegs at once? Does the CO2 run to both kegs?
+- Hi. Does it come with everything you need to attach the panel?
+- $78 to monitor a $2 carton of eggs?
+- Does the griddle come with the unit or is it an accessory that needs to be purchased separately?
+- Did you receive what's called "the harness" (the wires) included with this? Just purchased this but didn't get the harness
+- When installed on an 8 foot ceiling over a 36 inch high island cooktop, what is the distance from the bottom of the hood to the cooktop? - Don
+- does the shelf come with it?
+- Does or can the light stay on all the time and will it turn on when the door is opened?
+- I have a whirlpool duet model number ghw9100lw will this work with this model?
+- Does it include the griddle plate as shown in the picture?
+- How to get it to be colder?
+- Why do you have 5.99 shipping and when i get to check out it's over 12.00 dollars, I will buy from someone else because that's not right.
+- What color is this product?
+- Does this fit the Frigidaire affinity model #FAFW3511KWO?
+- how does gas sensor work?
+- Anyone know if this will fit a kenmore 58251 side by side? Looks the same but I know harnesses can be different. Thanks.
+- will it fit a rf111pxsq3 model?
+- What part do I need to convert the wires to plug into a wall outlet?
+- Where is the power located? Is it in the cabinet above or does it get plugged into an outlet below?
+- Can these be used for both hot &amp; cold?
+- I have a GE profile refrigerator PFCF1NJX and I need to replace the main control board, would this board work for my fridge??
+- Is this a smooth touch can opener where the lid doesn't fall into the can?
+- My dishes have a white, chalky substance on them. Also, lately there's been an opaque, sticky film on them as well. Will this product fix my problem?
+- Do these fit GE stoves?
+- will it fit any insinkerator disposal?
+- Have been saving up Amazon points to buy one and now unavailable? Mr. Tournet, please, please tell me this is only temporary.
+- Is this the same as mfg model no. W10193691
+- does it come in white
+- Does this dryer have to be vented outside
+- why does this show a blade if it does not come with the motor?
+- does this key have a pentagon or 4 point design?
+- my faucet leaks at adaptor I need a a new one
+- Can this machine be attached to a garden hose?
+- Does it use tap water or is filtered water necessary?
+- whirlpool conquest refrigerator GS6SHEXNS air filter location....i cant find where it goes
+- will this be good for a whirlpool gu2400xtpi1
+- can it be vented vertically out of back
+- Do these fit most Jenn-Air models? (Mine is a SVE47500 electric). Thanks
+- I just had I maker delivered. It did not have shutoff arm. Did anyone's come with the shutoff arm?
+- Will this filter work with Samsung RF31FMESBSR refrigerator?
+- will this fit DGGF3042KFJ Frigidaire gas range
+- what water purification standards does this filter meet or exceed; for example is it both NSF 42 and NSF 53 verified?
+- What is the dimension, because the description looks totally wrong.
+- does it leave white dust?
+- Is this dishwasher durable?
+- is it ventless/ductless
+- I have a Samsung Model RS267LBSH, the ice comes out of the tray crushed. Why?
+- Was wondering if anyone used dry wall anchors to mount this. Studs don't line up
+- The unit dimensions are not clear as to which are the width and the depth. Please clarify.
+- Does this have a hot water dispenser
+- will this be replacement for holmes model hm 1745 filter? Dimensions 61/2 x 19 x 1
+- ukf8001axx-200 water and ice filter -whirlpool - what replacement do I need ? or do you have it ?
+- Will this work with Whirlpool Cabrio Model Number WTW6600SW0
+- I have a glass top but not with the extended burners. Since it's so long, will it work using 2 separated burners together?
+- My machine is leaking onto the countertop. I would like to replace it. Suggestions?
+- why does water not hot, both hot and warm line are on?
+- Hi it says it comes with two mugs, is that correct?
+- WHAT IS THE WATTAGE?
+- Did anyone else have to install a tower cooler? If so, where did you run the power cord out of?
+- Will this replace part # wr57x10032? Refridgerator model is gss23wsta ss.
+- can you install this under a counter
+- Is this compatible with samsung rfg237aars/xaa door bin replacement?
+- will the part work on GE model number pfss5njwass ?
+- serial number 010621222009 would this fit the vent ?
+- Will this work with a hybrid/dual fuel heating and cooling system?
+- do these come with a standard warranty besides the one available for purchase?
+- will this fit in the refri PMZF2LFBAFWW
+- Wiil this work for Whirlpool model GU1500XTLS1?
+- can it be installed easily or do I need to call a plumber?
+- Does the washer drain completely after each wash cycle? No water left to generate odor, etc?
+- what is the voltage and current?
+- Does it make any clicking sounds while in use?
+- Serial number GE refrigerator is GSZ25SGMA BS Serial VD243620. I need to replace ice bucket &amp; auger. Is GE WR17X11419
+- How does it do on low, like a simmer? Other brands have issues
+- What is the companion electric dryer for Whirlpool WTW4800XQ4?
+- This product could work with 220v?
+- burner plates for electric glass cooktops? Can burner plates be used for electric glass cooktops?
+- how many years does this machine last before it breaks or needs and replacement parts?
+- Are the stated dimensions of 14.6 x 7.5 x 7.4" correct?? The one I'm replacing is closer to 11x4x5".
+- On a full load how much water (in gallons) do you need to fill it? Also will this work with powder detergent? (1 tablespoon also?)
+- Will it fit Kenmore dryer model 90441900
+- Can I paint this? I would like to paint it to match my siding color.
+- Are there any mounting tabs for securing it to the wall?
+- Do either/both ovens have time-bake feature?
+- does it have an agitator
+- what are the mesurements
+- Where can I find instructions? Mine came with no instructions.
+- Is the weight a problem I read that it is near 70 pounds
+- he pictures show both a 3-prong that is normal and a 3-prong that has one prong that is perpendicular with the other. Which is this product?
+- are the cubes square and solid or are they hollow
+- are they the original pure source unopened for Frigidaire?
+- can you bake in the bottom oven drawer
+- large is 20 feet? o 20 inch?
+- The description says it fits all "795" Kenmore models. I have a 795 and there's no way it fits. My filter is like half the size of this one. Am I doing something wrong? Planning on returning this due to the incorrect description unless someone has some...
+- I need a frdge door gasket for Model Number BX20QL Can you tell me the part number that fits
+- I need a fridge lock to deter burglars. Are the square plates that atatch/stick to the refrigerator metal or plastic?
+- I see that these are rust-resistant. I'm sorry, I'm not that knowledgeable on metals and what not - does that mean its galvanized, like the other one?
+- I bought this filter on july18 and already it shows to be replaced, i don't understand that since according Frigidaire replace filter every 6 months.
+- What diameter hose fits on to the Lint Trap? I am hoping the standard 4", as that is what the new dryer coming uses. Thanks
+- how many keys come with the lock?
+- I am not sure I need a new belt, but just saw online if drum moves by hand could be belt issue. My dryer turns on and acts like it is going to work then I hear a click when I hit start and nothing happens. Anyone with similar issue?
+- does this icemaker have the speed ice cycle like the original icemaker has? (might not be called "speed cycle", is setting for quicker ice making)
+- how do I clean the grease from the screen?
+- Will this work with Kitchenaid KBFA20ERSS01?
+- Is this ductless,or does it needs to be vented?
+- will this filter work in a kenmore coldspot 10657789704?
+- Is the plug polarized? (One prong larger than the other?)
+- Is it a 2 pack or 1(one ) single filter? The Humidifier requires 2 filters. Will this fit Hunter Humidifier Plus model #33202?
+- Where are the filters sold now? I have had my 2 units for some years. I can't find the filter online anywhere.
+- I need a water supply valve for a kenmore 106.50252000 will this part work?
+- can they be cut if your oven is less than 23 inches deep
+- how much stuff will fit in the dryer - can you dry towels? sheets? etc.
+- Will this fit my Kenmore Coldspot model # 10670962990
+- how many items fit in this product?
+- replacement filters for cavaliere 30" curved glass hood
+- how long can beer last in this kegerator?
+- Is there any flex in the hangar? I'm need more of an "L" shape than a "U" shape.
+- If you are running 2 standard sixth barrels at the same time, does it come with a splitter to run CO2 to both kegs?
+- Would this be a good choice for drying glasses, mainly champagne glasses?
+- With the faucet do you just turn on the hot water? When it's done, do you immediately have to turn the faucet off? Where do Cascade packs go?
+- My stove is about 1" lower than the counter top with about 1/2" gap between the two. Will this work? Thanks
+- I've found all the parts I need except two; can you provide 240364787 and 240354401. I have five other parts in my cart. Just need these two more.
+- can you tell me what the dimensions are for the screw holes are they 3 15/16 or 3 1/2 etc etc
+- it is 120 v or 240 v ?
+- will this work with whirlpool GS6SHEXNS02, my main door does not swing shut by itself. Will this kit work?
+- can the two sockets be wired separately? i am building a temperature control box and need to independently power two sockets
+- How much water does this unit hold? How do you drain it?
+- What is the difference between filter 4396710 and 4396710P?
+- HOW IS IT INSTALLED
+- Is this refrigerator UL certified for outdoor use? We would be using it in a freestanding application, subjected to weather.
+- I tried to plug the cooktop but it gives me a scary spark. Why? What should I do? Any customer service available in the Honolulu area?!?
+- does it work with estate dryer TEDX640JQ1?
+- Does this part number - ending in 376 - come with two assemblies, or just one?
+- my model # is 79092423302 and the serial # is vf40217515 is the right part for my stove.
+- will it fit model RFG296HD ?
+- will this work in place of the 9000225170 ultra clarity for the Bosch filter
+- do I need to buy non-ducted filters for this?
+- What is the height dimension of this hood? Looking for some good hood less than 6 inch.
+- Can this be used outside the US with 220v ?
+- does any one know if these fit kenmore
+- I need to know if this part works with model FPHS2699KF3?
+- hi , i have refrigerator ge , i need to replacement a Main Board 200D6221G014 , &iquest; you have it ? , this will work for me ?
+- Can they be used on Air-O-Swiss S450?
+- What's the % accuracy of these? Amazon descriptions are not the go-to place for specifications, as usual
+- What is the tub lining material?
+- what size are these filters, they look square in the photo?
+- my duet model number is ggw9250PW3. Is this the correct kit for my dryer?
+- How to replace filter?
+- Can you reverse the door hinge so it opens the other way?
+- Does it have the bird catcher mesh? Picture doesn't show. Thanks
+- 00740570 - BORPLFTR10, this is the part number at BOSCJ site, which filter should I buy?
+- What size is the imprint area and is there any limitation on the number of letters?
+- Why don't you buy a cooler?
+- How often do I replace it
+- Are there two cords or one? What type of cord/cords?
+- will this motor fit GE model DBLR333ETOWW?
+- Is this part an actual OEM (original equipment manufacturer) product as advertised? The reviews are conflicting.
+- Still running after 3+1/2 yrs. Has anyone dared to unscrew the bottom of the washbasin to check for hair/lint buildup?
+- I have a Aprilaire Model 700 with Automatic/Manual humidistat set as manual. It has 4 wires, 2 to furnace &amp; 2 to solenoid. Will this one work?
+- what is the cubic ft size?
+- Do I need to turn off water supply before installation?
+- what is minimum width that this unit will fit. I want to make sure it will not be too tight to fit
+- Does this dishwasher require strong water pressure from the faucet to function properly?
+- how do you add extra water?
+- Hi, I would like to know if this fan works for Refigerator MODEL PSH23PSRA SV SERIAL SG416993. I bought the fan WR60X10154 and it didn't worked.
+- I need a thermostat for a kenmore electric dryer model 96575100 do u have this
+- Can the knob be oriented with "off* at 9 o'clock rather than 12 o'clock position?
+- Can both units be hung from the wall?
+- how long is the hose?
+- Does this kit tell you the amount of nitrates, or just tell you its too high?
+- Does anyone use this for drying coats after walking home in the rain?
+- Can all washers use 3/4" hoses or do some require 1/2"
+- Does this unit have an auto "on" feature? If so, how about auto "off?"
+- Is each filter individually packaged with the LG box?
+- Is this Filter W10311524 compatible to W10335147A? I have a side by side Whirpool P/N 106.51133210
+- Is the door reversible?
+- does anyone know the inside dimensions. They do not say in specificagtions.
+- I need this in black - do you have that?
+- Where can I get a replacement sink plug for the Titan Food Waste Disposer?
+- Is it noisy? My current LG wall oven just died today and it was noisy-fan stayed on from beginning to end.
+- Can you stack the washer and dryer?
+- I am looking for the most recent one to buy &amp; am new to this, is this the newest model?
+- I'm ordering one of those little washer/spinner things. If it's close to the water supply, is this flexible enough to fit in the small space?
+- What are the covers made of...ceramic, granite or metal for example???
+- Does this water filter fit refridgerator Kenmore Model number 79571013010? Thank you
+- what is the connection fitting size/ type?
+- Would it work on a European power network?
+- Is this worth the money if you can't use the bolt to put into studs in the wall? So just using adhesive? Our walls are plaster &amp; lathe.
+- Does this work w/ Model Number J BS55D M2WW lights still come on but front right burner stopped working on us issue facing with cooking stove Thanks
+- Hi, I'd like to order this for my daughter who will be heading to college next month. Is there a way to purchase and delay shipping?
+- What are the dimensions? Width is important.
+- Does anyone know the difference between this model and the Evolution Pro Compact 3/4 HP. The Pro is $196.
+- does this fit 18 jl model 34999
+- I'm live in Texas do I need a EPA certificate ?
+- Does it come with a new wire bale?
+- will this fit maytag bravos model mvwx700xw1
+- Are ice dams more likely to occur when using gutter guards?
+- does it pull 2 amps or less? I would love to get this for college, but energy ratings never put the amps
+- Do you guys generally leave the door open between loads? Is the seal easy to wipe out? I wash everything in cold so wonder if I'll get mold?
+- are they 2 in a pack are they flat black color
+- Does this come with the vent kit to vent outside
+- will this fit kenmore kudc10ixwh?
+- Some of the other filters are made in China. Anyone know where the Purenex filters are made? Tks.
+- Does the unit appear to cycle on and off at lower settings?
+- We need dimensions, including width, depth, and heighth please. Thanks!
+- Can you use stage 3 filters with this?
+- Please i need to know if this device can be used in 99.9 humid enviroments, my greenhouse go that high.
+- I also have a Hoshizaki 4HC-H large filter for my ice machine. Do sell these filters or another brand that would fit?
+- What size is it ?
+- Does this hood wall exhaust through the top? Is there an exhaust kit available with this model?
+- Do you install these filters with the metal reinforced side up?
+- Why does my dishwasher leak from underneath? Can I fix it myself or do I have to return it?
+- You say that it is free shipping in the last answer, but it says that it is $4.99 per knob for shipping??
+- The pump I'm replacing lists a number 8540024 on it. Will this work as a replacement? It looks nearly identical.
+- will this work to replace 9000077104 filter ?
+- Does this fit a kenmore model 795.7032?
+- Are there any independent studies (ie not from DuPont) which confirm the safety(nontoxic)of the material? I've read that it flakes off when burned...
+- Do you know if this will fit a Maytag RSW2000E refrigerator? The original part # is 69825-3 and looks similar to your picture
+- Can an extended warranty be purchased for this product?
+- Does this work in a Amana NED7200TW model?
+- Will this unit replace the Amana ice maker 106 626639?
+- how many 12 oz beer bottles can this fridge hold?
+- is this able to work on an Amana ...is it the large one or the small
+- Does this fit a Whirlpool MH3184XPB1?
+- will this fit the w8txnngbb01
+- Is this hood 304 grade stainless?
+- Is this part fit for Amana 3.4 cu ft?
+- Will they fit a kitchen aid?
+- is this filter replacement for pur cartidge no,t2rfwg2
+- have a kitch air superba with screen part number 349636 what would be the equivalent part for a lint screen filter
+- what are the dementions?
+- can anyone please tell me what the depth of the unit is from the back to just where the grills and switches are.
+- I have a plunger. Came with new washer. Not magnetic. Owner's manual says to purchase magnetic one separately. So what is point of existing plunger?
+- Is this a genuine LG OEM part?
+- will this fit Thermador (OEM: Bosch) older cooktop?
+- Has anybody compared the readings from this thing to a higher-end RH monitor?
+- how much freight to 40228?
+- will this fit a Kenmore Elite 110.24942301?
+- What size is the wire?
+- where is the button power
+- Do these filters fit a Kenmore model 758-144160..?
+- Will this part fit my whirlpool dryer model WED5850SW0?
+- will this oven rack fit model #JBP66COK3CC
+- Are these filters "charcoal" filters? Don't want to assume anything.
+- Will this work for the HE3?
+- Can you freeze cheese?I am lactose intorerant.I found a cheese with no lactose.The problem is they charge a fortune for shipping in the summer so I wa
+- will this fit an Oasis kenmore Elite? the part # is W10049390 the reason i ask is due to the look.It looks completly different than the original
+- Is there a module that detects a power outage that can be monitored from wireless control center?
+- Does this fit JGP633SETSS? My knobs have "191D5100" stamped inside and this came up when I searched it
+- I'm having problems with my washer eating my clothes! It's really pissing me off. It doesn't matter the size of the load either. ANNOYED! How about u?
+- Does this filter work with samsung rf28hfedbsr/AA
+- WHAT SIDE FILTER FIT ?
+- Is there anything ,I can buy that fits this machine to spin the water out of the clothes?
+- Do you think I can use this on a 15 year old insinkerator?
+- is this ok for whirlpool model RF366PXGN 1 right rear burner
+- how do i get beer for it coors light
+- The vent in our current Broan is in the back and rectangular. Is there a replacement for it?
+- Have an Amana ALE643RBC -- 10114226AL 7.1 Cu Foot - will this work? -- or what Part #?
+- I will be removing my microwave to put this range hood on and I have two cabinets above the microwave. Do I have to remove the cabinets?
+- Does it work for an IHL36 model
+- Will this pump fit model MHW600XW2?
+- I have a CWS100AW. How do i know when I'm suppoed to change the filter for my pitcher?
+- Is it available now and how soon can I get it
+- will this work on a model FFHT2117LB?
+- Will this work for LFX31945ST
+- How Long are the hoses &amp; cord? I'm Looking to keep it in place and just run the hose to the sink when needed.
+- Excuse me, do you made ships to mexico?
+- Compatible with part #206413 for Maytag washer SE1000?
+- Will this match the same door pin as ED5VHGXML13?
+- Does this match with whirlpool ice white colored appliances?
+- do these non ducted filters have the white indicator strip on them and are they a made by broan?
+- The door I would like to mount this to is only 23 1/2 inches wide; including the brackets, will I have enough room?
+- I have a frigidare front loading washer Model LTF6700fso I need the door latch assembly will this one fit my machine?
+- does this kit work for maytag model mhwz400tq00?
+- Do you need to buy any extra cords or parts for installation?
+- Is the unit battery powered or does it require USB -to-PC connection to operate?
+- I have model MHWE450WW02 will this part work on my washer?
+- Mine will not stick to the refrigerator. How do you make this happen?
+- What are they made out of?
+- is this filter compatable with Kenmore 46-9010?
+- I got this cooktop recently, but there is about 1/2 inch gap between the cooktop surface and the control knobs...is this normal?need to force it down?
+- When I type in my Maytag Centennial 3403585 part number, this 279838 number comes up, can you tell me if these are the same part?
+- Does this work for the bottom ice maker for RFG298aars?
+- does the glass stain
+- This looks just like my broken probe. I have a GE Profile Performance double wall oven Model # JT950C0A5CC. Will this work? I tried to research by
+- does the splash guard come inside the box with the legend 8000 disposal
+- Is there something online that I can print out from the manufacturer saying if meets code? My inspector is saying it won't.
+- this washer and dry comes with PEDESTAL o ready? if yes i need 2 pairs of each ones let me know ASAP please
+- does this come with an LP conversion kit?
+- Can I use this machine in Chile?
+- would you recommend this for a top loading HOTPOINT washer
+- What is the recommended distance from cooktop to the unit itself
+- does this work in kenmore model 106.56544400, serial SS3233581. If not do you have one?have
+- how many gallons of water does this hold? looks like 3 gallon in picture but I would like to know if it would hold a 5 gal jug?
+- Will this part work on my GE GLM23QETA GS
+- What kind of additional maintenance required by using this filter? Filter needs to replaced how often?
+- This will fit model WCVH6800HBB correct?
+- Replacing residential electric refrigerator in rv without an outside access panel. Does this refrigerator require outside access?
+- Will this work for those really hard-to-dry pesky water bottles and lids? If so, it would be worth it's weight in gold...
+- Is this a genuine GE manufactured part?
+- 205c139
+- Will these knobs fit whirlpool clean top range,model no. rf376pxyq4/
+- where is it made?
+- can youu set a maximum humidity range at which point it would turn off a humidifier
+- where do I find an he3t drain pump 110.42936200 461970201671?
+- Can you get additional chimney sections to work with 10' ceiling?
+- what panel thickness are these designed to be used with?
+- will this filter fit madels 795
+- How long are the holes where the individual utensils go through? My utensils are large/1" long at the bottom. Thanks!
+- Will this hold half sheet commercial pans?
+- I have a ge model GSS20IETD fridge. I need to replace the auger and bucketWhat is the correct part # to order?
+- What is the warranty on this unit?
+- Hi, I wanted to know if this one will work with my frigadaire model#GLER331AS2 ?thank you for your prompt response
+- Does the replacement ice maker include the water valve? I have a water overllow problem which forms ice on the side of the icemaker compartment.
+- Will this work for kitchenaid KUDK031TWH3?
+- Is this filter NSF53 certified? Why cant we make this in USA?
+- When it runs, is it loud?
+- Hello Nesco users...has anyone used the other ever popular NuWave Induction seen on TV to compare with Nesco,.there's quite diff in price? thank you
+- will this fit on a DE712 Maytag electric dryer
+- I purchased this speed controller for an tjedlund M-8 fan but it doesn't slow down enough. Does this speed controller have a low end adjustment?
+- Refrigerator water filter for Maytag Refrigerator model #MSD2574VEB10
+- does it have a lock?
+- Please I would like you to check the Cover part #240350702 is for the middle crisper drawer, my fridge model is FRIGIDAIRE FRT18G6JW5, not lower drawe
+- can we see how it is inside??
+- My Ge dryer model is W25M40, will this fit?
+- i can't see what rev this is. will it work with rev d?
+- Will this fit my drawer says da63-05391
+- Will your Broan filter S97007696 fit in a Nautilus hood?
+- Dimensions listed as about 19x19 but one review said its about 14x15, which is what I need. Please - which is it? I have a side-by-side fridge
+- i have a high efficiency washer. Since the price is the same can i use the high flow model on a low flow machine?
+- What are burners power in BTU ? I do not want a toy but a stove to cook.
+- how does the drain connect
+- Is there a replacement here for AP3035427? It would fit an older Whirlpool oven.
+- Does it come with a grease filter and the 3.5 x 10 connector for duct?
+- I have a Kenmore Elite side by side made by Whirlpool. The part number for the Kenmore is: W10335147A - Does anyone know if this is the same filter?
+- 3 sizes of ice. How long to does it take for each?
+- will this filter fit Thermador refrigerator model #KBUIT4860A02
+- I am using the transformer for a kotasu in the US. I have blown 2 fuses, and the transformer came with a blown fuse. Is the transformer defective?
+- commercial gas range
+- Will this work on a Firebird 30" wall mount range hood w/ gas sensor FBGV-10Z-30? Need to know so I can purchase both.
+- Is this 18" from the center of each opening to the other? Or 18" from the very end of the "box" to the other end of the "box"? I need to reach 17" from the exact center of each opening.
+- This add is confusing, is it really for both the washerdryer and stands for $945.95? Do not want to assume and cause an issue ordering.
+- What kind of plastic is the machine made out of?
+- can someone send me a pictures of it from their kitchen please,
+- Will this pump work on a Whirlpool model WFW9750WW01?
+- will these fit a Tappan electric range? Ordered some others but had "bulge" around inside perimeter and wouldn
+- does this switch fit a Kenmore model 79095314301? I am trying to replace part # 316021501
+- will this work for frigidaire model lfgf3014lwc
+- 1) Where can I get free water bucket? 2) Should I get a prop 65 bucket that I seen at a 99 cents store? Thanks!
+- Can I use it in the condition of 220V Voltage?
+- Is this a gas or electric OVEN?
+- Does this work on the f221 model OR does it have the clockwise rotation start at HI and decreases to LO (i.e., LO is to the left of the OFF at bottom)
+- does it fit maytag model MAV7551AWW
+- Are the extenders flat or shiny black finish? What about the one comment that they melted to the stove and were hard to remove for cleaning?
+- Is the interior stainless?
+- will this fit my WJRR4170GWW washer model?
+- I have no above cabinet......can I install on wall???
+- What is the difference from the 523JA2006A and the 523JA2006B other than price?
+- Are those measurements on the top or bottom ~ I need bottom measurements. Mine will only fit 5 3/4 x 9 and not a hair bigger.
+- I have 31 inches under a counter. Without the wheels and rail, how big is the unit?
+- I live in INDIANA can I order R22 with OUT any License ?
+- DOES THE BOTTOM DRAWER OPEN
+- What gauge metal is it made of?
+- How does it hold up in the sun or outdoor use? How thick is it?
+- why did my humidifier stop emitting vapor?
+- Will this model fit my model FSC23LR5JM2 fridge?
+- Whirlpool MBF 2256kew3 ? Assuming it includes everything in the picture. I had an issue with either the pump or maker... figure just replace both.
+- Can I fill this up all the way to the top, or do I have to stop at the blue segment?
+- Will R-134 freon technically work in a system that uses R-22? or R-12? The term "work" is a scientific term of physics/Mechanical Engineering
+- Will this part work with a Whirlpool ET1MHKXMT08? Is this a new part?
+- Just want to make sure: this is "old style", right? Meaning, it actually has an agitator? I have to get away from this "new" stuff!!
+- will this fit my amana nav2335aww
+- What is the difference between the 4396841 T and the 4396841 P?
+- What is the height with out wheels?
+- bearing kit for 110 42932 200 Hard to do?
+- I have a GE Sectra oven that came with the house I just purchased. It is JBP64W0B5WW Will this element work on mine?
+- 253.54622402 model kenmore aka galaxy fridge icemaker, will this one fit/work as a replacement? thank you!
+- How long does a normal wash cycle take?
+- What are the valve dimensions?
+- How well does the downdraft perform? Do I still need a hood as well?
+- I have a maytag oven and inside measure around 24x15. on your descriptions of this product dimension is "Product Dimensions 27 x 18 x 2 inches" fit?
+- will this fit model mdb5600awb?
+- How do the Aluminum 6 layers micro-cell washable grease filters mount in the AZ-D01(IS)-30?
+- Can the drawers be operated individually? Such as use dishes out of one and clean them in the other and reverse the process?
+- is the inside light blue?
+- Can this be set to alarm when the temp drops to a certain temperature, a freeze alert?
+- is this for electric stoves?
+- how to tell when it's finished washing and drying. There isn't a green light or a sound that I've heard.
+- Hi, does anyone know if this fits a Frigidaire FRC445GM refrigerator?
+- What is the capacity? How many cans can it store?
+- May I ask how long the inlet hose and the drain hose are? I want to make sure they are long enough for reach my washer connection.
+- What is the centerline dimension between the inlet lines? The centerline distance of my incoming hot/cold lines is 2-3/8"
+- filter replacement
+- are there 4 filters per order for !6.41
+- How loud does it get?
+- Looking for a door bin for my 25 cu ft Whirlpool Gold french door refrigerator (model discontinued). Does anyone know if this is the proper size?
+- Will this fit a GE PSS23MGTE CC
+- Does this sit on top of the existing "grill" of my gas range or do you take the existing grill off and set it in its place? Does this have legs?
+- How is this system for ferrous iron and metallic ordors?
+- what honeywell model humidifier does this filter fit?
+- I would like to know the measurement of this item
+- I cook Thai-foods on gas stove, will this hood be the right one for me?
+- What kind of beer can you use?
+- What is package box dimension for this?
+- How much height does the trim kit add?
+- will this fit a J486AIYE GE electric oven?
+- Does this work for Kenmore 665.13843k601?
+- I have a Jen air stove I want to replace the burners with cartridges my model number is JES9750AAB canister use these
+- can this fit whirlpool model #8053621 240v-1200w (2)
+- Will it fit Kitchenaid KUDC10FXSS5 model?
+- Does it require water?
+- I need heavy duty for about 50 people which do I need
+- How long does the filter last ?
+- What is the difference between WSW-1 and WSW-2 filter models?
+- Will this replacement pump Item 280187 fit my Whirlpool Duet Washer Model No. GHW9100LW1?
+- Can the burners be lit with a match when electric power is out?
+- Is this 14/3 or 16/3 wire size.13 or 15 amp
+- Exactly, what size is the Range Kleen 7600 7600 Gas Grate for Whirlpool stove tops?
+- Is this the correct element for the ES300 oven?
+- What are the dimensions of the small permawick filter? How many do I need for model # 33204?
+- can you use it on cabinets? Want to put it on old cabinets in heated garage
+- Hi I need bearings and seal kit for a whirlpool WFW9750WW01 Can you give me parts number to order them
+- Does anyone have a manufacturers phone number for service/warranty? Nothing in documentation. Just installed and it appears electronics board is bad
+- I have a GE Profile jgsp44ev3aa will it work?
+- Do all of these machines ship with the "grease issue" that several reviews have commented about? Is this standard manufacturing practices?
+- leak
+- How cold does it keep the water?
+- Does the filter include a cartridge?
+- Has anyone used this with a newer GE side by side fridge?
+- Will this also replace 626640? The model is a Maytag RST2200FAE. The part looks exactly the same in the pictures.
+- What are the ingredients in this product? Does it have a strong smell?
+- Does anyone ever use these on broil?
+- What is the distance between the holes where the heating element is attached to the oven? (center to center)
+- Has anyone had trouble with the Frigidaire Gallery smooth top slide in range. When I turn on the oven the broiler lights and causes a fire in the ove
+- will this fit a Fridgedaire FDB126RBS1,serial number TH31050274.Also need top rack and panel cover on door.
+- I have a Kenmore 795.79302.900 Refrigerator that takes the 9990 filter. The filter is inside refrig. Is this certified for my refrig?
+- How do you use the disposal
+- Do these fit a KITCHENAID trash compactor?
+- Does it come with the dryer?
+- What re the countertop cutout dimensions?
+- I just bought this for an LG LFX28977ST and these are around 1/3 the size. I thought it said it was a replacement for the original? Help!
+- Is this white - looks gray in photo
+- does it fit toilets?
+- What is the adjustable height of this Range. The Cut Sheet I have says that the 36" height is adjustable, but the documents don't say how much.
+- Is this freezer self defrosting or manual defrosting?
+- I'm looking for DA63-05391. is this product compatible?
+- How long does the smell last after application? Did this cause any allergic reactions to users who have allergies and asthma?
+- Are you supposed to leave the water running the entire cycle or is there a point where you turn it off? If not this might run up my water bill :/
+- I want to know if this product fits a Kenmore electric stove
+- Does this freezer automatically defrost?
+- Is this product hard wired or can it be plugged it?
+- We have an older JennAir cooktop, not range, from 1976. It still works fine. Would these knobs fit it?
+- Does this use filters ? I was looking for filter free cool/warm humidifier ?
+- is this OEM?
+- What kind of plastic is it made of ?
+- On the Abundant flow website you have the option to get a chrome or stainless steel jacket. Is that an option on amazon?
+- Can this fit a 5lb CO2 tank instead of the 2.5lb?
+- does this one work for model #10656936600 Kenmore side by side
+- is there a gentle cycle?
+- Do you need to pull the plunger out of the water to fill with air, or do you keep it submerged?
+- What is the difference between the WR60X10141 and the WR60X10129?
+- Will this part 4392065RC fit my kenmore 70 series model 110.68702894??
+- recalls on whirlpool cabrio
+- How long is the power cord?
+- Can I wash king size sheet set in the SQ AWN542?
+- what is the width?
+- How well does this dishwasher dry with no heating element and just the hot water rinse?
+- I have a rural home and use a water well that is giving me sandy colored water that has sand in it can you tell me where you put the filter please.
+- Is the drain board detachable?
+- will this fit the watts whole house filter properly?
+- Do I need to allow 45 inches for this hood?
+- Does it have a positive side and negative or does it not matter ?
+- How much water does it use? And why can't I find this info in the specs and description?
+- is this an oem part
+- It's stated that there are three 6" trays and one 8" tray, but under Technical Details, it states 2 of each. What is it??
+- Ice maker dont work. Water come out but dont make ice
+- Will be placed in laminated wood countertop. A 3.5 in clearance from the back wall and ref rig. Is there any danger from flames ,heat on surfaces?
+- is this the kind that has the circle connectors on the end?
+- I have a cabinet above where the washer will be. What is the total distance from the floor to the top edge of the lid when it is open? I want to be able to open the lid without it hitting the cabinet.
+- Our GE side-by-side is 11 yrs. old Model GSH 25K GMD WW and the auger has broken. Is the GE WR17X11419 bucket and auger assembly compatible?
+- will mylar bags protect against EMP for electronics ?
+- Does it accommodate a dishwasher?
+- How cold can the unit get in a normal temp. room? (approx. 70 deg.F.)
+- Can I use on roper part 03080C
+- dryer heats up but is not drying my clothes
+- How many gallons of water is used during a cycle? I am off a well and it doesn't have a great amount of water in it (we run out every few weeks).
+- Can u fit a slim 1/4 and a 1/6 together?
+- Matag Neptune washer bellow spring tool part number ?
+- When this is used with a blower motor that uses 100 watts of power at 115 volts, do you use fewer watts when you run the blower more slowly?
+- Are these the same size bags as W10165296RP - http://www.amazon.com/gp/product/B001...
+- dimensions of product?
+- Are these relatively easy to clean?
+- Does this filter fit Whirlpool model # LDE5700WO
+- I'm looking for crystal clear ice cubes does this filter do that?
+- Are there metal knobs that can be purchased to replace the plastic ones?
+- what element fits on jbp64b0h2ct
+- Are the button controls underneath the hood or on the front? I can't tell from the picture.
+- I have a GE side by side Model #GFSS6KKXASS wjhich has a samsung ice maker Model IMC701. Will this ice maker fit that?
+- Hi, can you please tell me if the measurements are accurate as listed? I want to order this item asap with the measurements listed. thx
+- I have a 1 speed on model Fex831c50 combo will 134196600 work where 134156400 was on the washer better is http://www.denek.com/cp_jpgBig/134160...
+- what is the difference between model 8955 and 8959
+- Does this come with LP conversion orifices?
+- Why do I hear a clicking sound?
+- What are the dimensions
+- will these range replacement knobs fit a tappan electric stove ?
+- Would the element model 316075104 fit my Frigidaire model # FEF326ASE, if not can you recommend the correct product Thanks
+- What would be necessary to run it on propane? Also, the answer below mentions 5 burners; there are only 4.
+- Is this part compatible with Hotpoint model number nvlr223eh1wo?
+- does it have a lock?
+- Will this fit model FEF366ECE?
+- What is the depth of this hood
+- I haven't purchase it yet, is the lid sharp after it's opened?
+- I'm looking for a filter for thermador 48 inch side by side part # 00750673 will this work?
+- How does this work?From photos it looks like it locks the front "door" to the side of the frig,how does this keep the 2 front doors from being opened?
+- My model is LFX31945 will it work for my model?
+- how do you start Frigidaire electric stove to clean oven? old stove no manual put both buttons on clean set start time and off time nothing happened.
+- HOw much does it reduce the water flow... RV already has problems with pressure after you put limiter on inlet.
+- Is this actually wood or plastic that looks like wood? Thank you.
+- If we don't have duct, can we use this one?
+- This is my first range hood. Do I need to purchase anything else with this purchase? Or do anything I need to install range hood come with it?
+- hi, will this fit a model dv338aew/xaa
+- I just bought the glass top stove....black.....no matter what I use to clean it it always looks smeared....any suggestions ??
+- Does the Kaze 202 come in Black?
+- I just took delivery. It fills up 5.5 inches on wash and only 3.5 inches on rinse. Do they ALL do this?
+- Brand new only a month old and filter is brown and dired put?
+- Is the underside stainless steel as well? If not, what color is it?
+- Do you have to hand crank this yourself?? I see a handle but confused as to whether its electric or self propelled by owner. Please help
+- is it actually quiet?
+- Can an indoor vent kit be used with this?
+- Any chance this will hold up as the arms on a 4 year old's robot halloween costume?
+- Is the picture accurate of the set? It looks like 2 large and 2 small to me, but I'm needing a set that has 3 small and 1 large in it.
+- does this unit have a vent or ventless
+- What size/diameter is the Romex (clamp) that goes in the junction box? Going to get a Whirlpool and direct wire it. Just need the Romex.
+- Does it fit model RFG298HDRS
+- what is the installation distance from top of the range to the botton of the hood range? 32" seems high to me please confirm. What happen if I use les
+- Can the knob be oriented with "off* at 9 o'clock rather than 12 o'clock position?
+- What is a cycle? Is it one tray or until full?
+- Will this part work on Kenmore 106-72862100? it looks identical, is there a wiring diagram for it also?
+- Do I need an extension for a 9' ceiling.
+- will coors kegs fit in this? The center of the coors kegs bulges out.
+- What is the width of the insert?
+- What is the height of the fridge itself (w/o tap) and the height of the back rail? Can the casters be removed so the fridge sits on the floor?
+- Do any of you use a surge protector with this?
+- WILL THIS PART WORK FOR 110.60912990
+- I have sloping yard. Can I use this in a way that I can create thicker blocks on the sloping side so that everything in the end is level?
+- Will this fit a ge profile dishwasher?
+- How long is the hose connecting this to the sink/how far from the sink can the dishwasher be?
+- do you haul away the old appliances?
+- Is the tub stainless steel also?
+- Makes no difference whether it's 1/2 or 3/4" I.D., if my water supply lines are 1/2"! Now if it's 5/16 then we have a problem. Does anyone KNOWS?
+- Can you use Cuisinart replacement pods?? (They look exactly the same but are cheaper)
+- Is this recirculating?
+- I need filter HAF-CIN/EXP will this one work for my refri?
+- Will these fit the newer Whirlpool ranges? I ordered a new black Whirlpool range and it comes with the cheap looking chrome drip pans.
+- Does one need to flush this filter before use?
+- is this kit for both units (frezzer/refrigerator) or is just for a single unit????
+- Is the Evolution Essential model interchangeable with the Contractor 333 model
+- need to know how to change the electrical connection , ASAP for dryer motor 279827 going in a Kenmore 3976707
+- An icon came up on the screen that looks like a plug. What is it? The refrigerator is plugged in.
+- Is this actually manufactured by Frigidaire?
+- Would it fit the kenmore dishwasher?
+- Why does this machine bother to include 5 temperature settings when anything other than "hot" gives cold water. Where is the real "warm" water option?
+- What is the adjustment for length (how short or long from ceiling downward)? We have about 8 ft. ceilings.
+- Does this part come with two wheels? Or do I have to order them separately ?
+- i tried setting this up and the indoor temperature shows an incorrect temperature. what did I do wrong?
+- Would this do to replace Part No BK22496-1S, low-water-pressure valve, which I can't find anywhere?
+- is it better to use the old copper tube or the new braided &amp; rubber type line &amp; why??
+- Does the filter # LG LT 700 P replace the original filter # ADQ36006101?
+- Is this fridge the same like the ones at Home Depot, Lowe's and Best Buy: LMXS30776S model nb?
+- Are these non ducted filters attached to the aluminum mesh filter, if so how?
+- Would this basket fit the 5 cu ft. GE freezer?
+- What is the depth of this refrigerator, with and then without handles? Thanks...
+- Does anyone know the inside dimensions? Thank you!
+- Will this fit in a Maytag model # CRE-300?
+- What is the country of origin?
+- can you fill it with chilled refigerate water to make the ice quicker
+- What does vent free mean?? I want to replace a gas hot water heater in my RV trailer which is located inside a cabinet but has an outside vent.
+- will this blade work with whirpool GU3200xtps3?
+- Has anyone had this fridge for a while and if so how is it holding up?
+- What size ice does it make? I'm looking for one that makes small (like Sonic) ice. Maybe slightly bigger.
+- Will this work on jenn air s100
+- how do I clear the filter on the front load whirlpool washer?
+- What Size? I need 13" x 10" for a Trane Model- Thumd - 500APA00A - Will this fit? Thanks, Mike Poker
+- Is this compatible with the Kenmore Elite Electric Dryer Model 11084832201?
+- Help, I am having a mold problem with my summit is anyone else experiencing this problem???
+- What are the different colored round "things" for and do they show or do they go underneath the knobs? Thanks
+- is it interchangeable with the maytag 1c11b?
+- All my existing hardware is in good condition. Can I just replace the unit only? I have the exact model already installed. It just gave up on me.
+- Will 2 5 gallon kegs fit in this kegerator?
+- This one is a bit different than the original. It comes with a special paper-like shield. Does the shield need to be put on, what if I don't?
+- will this fit model frs-26r-4cb0
+- Will this work on a Wirlpool fridge model ED22PC - Icemaker motor PS2341896? Thanks!
+- does this fit fex831cso stacked dryer
+- Will this work for the WM3470HVA? If not, can you please let me know how to find one? Thanks
+- I'm pretty concerned about the 4 screws in the ceiling Sheetrock won't hold the vent and it will come crashing down. Do those screws work?
+- Has anyone used the Easy Clean feature? I'm wondering if it's just a gimmick.
+- We have the GE Profile 36 in. Gas Cooktop, 5 Burners (Model No. PGP976SETSS). Will this fit?
+- Does this filter fit model #8975?
+- Will it fit glen wood gas and gas with round burners ? If not to you have a product that would fit?
+- I have a whirlpool TSI 19 TL- will this work for replacement?
+- Ordered Bosch Part # 492431 and GE WB2X9998 arrived will this part work?
+- does it have a turntable?
+- our Kenmore dryer is a 110 60712990, will this work?
+- will this work for a Maytag Model MZD2766GE?
+- I found the Ge part number on the main circuit board but nowhere can I find a match or a cross reference. What is the difference in the two boards ?
+- How to replace the door to machine?
+- Will this part fit the Maytag Quiet Series 300?
+- JBP80TK2WW
+- Will this work on model 72383?
+- Would this replace the drain pump part # w10155921 for a whirlpool cabrio?
+- How can you tell if the part is white?
+- Will this work for a kenmore gas dryer model # 110.97572601
+- Which water filter cap replacement (white color) should I use for this filter?
+- Will this fit a whirlpool fridge model ED5VHEXVQ04?
+- Is this thermostat an auto/heat/cool or just heat/cool?
+- does this filter fit a Kenmore Elite Bottom Freezer, model 795.7103
+- How much voltage is required. 120v or 220v?
+- Does a plastic gallon jug of milk fit in door compartment?
+- Can anyone tell me what's the minimum height of this hood? I have a very low ceiling and the height of the hood has to be less than 25 inches. Thanks
+- what about model frs6r5esbc wil it fit this model ?
+- Does this Collar Sink Baffle fit Model Pro 333 disposal?
+- Is this the correct filter for the Fridge-Freezer Combination KF1811Vi? It has an ice maker but it doesn't have water on the door.
+- Is the lowest temperature low enough for melting chocolate and such things?
+- Our whirlpool refrigerator has two drawers, top and bottom, both different shapes. Our top drawer is busted, which drawer is that, the crisper or meat
+- Is this booster approved by the International Building Code. Thanks, Lindy How can I get a confirmation in writing that it is approved?
+- where is the filter made? China?
+- Will this fit washer GHW9400PL
+- would it be alright to use the humidifier for one night without the filter?
+- Will this fit with FRIGIDAIRE MODEL # FAFW3511KWO, if not, do you have a proper replacement?
+- My model XL44 and it is about 1994...anyone has similar? Should it fit?
+- will these fit my jenn air model c202 cooktop?
+- I don't see the part no 2201274 for a Maytag LAT9316AAE listed on the page, but it sure looks like it'll work from the picture. Will this fit?
+- want to put one at the water main to house and put sensors under washer, water heater etc. but not sure the range of the sensors
+- Is this compatible w/ Whirlpool model WTW5640XW1 ?
+- Does this igniter replace the igniter in model number KGST300HBL4?
+- Will this fit on my range model # JSP50GN28G ?
+- what are the real dimensions? is the face 6" X 6" and it fits a 6" pipe???
+- Will this fit into one side of a double sink?
+- Will this knob work on control knob for GE washer WHDSR109J5WW?
+- Is it loud? Thanks
+- compatible whit WKKT01520003?
+- does it fit JGB600EED1ES gas range?
+- Are they color coded ? Red for hot blue for cold ?
+- how is this range different from NE38F9710WS. as it is $300 less in price?
+- I have a Kenmore Model 911.41089. Will that work on this model? How far apart are the connectors?
+- will this replace amana model bz22rl freezer gasket
+- Will this work on Maytag brands?
+- whats the diameter of the hood?
+- what is the height of this dishwasher
+- does this fit my Kenmore elite 11085872401?
+- Can this be used outdoors?
+- Does the filter label indicate the number of gallons of water it will treat or flow rate ? Do you notice a difference in water flow rate ?
+- will this work on model # ed5lhaxwb00 whirlpool it looks like it will but what to be sure
+- Hello- does this part have a UL listing?
+- Is this a genuine, factory replacement part or a replica / knock off by some other mfg? TIA
+- What is the difference between this unit and the O3 Pure Eco Laundry Ozone Washer System? How would you choose between the two?
+- will it fit maytag model msd2432grw
+- WIll this kit work on Whirlpool WED9200SQ0 FRONT LOADER ELECTRIC DRYER?
+- Is this an open box item or in a factory sealed box?
+- I am planning to purchase Z Line ZLKB36 and the ZLine ZLEXTKF11 extension. Please advise if this is the correct extension. Whats correct roof cap sz
+- does this have a waranty
+- Do you need to purchase the Red Link enabled connector for $90 to be able to use the remote control wifi feature?
+- does this filter work on all style 8 vacuums?
+- how old is an amana 7200 dryer?
+- will this fit my kenmore model number 11026742503
+- Does this replace part number PS2097160 gasket for a Maytag Dishwasher?
+- will it fir Maytag MAH5500 series?
+- To be clear, you are selling a "ULTRAWF *4 PACK*", for a total price of $43.70, correct?
+- do you have replacement knobs for hotpoint stove?
+- How many loads can you wash before it needs emptied?
+- I have a GE popup style vent for my island. This is much more attractive, but can I get the vent to match up with my existing ducting?
+- Why is 1 filter the "frigidaire' price of $34.75, yet the three pack is almost five times that price? for that price you could almost get 2 free!
+- What is the inside diameter of these hoses?
+- how to make it work?
+- Will it fit Fridgidaire model PLHS67EESB4?
+- how do i remove the filter for cleaning? i just installed it so i want to make sure i am not breaking any parts
+- Are you a bot?
+- One more question: in what year was this refrigerator manufactured? Thank you.
+- Is this bi-volt? (220v is my interest)
+- is the filter the smaller one of the two LG filters?
+- Will this filter work for a frigidaire model# frs26dr7d57 with a serial #LAS1602103??
+- How loud is this fan, I dont see the Scones listed?
+- Is shipping free?
+- Why is the bulk price ($39.50 ea for 6 pieces) 30% higher than the ala carte price ($30.21)? Someone obviously flunked Economics &amp; Marketing 101.
+- How do you clean the surface of a bertazzoni x304ggvx oven ?
+- How cold canit get and protect the spigot?
+- what are the dimensions from the bottom of the sink to the bottom of this disposal once installed?
+- Can it replace a Kenmore 9930?
+- does it have delay start?
+- Will these work on a Kenmore Model 790.3667 gas range's grille?
+- Not "View amount of eggs...", NUMBER of eggs. Thank you
+- Can this cooktop be used to replace a Jenn-Aire downdraft stove, installed in a kitchen island? In other words, can the downdraft be made to work with the downdraft already in our floor for the Jenn-Aire, does it work the same way or is it entirely a...
+- can you actually wash and dry a king size comforter in this set? we've yet to find a set that does no matter how big the capacity
+- is it electronic ignition
+- how deep is this and what r other measurements
+- This unit has a smoke sensor. How sensitive is it? How long does it take to activate the hood? Can it sense steam if you boil water?
+- How about the dimensions please? Amazon, it's CRUCIAL to list them.
+- Bad smell from the washer? I was told to use bleach and hot water and let it turn for a whole cycle, can I do that?
+- can this part installed for Kenmore elite front door ? I have a broken one
+- what is the overall btu rating using lp?
+- Will this fit my Maytag side by side Model MFI2269VEB6 ?
+- How do you clean finger prints off the doors
+- can you use the top oven for toast? Want to get rid of 4 toaster if i can
+- What is the voltage and frecuency of the dishwasher.&iquest;
+- Is this a replacement for the filter in a Thermador Freedom Collection T18IF70NSP?
+- Can it be run on an ordinary 15 amp circuit?
+- My cabinet came without shelves! Shouldn't shelves be included?
+- Does this fit all washers, or only the Whirlpool ones? I have a Frigidaire...
+- Is it ductless
+- The CFE29TSDSS is supposed to have hot water capability but the description does not mention it - is this the correct model?
+- should the water drain pump be hot?
+- Does it come with a guitar?
+- Does the canister have to be stored in any special conditions (cooldry)?
+- Does it have replacable filters?
+- how many clothes can you stick in this washer
+- 70966 not like picture The part number of this product says "70966" which is a removeable sound baffle (much like InSinkErator RSB-OO Removable Sound Baffle, Black). The picture shown is not the 70966 sound baffle. Is it the product a sound baffle or...
+- How does this mount under the sink?
+- will it fit RS261MDBP Model?
+- Does this unit come with the Portable Thermostat or must I purchase it separately?
+- I can't see any water when washing or rinsing. Is it cleaning my clothes?
+- does this replacement fix problem most of the time or will i probably need a new valve in the lower back of fridge?
+- Is this 12 wide by 17 high?
+- You actually crank this. Does it crank easily or is your arm sore afterwards?
+- I want to magnetize the top and bottom of a ship rather than cementing, so I can see the interior at times then close it up for exterior display can it do this without breaking the model when prying open?
+- Is there a spray arm for upper rack.
+- does this gasket fit Kenmore freezer door? because i have the same part number for my kenmore.
+- can it vent down through the floor?
+- What color is this part? I need white.
+- I just bought this. How do you clean the cast iron grates? I was told (by mom) to never use water on cast iron.
+- Not so much a question, but an observation: the GXRLQ "system" is $2 cheaper today. Check it out before you buy the refill?
+- Powering: 110 or 220 V / 50 or 60 Hz?
+- Will this work in a 6 yr old GE JBS55SMSS elec range? The GE website no longer lists this model.
+- I hate to ask what is a pretty obvious question for most by are the measurements depth - width - height?
+- Has anyone determined if the "Water Filter" lamp on their GE Frig operates properly with these third party filters? Has GE patent expired?
+- What is the wattage and/or amperage of this ice maker? I am planning to put it in my RV and I wanted to know how long my marine battery will last.
+- What are the internal measurements of this fridge?
+- My refrigerator started making loud popping noises after about 5 months. Was told noises are normal.
+- is there a recall
+- will this fit frigidaire model #FRS6LC8FS1?
+- I've noticed people have said their water flow has increased with this filter compared to GE. Could this be because it doesn't filter as well the GE?
+- Will this work for a Whirpool Model LER7646E
+- What glue should I use to connect the felt back to the trap?
+- dear sir how many kilo metres
+- Will the replace my A 100 cartridge?
+- Will drip plans fit Maytag MES5570AAW?
+- what happens if you need to remove it?
+- will it work with du1055xtsq3?
+- I have no idea what the model# is for our LG front load washer but it says TROMM on the front. Does anyone know if this piece will fit?
+- Is the hygrometer metal and glass, or plastic?
+- How difficult is it to install?
+- I have an older model of a nutone kitchen exhaust fan, with a U shaped aluminum filter. Will this product be able to fit the range hood?
+- Does anyone know the operating frequency? Is it 433 mhz? I'm considering buying this cheap starter system and expanding with generic accessories. Thanks.
+- How can I order replacement leds for this unit? One burned out on me. Thank you.
+- Anyway to muffle the "clicking" sound these make. We have 2 in our new house and one was installed in master bedroom and wakes us up
+- I got this item and I'm having a lot of problems with lint. The lint filter is a useless, don't hold nothing! Please I need help with the lint.
+- Can burners on the stove be lit with a match or is it only electronic ignition when using propane?
+- DU1055XTVQ2 won't run a full cycle, it stops &amp; blink lights, we open the door, close &amp; then hit the start button again 1-3 times, will this part help?
+- will it fit a Maytag Mer4110aaw
+- Understand, but can it be lit if the power is off? Some newer models have a valve that will prevent this and we live where power is not reliable.
+- Is the black semi-gloss in color or dull? thanks!
+- Replace a MAYCO 74001776 P162, on a Magic Chef?
+- Brand new motor ran for two days. Now the motor will not go beyond a quarter turn. Is there something on the motor that would cause it to lock.
+- Seems like I can smell rubber burning or getting hot?
+- Does this burner kit work in whirlpool ranges? Thank you.
+- What type of electrical hookup do you need and does it require 220 or 110 or both.
+- How do you deliver this product (pump)? I do not recieve USPS at physical address and UPS does not deliver to P.O. Box.
+- Does this range require a countertop along the back?
+- I know this sound baffle pops into the sink, but how do I remove the old splash guard? Does a splash guard and sound baffle serve the same purpose?
+- For the seller only please- is this genuine GE new stock, or is it aftermarket?
+- I read i dont need to vent this? is that correct? or do i need to get some sort of indoor vent? sorry just confused a wee bit.. thanks
+- How thick are the grates? A similar GE cooktop has grates that are too thick and prevents the flame from contacting the bottom of cookware.
+- can this be an outdoor refrigerator
+- does it fit model # ei26ss55gs0
+- Is this a replacement for PS2121513 icemaker for Maytag PTB21BBGR?
+- Is there an AC option for the freezer?
+- Thinking of putting this in an RV. Do you need the 110v to operate or can you light the burner with a match and operate?
+- Hi, will this fit a Whirlpool Upright Freezer Model #EV171NYMQ05 (made in Canada)? Thanks.
+- Does this filter fit the 6011G model?
+- Does this fit the Emerson 32 LCD model# LC320EM8A
+- will this work on Hotpoint model RGB745BEH9CT
+- DOES THIS REALLY STAND 42 INCHES HIGH? I AM SHORT
+- It appears that the cooktop is completely flat other than the burners themselves making it really easy to clean? Is that the case?
+- When I changed battery in my unit. It reads 15% RH and never changes from that reading. Is there a reset button . I changed batterys twice now to s
+- How many wires, what are the voltage requirements?
+- Just got this, make pancakes and they stuck like crazy to the surface! Is there something to put on it to make it nonstick? How should I clean it?
+- Do these work with the KitchenAid KCM1402 coffee maker?
+- Will this work in a kenmore top mount model 795.7943*
+- Is there a way for this to blow HOT air into are house during winter months for are electric dryer? I was thinking about energy efficiency.
+- How wide and how high is this?
+- change size of ice cubes? if so, how
+- does this fit jb250dfww
+- Is this perfect fit for Maytag MDG4806AWW?
+- Will this fit my model FRT211R7AW9?
+- will it fit in jenn air dishwasher
+- does it come with a warranty
+- Is water cold during first cycle
+- What's the difference between model XPB36 and PAN30?
+- Is this a noisy refrigerator?
+- Does this washer have a agitator
+- Is there any way to test the existing control board (perhaps with a multimeter) to confirm that it is bad before replacing it with a new one?
+- Does the dryer vent hose exit the rear of the dryer or out the top of the dryer??
+- what is the inner hole diameter??
+- Does this 3-pack come with installation legs so that I may have concrete poured under and not just around the sides?
+- how do i set the regulator pressure when i turn on the tank it shoots up to 50psi and when i turn the adjustment knob it wont drop
+- is this the whole assembly? Or just the wheel?
+- Does this hose fit Inglis washing machines?
+- Does this unit have a way to vent it to the outside or is only a ventless unit.
+- is there a cover available for the Ramblewood high efficiency 2 burner gas cooktop(Natural Gas), GC2-48N
+- Does this part work on model #dbsr463eg7ww
+- It's not clear if this product includes a blower or not. Does it come with a blower or do I have to purchase that separately?
+- How do you install the pump with the paper shield? no instructions
+- will it not work on a stainless steel dishwasher?
+- How hard is this to replace? I have a Kenmore H3 Elite that's about 10 years old.
+- I live in Florida. Will this beverage cooler work in the garage ?
+- I have an 'estate' stove, will this fit? I can't find any other info on my unit..
+- Will this replaced wr30x0306 ?
+- fridgedare dishwasher
+- voltage
+- Where was this GE product manufactured?
+- What is the best way to clean these filters?
+- I bought this off amazon do I need to buy ducting to the outside or does it come with ducting for that?
+- does it have a colour indicator?
+- Will this work for Samsung Dryers?
+- dimensions
+- Does this AKDY 30" Island Mount Stainless Steel Range Hood come with a mounting kit or do you need to purchase it separately
+- I have Whirlpool model DU 1101 dishwasher which door seal do I need?
+- Is this stackable with the lgdlg2526w
+- is 2188656 compatible with Model ES5FHAXSA00. I had wrong model number before, sorry
+- Does "shipping" include installation and haul away of the old refrigerator, or at lease haul away of the old refrigerator?
+- can you give better mounting instructions?
+- will faucet fit in the side of fridge?
+- How much energy does it use? estimated per year? Per hour even would be great?
+- Does the temperature easily adjust? I need it to hold it at 50-55 degrees is there a setting for that?
+- Can a 5 gal Home Depot (Orange bucket) be used with these bags even though they are not "Food Grade"? Doesn't the Mylar protect the food anyway?
+- When I do a search for 197D2303G080 this part comes up. Is it compatible?
+- can this be installed under-counter and does it cool properly if installed under-counter?
+- How hot does this dryer get? I have seen people complain that it only gets warm, which makes no sense when drying jeans.
+- Do you have to pull this refrigerator out away from the wall to turn off the water when you change the water filter? 1 Samsung requires this.
+- What color is this dish rack? It says avacado but the picture is of a white/ clear rack...
+- just bought a new alum Pressure Cooker/found in manual that it shouldn't be used on my ceramic stovetop.Any ideas? do I have to get a hotplate or a ..
+- Does it include the Top Burner Igniter for Range?
+- is it ventless or does it need to be vented
+- Why does the description NOT inform buyers that they will have to cut and strip wiring so this can be spliced into the range?
+- Is this freezer self defrosting or manual defrosting?
+- Does this require a drain?
+- anyone have these clips on a bosch 500 series in particular? basket wire diameter varies greatly, even on the bosch lines. thanks,
+- What warranty is provided with purchase?
+- This maybe have been answered: I have a huge leaf problem from the city trees - can this vacuum do the job?
+- I need two 4'-0" long pieces. Can this duct be cut in half?
+- Is this cook top available for propane?
+- Will this cap fit model KUDS301VSS2?
+- can the wooden knife block be removed? I would like to use that space for more utensils....
+- I have a GE electric range, model #jbp66edk3bb will this broiler element fit?
+- What temp does this maintain in a normal house? Freezer and main space?
+- how long does these filter last
+- I just received this product and I notice there is no company logo, country of origin, or UL approval markings. Did I get a gray-market o knock-off?
+- How does the water drain?
+- Can this be vented straight out but off center?
+- What is the depth? The description give the length at 36 in, but what is the depth of the appliance? how far out of the wall will it stick?
+- How do you change to fahrenheit? I see the hole on the back but I have no idea how to adjust it.
+- If I do not have a "hold" set on the remote, but I select "read temp from this device", will the main thermostat use the remote temp when following a schedule?
+- does it come with the front pieces too?
+- Will this gasket work on an Amana arb2217c ?
+- Do the knobs in front get in the way when placing or removing a pot or pan? It looks like they stand proud of the cooking surface.
+- is this whirlpool part #12002
+- Does this work for GE FUF 17SVCRWW?
+- Has anybody used this with propane? I'm wondering how large of a tank I'd need to have to make it feasible. I don't have a lot of space or access.
+- How big are the two sizes of ice?
+- I have a Kitchen Aid KSBS25FKBL02. Is this compatible?
+- Does this model have a water filter?
+- Do you have to turn off water when changing filter?
+- 1. What are those two unlabeled buttons of the front for? 2. How easy is it to change battery?
+- Instructions say change every 6 months. Shouldn't the change rate be in gallons of water used? Family of 2 as opposed to family of 6....
+- What is the pressure rating on this filter? Our water pressure can be over 100 psi.
+- Is the knife sharpener electric or manual?
+- What size is the duct? Is it 4"?
+- can you plug it into a regular outlet
+- how to instal this unit does water supply connect easly and how fast does it make ice
+- how to install
+- Can this be installed over the island?
+- Does this filter remove copper from the water?
+- can you bake corn bread on this without it burnding.
+- commercial gas range
+- will this work with kenmore #106.74259400
+- Would this filter work for my frigidaire frs6hr5hsb5 refrigerator?
+- Will this element fit a whirlpool gu1500xtlB2? And do I need to order replacement rubber washers..etc?
+- What is the sone rating? Noise level?
+- Capacity question? Can I dry bathrobe, two queen-size sheets, large jacket in this dryer ?
+- 4 magnets on each corner of a letter size paper attached to a fridge/magnetic board. would it work?
+- I have a kitchen aid KCM1202OB, this filter will work? if not which one will work?
+- do you need to buy 2? or does it only come with one?
+- my model is v3600 will these fit and work?
+- Will this hook up to a water cooler?
+- Does this stand fit the Sonya SYD-60E dryer?
+- Is the Whirlpool top loader washer WTW4800BQ0 a good machine?
+- Is this for 208v or a 240v dryer? Thanks.
+- Has anyone installed this on a 30" fridge?
+- I am wondering if this will fit a Maytag dryer Model number MGD5870TW0
+- Is this an actual Maytag Brand? what is on your picture, is that what I am getting? I do not want a generic, Non-Maytag Filter.
+- Could failure of this part cause a slow leak and weak (uneven) agitation?
+- the connectors 3/8 " or 3/4" heading says 3/8 and description says 3/4. opening of faucet mouth is 3/4+brass=3/8, these what i need?
+- We have the UE error (out of warranty) constantly - who is best to fix? Someone from LG?
+- is this washer for cloth? or just extracting some kind of herb or something like that? is it okay to wash my baby's cloth?
+- Is this unit loud? Is it good for indoor install?
+- Does this work on KFCO 22E VBL 1
+- is this price for 1 filter or 3
+- The electrical wires coming out of it do not look copper to me - they are silver in color. Does anyone know if these are copper or aluminium?
+- hi, I have whirlpool wmh31017aw-1 --&gt; does this filter fits?
+- Will it fit in Frigidaire Gallery Model #LGHT2137NF4?
+- is it true, you are not supposed to touch the element.
+- How come i set my load up, push start, and it will not start?
+- Will this work on fef326awe frigidare oven?
+- Are those outer dimensions?
+- Does anyone know if this would work on a Whirlpool with the model # WFG361LVQ ? Thanks for your help!
+- does this unit include the grille?
+- How much does this freezer hold.
+- Will this work on GE model #JBBP28DEJ1CT
+- will this work on model GLER341CC0 Frigidaire Dryer?
+- will this also fit GE WE14M124 Top Bearing as a replacement?
+- I have a Maytag MDBTT79AWW Series 300 dishwasher. This is the same part number will it work for me even though it's for Whirlpool?
+- How can I get instructions on how to set it up
+- Do all lights need to be on at the same time, or can fewer/less light be used? Where do you buy replacement bulbs?
+- why does it just stop even when water tank is full
+- Which settings to use for permanent press, so its wrinkle free? Heat setting? How many items can i load? How long to set the timer?
+- I haven't had an ice maker, will this kit provide everything I need? Do I need to buy a waterline that will connect to the refrigerator separately?
+- What is the capacity of the basket the ice is held in? In other words how much ice does the basket hold? I understand it makes 28lbs total.
+- Can I replace a two prong outlet with this one?
+- I'm curious if this company ships to alaska?
+- will this Whirlpool Dishwasher Latch Handle Assembly fit my amana model #ADB1500AWW
+- Does this work w/ Model Number J BS55D M2WW lights still come on but front right burner stopped working on us issue facing with cooking stove Thanks
+- How long is the normal wash cycle?
+- I have a Kenmore Elite refrigerator with replacement cartridge of 5231JA2006A. It looks identical to the replacement pictured. Would it fit?
+- the racks are adjustable?
+- i have a maytag model number mvwc200xw3 will this fit
+- I like the crystal ice cubes, I'm tired of the white bitter-flavor ice of my fridge. Is it possible with this ice maker?
+- can 2 or more of these hoses be connect together? and can this be hooked up to the LG 14,000 btu Port AC
+- can you couple two hoses together to make one? need a longer length
+- Does this fit Frigidaire Model No. NFTR18X4LWH?
+- Can you use more than one remote for two zones
+- How high does the drain connection need to be and can it be on the side wall?
+- Can you use it in a clean utility sink? (Laundry sink) It seems like that would be easy to drain and refill for rinsing, but is it too big?
+- what about model frs6r5esbc wil it fit this model ?
+- i need a quiet refrigerator because I have a very small space. Does it make ANY noise?
+- will it work on model sf362lxsq ?
+- Will this fit on an older GE stove? The original GE stove knob requires a push in, then turn.
+- Will this fit with FGUS2642LF1?
+- Does anyone know if I can put a replacement panel in the door? We want to replace a B195 on our boat
+- original part #8181839,is this interchangeable?
+- What is the exact deminsions of this filter?
+- Do you have Whirlpool Stove Surface Burner Element (6 and 8 inches?
+- Can you put the drain line into a tub rather than into a sink drain? Is the tight fit important for drainage?
+- Need QUICK ANSWER Plz Model AWN432,Does tub spin out in between Pre-Wash and Heavy (In Regular Wash) If so, isn't that the same as just using SOAK?
+- Power Requirements and output: Can the description be amended to include these items?
+- the connection the water comes in on cracked, (plastic), Does this piece come with it?
+- My dryer opens from left to right. I want to reverse it. Will this work? Also, will it fit model # gew9250pw1?
+- Does this Pentek filter replace the Keystone GHPT-10 GIANT filter (053432) (BG10 housing)? Thanks!
+- what is the contact between two flanges? Or just two simple piece plastics?
+- What is the diameter of this?
+- what is the biggest wattage you can put in, I have one and like it but want more light
+- will the fridge still tell you when to replace the filter if you use this one?
+- Is the lighting LED or standard lighting?
+- what color is it?
+- Can I purchase extra plastic stops for the drain, I have a fear that it can get lost very easy. if yes how and where
+- What is the length of the hose?
+- I have this lint trap, but it doesn't seal tightly, so the damp air and lint blow back inside my laundry room (albeit microscopic bits). Ideas?
+- what water filter for frigidaire gallery
+- the vicks is optional right?
+- How long are the lines
+- How close can the upper/dryer part of the machine be placed to the back wall? It looks like there is space to have an elbow and vent out the back.
+- Will this part work on a Magic Chef RC 20L - 2A. It looks very similar to the one I removed.
+- will this kit fit a whirlpool cabrio dryer wgd6400sw1?
+- will it fit model FEF352FUA?
+- what filter/wick fits into the Bionaire model BCM7207
+- I just bought this part and installed it. Was told that is what my washer needed because turns on, door locks, and wash light flashes but then nothing.
+- How to wire for hot water heat and separate AC unit. Nothing in install manual. Honeywell 800 number won't help homeowner.
+- Non-Ducted range Hood, does this mean there is no need to vent up thru the roof or out thru the wall?
+- Where was this made? China?
+- How wide is the oven
+- How do you clean the stainless steel? I heard it scratches easily is this true?
+- is this an original general electric piece?
+- How long does the filter last if used with distilled water?
+- Does anyone know if this product can be used if you have an aerobic septic system or will it harm the microbes?
+- Do you have to used a duct.
+- how much and what kind of soap does one use per gallon of water or wash load?
+- will it fit med5870two maytag
+- Does the griddle come with the stove or is this an extra purchase
+- will it fit whirlpool cabrio WGD6400SGO
+- Is this cooktop truly portable, as in taking it camping or on a picnic where there are no outlets to plug in appliances?
+- "Good morning. I have a GE refrigerator and I need to change the main control board "200D6221G010". Does "GE WR55X10942" works perfectly?"
+- Does this work for model number 795.74023.410?
+- What is this filter that the customers say must be cleaned?
+- Will this fit Model JED8230ADB?
+- How do you get a short wash cycle? It seems the speed cycle takes 50 minutes for a few towels.
+- Could you please tell me the diameter of the knobs?
+- The expiration date for these filters is a "date code," not a Julian calendar date. My next filter is code "8142". How do I decipher this code?
+- is this compatible with my whirlpool model # lsr6332kq?
+- If I have a pin lock keg, will the only thing I have to buy separate be the couplers?
+- Does this fit the Holmes HAP 242-UC unit? I do not know if the "UC" makes a difference?
+- The clock timer for the range works, but all four of the screws holes broke. Is their a way of reattaching the board without buying a new one
+- We have a "rear vented" hood right now. Can this be used for rear venting or is this only "top vented" ?
+- Is this product compatible with Samsung DA97-06317A
+- Should I disconnect the hose FROM the machine after washing? And remove the adaptor from sink fawcet? Also, should I take off the adaptor from the sink fawcet each time?
+- would this be comparable with model RFG29THDRS/XXA?
+- Will this fit my 20 yr old Maytag LDG9304AAE?
+- Does this Portable Comfort Control come with the base unit? If not, then what do I need to have to controller communicate with to start the furnace?
+- Will this work on a GE model JBP68H0H2WW stove?
+- i am buying disposal for house i am building. what else must i buy to go along with it?
+- Will this kit work on a kenmore 90 series model number 11026902691?
+- will this fit an LG DLEX3470 dryer? the part # on my (broken) filter says "ADQ566564 &gt;pp&lt; SC08,03". thanks!
+- are the knobs on this model stainless steel to match the trim, or plastic like the all black model? Thank you
+- Our 1997 Whirlpool gentle cycle has failed. Which HE or old school agitator did you buy to replace Cabrio ?
+- How often should these be changed? We had a Sub Zero and just moved to a house that has GE Monogram appliances and I am not familiar with this system.
+- Will this fit RF265 models?
+- will this fit my whirlpool wfw9400sw04
+- Is the head of this canister predrilled for the bracket?
+- What is the best method for sealing these mylar bags? How long will they keep staple foods such as beans, rice and lentils fresh?
+- I'm going to send up a weather baloon. I I send up your device, will it record and display the maximum altitude reached?
+- I need to know if #316075103 and #AP3035427 are the same?
+- Do you also need to buy the power cord and dishwasher connector kit?
+- does this test forlead
+- Do these knobs fit a jenn air model jgr8775qds?
+- Is this a ducted hood?
+- are there common &amp; ground leads does it matter
+- How much electricity does this use compared to a regular electric cooktop?
+- IS THIS filter replacement, HDC-12, the same EXACT filter which is supplied with ESSICK model #1409? What is the material made of in the replacment?
+- Would this be the correct assembly for a Whirlpool Estate Side by Side, Model No. TS25CGXTD00
+- Will this sensor work with weather stationBAR208HGA ?
+- will it fit my Kenmore washer model 1105072011?
+- shipping?
+- Will it fit dv940pwkb0
+- Is outdoor sensor waterproof.
+- what are the dimensions of this item
+- Can this be used as the upper element?
+- I have model number 1068559280 will this fit
+- Does anyone know if this hood can be turned into ductless?
+- long lasting with daily use?
+- Do you provide taking away the old appliance? Is there an additional fee?
+- Do you have the owers manual in a PDF for this item Stainless Steel 30" Euro Style Wall Mount Range Hood GV-198KD-30 ?
+- Do you need to buy a power cord?
+- is that the same as sears 2213350?
+- Is this for the top element or the bottom? My top element broke.
+- Does this part fit the whirlpool model# WRS325FDAM
+- Can the freezer and refrigerator sections be swapped, so the smaller top section can be used as a refrigerator and the larger lower section a freezer?
+- WHAT TYPE OF SOAP SHOULD I USE HE ?
+- does this bin works for frigidaire model #PLHS67EGSB1. its the professional series lowe door bin
+- I have a GE model number JBS03V5WH will this fit my oven
+- What size is this ?
+- Which filter goes w/whirlpool fridge w/2 doors, deli drawer &amp; bottom freezers. Which filter do I need? Thx.
+- DOES IT RINSE IN COLD WATER
+- I bought this last year, but haven't had time to install until now. My box only no installation instructions. Can someone PDF me one please?
+- Is this a plug in or does it require hard wiring?
+- How fast does this Spin Dryer goes. RPM? Thank you. Do the clothes comes super wrinkly and how many items can you put in, say 2 jeans?
+- Could someone please point me to the interior dimensions? I would like to confirm that there is enough height and depth in the fridge. Thank you.
+- Is this black or stainless steel in color?
+- Do these work with whirlpool model wfw9640xw00
+- Do these come with the o-rings?
+- What is the head loss thru the filter w 100 mesh screen?
+- Is it quiet?
+- I ordered this part and my son replaced my old one. So far, no water has flowed into the icemaker so I have had no ice. What might be wrong?
+- Is the oven gas
+- Will this fit model 110.47571601 Kenmore HE2 washer?
+- does this stove have a self-cleaning oven?
+- I have Kenmore elite mode 665-16263400 is this basket the correct replacement
+- have parts, the little card that goes in the back of the fridge RFG297A
+- will this work with a Whirlpool model WTW6600SW1 SER CT3871853
+- Does this hood have LED lights?
+- How do the 3 pieces connect together to make a tight continuous run? Do they slide into a groove?
+- I have the EZ1 right now. Should I get the EZ4 instead for better filtration? I live in NYC tenement buildings built in the early 50s.
+- what are the dimensions and is this 110V?
+- Will this work on astro turf to pick up small bugs and leaves?
+- Is it a standard size for Whirlpool? Thanks!
+- Does the small setting make the soft ice like you get at Sonic?
+- Does the alarm sound the instant the door is opened? This is crucial in protecting a swimming pool.
+- Will this work with MAH4000BWW?
+- Is this rack white?
+- Will this work for Frigidaire model
+- Is it 110V
+- Does this really accommodate pots/pans? Thanks in advance
+- Are 6" and 8 " the outermost dimensions of these? The old ones I want to replace are bigger, but they seem like standard burner sizes to me.
+- Does this have a brushed nickle look or very shiny look?
+- Does delivery include installation?
+- Will this keep pour-over coffee carafe contents warmed atop a gas range flame?
+- is this compatible with the samsung 9100 series washer?
+- What adjustment is needed to make the ice dispenser not snap open and shut immediately dispensing no ice...?
+- Some Samsung Front Load Washers have the driain pump in a compartment in the front bottom of washer to clean filter. Not on mine?
+- With this kit, do I need anything else to start pouring beer (other than the keg of beer and gas in the tank)?
+- How deep is this washer? I'm 5'4" and have a hard time reaching the bottom of my current washer. Thanks!
+- Will this switch allow me to control the low speed on a 3 speed conventional Hunter Douglas ceiling fan ?
+- My GE profile has two types of male and female ends for the knobs: one for the burners and one for the double oven. Which one is this?
+- is this product able to use propane gas and do you ship to Japan
+- If I buy one filter is costs $33.99 and if I buy two it costs $105.00 ??? What kind of math is that???
+- Stated dimensions in the description are 22x19x41 inches. I need to know which measurement is the width across and which is its depth when in use?
+- will the work on kenmore dishwasher 665.15777990
+- will this fit model WFW9250WW01
+- Hi, I have a GE Model WR 55X10942 and the Motherboard WKKT 1300-03-00A. I would like to know if the one you're selling is similar to the mine. Thanks
+- are the bottom inside door replacement panels, plastic, available?
+- Would this dryer be good for hand washed cashmere sweaters? ( Cashmere fibers become very fragile when wet so if it tumbles it might not be very good for the sweaters.)
+- I want to assure that this fits my kenmore dryer, part #3395654... I seen a review that they bought for a 3395654 &amp; did not fit, was shipped wrong one
+- Can you switch between sparking and still water "on the fly"? Or do you have to empty the sparkling water tank before still water will come out?
+- How insulated is the oven? Will thermofoil cabinets melt or warp?
+- if the filter mwf is bad the refrigirator dont give me water on the door
+- Will this fit the Phillips Respironics BiPap Auto SV Advanced System One machine?
+- Is this the right replacement rack for a Hotpoint Oven Model No. R B790S H1SA?
+- Will this fit a Kenmore model 106.56542400?
+- I am thinking about buying this but I have heard awful stories about Samsung customer service. Is it very difficult to get repairs done?
+- my whirlaway 191 got stuck. How do you unstuck it?
+- Is it really 12. 4" high?
+- can you manuelly adjust yhe water level
+- Will a standard 14.5" x 18.5" pan fit in it?
+- Frigidaire BFPT44F4LB 4.4 Cu. Ft. Compact Refrigerator - Black . will this evaporator motor work on this model, thanks
+- I'm looking for a temperature gauge for my bird's cage this winter, which is barred, not glass. Does it look like there's a way to attach it to that?
+- Will this fit on a Kenmore gas dryer?
+- Will it fit Frigidaire model #PLHS67EGSB1
+- What is the resistance measurement in ohms on this heating element? The current OEM one I have reads 11 ohms and it blew a second fuse today.
+- is LED bulb replaceable?
+- My shingles overlap/overhan the back of the gutter. The shingles are heavy and can't be lifted to slip anything underneath. Will thiis work?
+- does the Pure wash cause any kind of problems with a septic system???
+- Does this work for GE model GSH25JSDESS refridgerator?
+- will this grill fit whirlpool gh5184xps4
+- What are the cutout dimensions?
+- What are dimentions of icemaker
+- can I wash a twin bedspread quilted
+- Is there a warranty
+- how many models are there for kcdb250g
+- Is it just as easy to remove the copper lines from this filter as it is the GXRTQR filter?
+- How many spray arms does the unit have? Is it only the one on the bottom?
+- Can two (or more) Lyric Thermostats coexist in the same home (i;e. multiple HVAC units)? Can the APP handle and set up multiple units?
+- From what I am reading it seems that if I use a Heineken style keg that has been precharged with CO2 then I do not need a CO2 cartridge/tank. Correct?
+- How do you get the fabric softener to run out
+- What are the dimensions.
+- Does this tv require cable hook up .... or is the antenna it comes with sufficient to receive local channels?
+- Where are. The fuses for the freezer at mine is blow
+- Will it fit in a 24" opening? Does swing of door require extra space?
+- I'd like to know from those who rated this fridge over a year ago how it is holding up. Would you buy this again?
+- is width 36"? I have opening is 36 1/2"/ does it fit in?
+- can someone tell me how to replace samsung da97-02203g ice maker. i see 2 screws that all
+- What size are the "cut-holes' for this cooktop ? I want to make sure it will fit into the space.
+- i cant find CFM rating at different speeds. mechanical inspection requires a return air source when this hood is running above 400 cfm
+- Are the cubes clear or cloudy?
+- control panel for ice reads 1c with E in upper right handcorner
+- what size solar panel is required to run this unit?
+- Can you pour water into the machine instead of connecting it to the faucet?
+- Has anyone used this to test for lead? Do you think it's accurate?
+- has anyone owned this for over two years?
+- I have a 1/3 hp 5.3 amp Sears 258.640770 whole house fan, which has a capacitor, which I assume is a start assist. Will this switch work?
+- will these sleeves protect against limited/short contact time with a hot exhaust manifold under 200 degrees.
+- Is this a replacement for Kenmore drawer #240343803?
+- Is the frame plastic/nylon or metal?
+- Can one buy just the carbon paper that goes in the filter?
+- I have a Keurig B79 Single (K) cup. Will these filters fit my machine?
+- Will this work for Replacement cartridge P4RFKB2
+- does this one fit Whirlpool Mo #WFW9550WL00?
+- Is the filter removable and dishwasher safe?
+- Does it work with the InSinkErator STS-00 Dual Outlet SinkTop Switch?
+- Not enough characters for me to ask question - I've cleaned with hot soapy water and used disinfectant - which does work, but could I use vinegar...
+- What color is the plunger?
+- Will this fit myKUDI02IRBS1 dishwasher?
+- kenmore 46-9690
+- Hello, Does this cooktop have a propane conversion kit? Thank you!
+- Is it will work for Kenmore Refrig Model 106.55606400 ... Ice maker part # S106 626663
+- Will it fit a 10 ft. Ceiling?
+- What is weight of the filled pitcher? is it difficult to lift? Arthritis in thumbs and difficulty holding onto heavy items. Cannot see the handle.
+- Good morning I would like to know where I can buy the recirculation kit for Cavaliere SV218Z2 Island Mounted Range Hood
+- Does this stovetop work well for canning ( long hot boils with a steady temperature)?
+- Should these be used with outlet covers or without? We have a home with standard receptacles and plastic covers that go into the slots now.
+- Are these NSF 42 and 53 like the original GE MWF? Thanks.
+- Will it fit for Whirlpool model # GHW9400PL4
+- will it fit ge nautilus dishwasher?
+- Hello. I amIs there a warranty on this from the manufacturer? What are your repair and return policies for this washer?
+- I have an Estate brand electric stove, no model number. I know it's made by Whilrpool. Will this fit?
+- will it go higher than 50? Cant really have red wine in there...not ideal anyway
+- Is it possible to calibrate
+- can it be installed with a copper sink?
+- how much does an 18" danby dishwasher hold
+- Can this be operated on propane?
+- What is the shortest height of the hood and chimney part...only have 10"-12" available due to cabinet.
+- Looking for a machine to dry bathing suits only, most likely one at a time. Will that be a problem with shaking and off-balance?
+- what is difference between speedqueen AWN542 and AWN542S?
+- Is the alarm temperature setting adjustable?
+- Is this dual voltage ? Can it support 240 voltage?
+- Will it work in a Whirlpool? Model number is the same.
+- Is the filter dishwashable?
+- What else do I need to buy besides a Keg in order to get this up and running? (i.e. CO2 tank, Keg interface)
+- I have a kitchenaid refrigerator, and normally use Maytag UKF8001 Pur. Is this compatible with my fridge?
+- Do the lights swiivel?
+- Can this be mounted on a sloped ceiling by cutting the top off at an angle. Our ceiling is vaulted and is from 7.5 to 8' foot tall on the slope.
+- website for Sonya?
+- Will it fit model kuds30ixbl2
+- Does fit for GE model# WCVH6600HWW??? Thanks in advance for your input on this!!!
+- What are the actual dimensions of the filter? Thanks
+- What is the height including the back part with the oven controls?
+- Which Samsung washer has a melody at the end of the cycle?
+- Hello, I left a comment earlier about how mine won't stop beeping and flashing on and off when we try to turn it off, please help
+- will this support the weight of a 20"X10" electric griddle?
+- Hi I have a Frigidaire GCEH1642FSO front load washer/dryer comboI am looking for the Washer Tub bearings for this model Thanks Rene
+- Will this work with Hotpoint Dryer Model nvlr333etowb? Does it come with the frame?
+- Will these fit and work correctly in the Kenmore Whole House Water Filter: model # 38445
+- is this unit 120v
+- HELP:)Minimum height it can be installed? I have 46" from ceiling to stove top. Can metal worker shorten the chimney or remove one section of chimney ? :) Thanks
+- Does it fit Holmes Model 1840?
+- will the kit work for a dryer frigidaire front load model: AGQ6000ES2. Thank you.
+- Is it self cleaning?
+- Is the direction of the water spout adjustable or is it only out of the wider side?
+- My offset (mid dryer pipe to wall exit pipe) is nine inches. Will this unit work?
+- is this come with filer and what side for duced and ductless ?
+- How long are the wash cycles?
+- comfortable to wear all day?
+- How long to dry 5 or 6 pairs of jeans and same number of shirts.Can someone give me a guess ?
+- will this work on Whirlpool model # LSQ900LQ0 ?
+- the depth of 31 1/8 includes the door handles?
+- IS THAT GAS?
+- How did you determine that it was only the ice maker that needed to be replaced and not something more serious?
+- Will this pulley Whirlpool 21001108 fit my Maytag Washer Model mav4757aww
+- I continue to have an ice or water puddle under the wide drawer in the refrigerator portion. Why is water pooling under deli drawer in refrigerator?
+- does this plug into a regular outlet?
+- my gas stove has 3 - 2 1/2" burners and 1- 3 1/2 burner- will these fit my stove?
+- I need a Key to fit the Amana Upright Model - ESUF20JW Will this Key Fix or do you have one that will?
+- Will this product fit to my whirlpool mod: WET3300SQ2 DRYER?? I m looking the one by the door side, i dont know if that is front of back...
+- do I need to buy the 4 yr warranty since speed queen has a good warranty on their machines?
+- Will original drawers work with this in a GE model TBX14SYXKLWH?
+- will this fit model # tc20g-w mfg #p75535-3ww?
+- what are the batteries for? system batteries?included batteries? have never heard of a freezer with batteries
+- what is f3 code
+- is this the shelf that the crisper drawer hangs from?
+- Will this filter work on my Samsung Model rsg257aabp?
+- Spin Dryer too loud. Anyone else notice too loud to use and impossible to balance?
+- Is this a "push on" infinity switch that replaces JennAire part num. inf-240p-871 ?
+- Does anyone have a side drain
+- What size is the collar, the round part that protruces into the attic and connects to flex duct?
+- What temperature does it turn off at?
+- Will this work on a frigidaire FDE437GHS0?
+- I just installed heater works but starting water temp is only 46 deg. (Cold) And I can't seem to get water heater to 100 Degrees. Any suggestions?
+- do you need 2 hands to use the water
+- How much laundry detergent do you use?
+- How many wires to be connected? I have a regular attic fan motor with two wires (black and white).
+- How much money
+- I have a Frigidaire FRS6HR5HMB6, it says this fits but I worried since it doesn't show this number on your page. Will this fit?
+- How does CO2 work? Or does this mini-keg system only work with pre-conditioned CO2 mini-kegs like Heineken and Newcastle?
+- Is the front of the refrigerator magnet friendly?
+- What happens when the filter arrives at the end of its life (e.g. five years) - will water stop coming through?
+- I want to vent out the rear wall instead of through the roof. Can the duct bend into a 90 degree turn?
+- what is the actual SHORTEST wash time? I do a lot of smaller loads and can't wait 45 minutes for them to finish. thank you.
+- I have a Kitchenaid Superba side by side model KSCS25FKSS02 will this filter fit?
+- Does the water travel through plastic? What is on the inner part that touches the water? I wonder if copper is better.
+- How long on average does the filter need to be replaced?
+- Will this fit a Frigidaire wall oven model# RE94BD?
+- Does this filter fit the Holmes hm5100?
+- will they fit a a maytag cooktop too
+- Hello, i would like to use this as the bottom meat draw on a kitchenaid superba refrigerator model number ksrb27fhss04. Will it work?
+- Will it fit GE Model 3960LOOSS?
+- what are the drop in measurements
+- Does this element fit WEF350SADC?
+- Can this be converted to 220V?
+- How to Calibrate??? Does anyone know if this can be calibrated ? 'Removed board; no means of setting temp.
+- After purchasing, how long can I delay delivery?
+- Would this slide with ease? I have a portable washer and since I live on the second floor this would be a good idea but I need it to slide
+- Could this be used on the front of a dishwasher?
+- What is the difference between this filter and the EXPXXFIL0320 ?
+- how do you hook it up to a regular washer faucet with both a cold water inlet and a hot water inlet as it lookslike it only has one hose to conect to
+- My new 1/2 HP unit has an electrical smell after use, unit is getting pretty warm but no circuit breaker trip as yet. Replace?
+- will this kit fit model REX5634KQ1....Please let me know soon
+- What is the country of origin?
+- Does this sump assembly fit on the LG dishwasher model LDS4821ST? There were two conflicting answers when someone asked previously. Wanted to be sure
+- Would this fix a squeaking noise when the agitation changes direction?
+- Is this unit AC only or is it AC or DC
+- The 9460-A has a built-in alarm: alarm for what exactly?
+- How far from the top is the top of the drain output?
+- When water is detected, does this also shut off electrial power? If not, what happens to tub water if dain is clogged and machine is trying to empty
+- How tall is the interior space?
+- Where is this manufactured?
+- How do you change clock from military time to regular time?
+- bought the GE model GTE18GSHSS originally without ice maker. Is this full ice maker kit or do I need anything else to install and make it working?
+- How much is optional extension for 10 ft ceilings?
+- Will this fit a Maytag? It sure looks the same.
+- How do I know which one will fit my stove and work properly?
+- Hi, Time of Warranty and if have all to necesary for instalation? Thanks you
+- i would like to put a drawer for spatulas, spoons, etc. under the cooktop and over the pot drawers--is that possible with this model?
+- Do they work with the k-45 Keurig brewer?
+- is this a start knob for GE Dryer model DDG828OS?
+- why is the three pack of replacement filters more expensive (44.9) than the single at 9.99 Is there a cartridge that fits inside the filter?
+- Can the exhaust fan be mounted remotely? Is the control writing extendable, or is the control wiring too specialized that it is very hard to splice?
+- will it work on a PAV3240?
+- Inquiring as to whether this will fit my Frigidaire dishwasher Professional Series Aquafresh with Speed Clean. I think the model # is 154580501(?).
+- what's the ID and OD?
+- does this vent to the outside
+- The manual doesn't mention the bolts-n-nuts that came with the package. What's the extra nuts and bolts for? I thought just need the screws to secure?
+- Do you know if this igniter would work with an older Crosley range, model no. CG3478VVD? The picture looks the same as the old one.
+- Can anyone tell me the diameter of the shaft these knobs are meant to fit on? The shaft on my cooktop is 7/32" or about 6mm. Thanks!!
+- does the unit come with a power cord or do I need to purchase one separately?
+- Is W10295370A the filter same as 469930? It looks the same and comes up when I search for 469330 in Amazon
+- Why is this Electrolux so heavy at 75# and a similar 30" 5 burner cooktop from GE weighs 39#?
+- Will this filter fit my Kenmore Elite model # 795.72043.112?
+- Are all 4 rollers the same?
+- what color/colors is this one? the pics. for it are confusing
+- My broan range hood model is 42000EX-L, 220/240 volts, 50/60 hz, 2.5 amps, date code 89J, &amp; fan diameter is about 6". Will your item fit? Thanks!
+- Is this price per filter or $32.48 for 3 filters?
+- will my "pasta boat" fit? It measures 12 inches long.
+- Does it use a lot of electricity? I'm afraid the electric is going to go sky high and my cost savings will be null.
+- Will these work for Maytag 2000 series washer and dryer?
+- is there a dry cycle? My kenmore ultra wash just died.
+- Does this screen cover come with the black pins to latch the lint trap (part #8531964)?
+- will it work on model number DU1055XTSQ2
+- what is the power consumption rating of Frigidaire FFTR1817L 18.2 Cubic Foot Top Freezer Refrigerator with Store-More Organization System
+- Do the last numbers matter? My pump part says 3363394, but the 2nd set of numbers don't match, and my repair manual only mentions the first set.
+- I bought this ice maker and started out making big ice cubes and switched to small cubes but cant tell difference in ice , am i doing something wrong
+- Will this work with Cornelius kegs, as far as connections? Thanks
+- Dimensions of this machine
+- Why do these shelfs break so easily?
+- Can either of these be cut to fit i need it around the back also since the stove is in a counter island.
+- Is this original OEM filters from Fridgidaire?
+- Will these fit whirlpool model RF39JXWW
+- Can this be installed with 6" round duct?
+- Does anyone know it this works with GE mod # DBSE463EG6WW
+- Can you plug into 12volt camper van power
+- how does shipping and delivery work, is it into the house or curbside?
+- Does this filter fit model 795.7218 ?
+- My original knobs have "191D510" will this match?
+- is microchill a good product?
+- What is the DEPTH
+- What kit is required for Frigidaire FWR449GFS1
+- Wher is the top board to join washer and dryer
+- Is it possible to change the color of the interior LED lights?
+- do it use a lot of electricity if left on all the time
+- On the propane conversion Does conversion come with the purchase of the cooktop or is it ordered separately (product no.) Instructions furnished ?
+- I have an Avanti portable washer. I need to replace the drain hose. Does anyone know if this fits? I don't have the measurements right now, but I imagine these are quite standardized. I can't seem to find it on Avanti's site...
+- Does it fit Maytag Performance Series 3000? Model #: MHWE300VW11
+- How do you change it
+- Does the screen easily remove for cleaning? If no, then does lint on the front of the screen cause air and lint to blow by the frontpiece?
+- I have an HE top load Kenmore Elite. Which model do need?
+- Is the color of this as shown? My dishwasher tray is actually a light grey, this appears to be black/dark grey.
+- Does this fit old cooktop with downdraft and knobs in center front?
+- Can this be perma-installed? I don't mind having the lines run, just need a smaller unit - no space for a built in.. but don't want to hook up faucet
+- will this work on whirlpool model 10289944
+- What kind of light bulb base size is used? Is it something standard I can buy off the rack locally?
+- what is the proper weight ? Item weight is 178lb. shiping weight is 150lb. or product description 156lb?
+- What size are burners
+- I will be plugging the rangehood into the wall, will I need a power cord kit?
+- Is this a new color wheel for model wd 60738?
+- is this a ductless and ventless
+- same part number for replacement basket for my kenmore elite dishwasher, same basket?
+- Is there a ductless option for installation?
+- Does it beep at the end when it is done? (I have an older one that does and it will wake me up)
+- Can it be installed inside the refrigerator, along the coiled plastic tubing?
+- the title says freezer, but the description says refrigerator. Which one is is?
+- how do I get the smell out?
+- Hi there will this fit the Kenmore model # 5470340A thanks
+- Does this say "Essick" on the plastic outer body? Does it come in a genuine Essick retail package?
+- will this work in the samsung rsg307aars refrigerator?
+- will this fit a kenmore 66517579200 silverware basket part 8562080 Also is it all three baskets the two side ones and the middle one
+- will these fit the older model dcs range grates, 2002 model?
+- How do you get the Ice out of the bin?
+- does this pick up dust without blowing it out the bag. Our barn is very dusty
+- Will this replace a unit in a Tappan Model 95-1773? Thanks
+- Will this filter work in an Amana refrigerator? The model number is what was in my documentation.
+- IS 240323000 SAME AS 240323001
+- Will this fit WFW9250WW and WED9250WW
+- My control board goes to a white colored oven. Is the face covering on this board assy. white?
+- I bought a SPRINGFEILT Precise temt themometer and it has no instructions to set the time for the clock. How can I grt some instructions for it?
+- will this work on a Maytag top loader model number MVWX700XL1
+- Will it work on an Atwood or Wedgewood 21" stove top?
+- Does this item comes with 1 year manufacturer warranty?
+- Is it supposed to be mixed with the water that is actually used for humidifying, or is it just a cleaning agent, to be rinsed out before reg use?
+- Do you have exact dimensions for this dishwasher?
+- Can the bird catcher screen be removed so this hood could be used for a dryer vent?
+- Hi. I have a Frigidaire dryer model# FDE336RES1. Will this fit my model?
+- Can it be installed in the drywall encasing sliding doors?
+- I need the original filter be installed in order for water to flow. Please address this issue
+- the unit is jammed, resetting it does't help, how do you remove the object jamming it.
+- how do you cut them to make them shorter?
+- Hello, will this work with model #JGSP28SENISS?
+- does the 2 stage filter work with the 18 cup dispenser
+- got this and all we are getting is foam and flat beer.very disappointing went through several different sites to troubleshoot and nothing has worked.
+- I want to mount it to the wall with no cabinet above it using L brackets. Would this be ok to do?
+- I need a set of bearings and seal for a Kenmore Model 417.43142200. Are these the ones that will match? Thanks John
+- Is this available in white?
+- One question for those with color White: is it made of stainless steel too (just painted in white)? Not made of metal, I hope? Thanks.
+- Does this come with any humidification unit?
+- Will part 131475320 work on dryer model dedm-l-4
+- Can it replace a 9890 Kenmore Water filter?
+- Is it the same shape as this key? http://www.amazon.com/Whirlpool-Part-...
+- Just got mine out of the box. Is the ice supposed to be hollow, half-tubes?
+- i needed a small freezer for my breastmilk storage. How well does it freeze?
+- Will it accomodate a Coors/Miller keg (the oval shaped ones)??
+- How much height do you have for the top two shelves? Can you fit beer or gatorade bottles in both spaces, or does the lower shelf have less space?
+- Where can I buy the carbon filter for this item?
+- does this have dishwasher safe filters?
+- Is this metal inside and outside? Can you have both AC and DC plugged in and it will auto switch over from AC to DC when AC power is off...and from DC to AC when AC power comes back on (this is for my RV...I have a generator and an inverter and switch...
+- Does everyone agree that this refrigerator is noisier than normal as some have stated in reviews or are these just isolated cases?
+- will this part work with my Kenmore 79070609014
+- How long does the battery last if left on the thermo-hygrometer setting constantly?
+- What kind of warranty does this unit come with?
+- Does this motor fit in a NuTone Model LL6100? Or, has anyone replaced this motor successfully into a LL6100? Thanks
+- I have a model FEF368GBD - does this fit this model?
+- Is this item ELF5M-P compatible?
+- My Kitchen Aid dishwasher model number is KUDPOZFRSS2. Does this part work with my model? Thanks
+- I have a Whirlpool Model # ED5FHGXKQ02, Is this compatible?
+- Is there a lock on the door?
+- Hello I have the rs27kgrs refrigerator and ice maker need , let me know if this model can you sell inserting it into the fridge and I will work even i
+- I am wondering the vent out air way is on the back of the wall or go up though the cabinet? Thanks!
+- Does it work for Whirlpool Duet HT - washer/dryer from 2005?
+- how big is it - it says 7.2 X 5.5 X 4.2 - does that mean it sticks out from the wall by 4.2"?
+- will this work for a GE model GSL25JFTC BS
+- Are these BPA free? Does not say in the description.
+- where is this item made?
+- 5231ja2006a or 5231ja2006b: Is the part numbers of these filters 5231ja2006a or 5231ja2006b?
+- Does this run off of 110 or 220?
+- how to change switch 97017729
+- dear sir how many kilo metres
+- Give me the dimensions of product?
+- Does the washer have an internal heater?
+- i have a frigidare model # fpus2686lfo will this water valve fit it
+- Is hood set up to run ducted to the outside; if so is it included or additiona forl kit? Price?
+- does the price include the installation?
+- Will it fit gew9250pw1
+- Will the filter work on a samsung fridge. Model RF4289HARS?
+- Anyone know if that short line from the door could be extended with some 5/16" tubing and a joint connector making this an easier install?
+- Can this filter be used under a sink?
+- Can you clean the blade easily? I quit using our old one because I could not remove all the food crud. Best way to clean it?
+- does it have to be hooked up to a faucet or do you just add water with a bucket also does it spin out the water
+- I want to install this product into a wooden counter top. Will this be a fire hazard?
+- what temp. will it go down to if its empty and set to max?
+- Are those loops for hanging things? What is the noise rating?
+- Is there any warranty with this part?
+- how do i install
+- When it says "1/2 inch i.d.", is this the inner diameter of the stainless steel hose itself? I want small diameter hose for flexible movement. Thanks!
+- Does this work with a KitchenAid KUDC10FXSS5?
+- I am looking for PART NUMBER: 318177710 and this items shows in my search results for it, but I can't find it listed anywhere on this listing. ?
+- Has anyone used this to replace an over the stove microwave unit? Does it stick out too far to look good at that height? Thanks!
+- Does this item have a warranty?
+- Will this work with Whirlpool ED5HEVXQ01?
+- Dryer Model DBXR463EG2WW--will this knob fit my dryer?
+- Does this knob replace the jennair 5D02?
+- what is it made of can you wash it
+- Can I have a utensil drawer underneath this cooktop? It says minimum 12" clearance and that is a lot, most other induction cooktops are 4-5" clearance
+- Does anyone find that just 10 heat settings is too restrictive? Do you need more accurate variation in temperature control for cooking?
+- Do you need the liner or can it be used without? I'm building a custom hood to fit in a 30" space.
+- will this fit a Jenn-Air model C301
+- Is this a direct-drive motor or is it belt-driven?
+- Is the device small enough to leave one free outlet or will it take up both spaces?
+- Is Ceramic or induction???
+- Does this vent through the duct to the outside of the house?
+- is it plug in or does it need to be wired?
+- I have a 115v ; 5.9A attic fan. Should I go with this 8.0max amps switch OR the 6.0max amps? Will the 6.0 run warmer than this 8.0?
+- my water line for ice comes from underneath the house. can i just hook this up with compression fittings to the line that's behind the refrigerator?
+- I just bought a Broan 97007696 filter and don't know which side should face the stove (dark side?
+- Does this piece fit a 36" Whirlpool French 4-door, model # GZ255SRXYY2 ? Thanks!
+- Can you hook up a water supply to it so that you do not need to continuously refill?
+- My part number is 2403371 and the drawer is 17 3/4". The 19.3" is too large. Do you have a replacement? Kenmore Refrigerator model #25363732300
+- Does this product come with porcelian wire nuts?
+- After washing, there is still some water in the machine. How can I get rid of it completely? I tried to select cycle to drain.
+- Does it come in pair? i mean for both sides ? Also is it made of silicone ?
+- What is the inside diameter of fire ring?
+- is the color of this vent grill black
+- will this fit a WTW6700TW1 washer? thank you.
+- What is the inside diameter (or outside diameter if already installed) of the hose?
+- I have model 665.1646. Will this fit my washer ?
+- How long will this cartridge charge an ISE compact 3/4 disposal? (Ball park)
+- My fridge call for an IM-3 icemaker kit. I presently don't have an icemaker. Will this do the job or do I need other parts??
+- will this work for model 10651103111
+- we need to know is if we can LOWER the pedestal feet? We hve cupboards in place and it looks to be about 1 1/2 more space is needed. Is this possible
+- Will this work for a Maytag Atlantis MAV7200AWW?
+- does this have a stainless steel tub?
+- does this fit my Kenmore elite 11085872401?
+- What are the dimensions in inches or centimers of the bags themselves? All of the picutres show the BACK side of the box without that critical info.
+- How quiet is this machine? The machine will be in the main living floor space so it needs to be relatively quiet. Thanks!
+- Can this work on a Whirlpool refrigerator, with the bottom push botton where the current filter is part # 4396841?
+- I have an FFHS2611LWHA, will this work?
+- is there an extended warranty avalible for this item?
+- filters for Bionaire BCM5521U what will fit?
+- This is the correct part number for my Kenmore Range, but it is listed here as a Frigidare part. Are they compatible? I have a Kenmore 79094102703
+- Does the grill come with it or is it extra? If it is extra, how much does it cost?
+- Is this machine very loud?
+- Was this washer boot sent flat or rolled up by Free_Shipping_LLC?
+- is it good for jgbp28bea3ad
+- Can anyone tell me if the stove top gets hot while the burners are in use? I read one complain that said it got hot 1 to 2 inches around the burner.
+- will this fit GE Model JRP14GJ
+- Does this part fit Samsung washer model: WF316LAS/XAA?
+- is it electric or battery powered or what
+- What kind of batteries does this take?
+- Has anyone had a problem with their plates being too large for the tines? I have Fiesta Ware - don't want to have to buy new dishes.
+- How long will it last? I am concerned it will break after 6 months.
+- In the photo the cubes look white and cloudy. I want a clear clean cube. I am trying to avoid the ugly cloudy cubes. How are they?
+- DC Connector: What DC connector does this device come with to power CPAP machines?
+- How are the Oxygen Adsorbers used
+- You call this a Valve Coil. Is that the same as a Solenoid valve? The parts number and pictures match-up, just the description doesn't
+- will it fit my ge refrigerator the part number on part is emb 607 50e3 or 11a125-250 vac help please
+- how many cables come in package?
+- Will this fit a Kenmore Elite HE3 model 110.42936 200?
+- Will this fit the samsung RFG297HD?
+- good day .. This kit is how are you in the picture
+- How cold does this get? I need close to 34*F
+- Is this the same unit only rebranded as the NewAir Al unit?
+- will it fit my whirlpool WF9050XW00?
+- What is the bigest size you carry ?
+- Is this icemaker made by Whirlpool?
+- Does this filter out chlorine and chloramine?
+- Will this work on a Hotpoint CSX20BABK WH side by side? It looks identical to my current set up. Same color wires and wiring harness looks exactly the same.
+- compatible with Kenmore model: 11026914690?
+- does the handle got the threaded inserts instaled?
+- IS THIS THE SAME AS UKF8001AXX-200
+- Can the automatic defrost cycle be turned off?
+- Can someone tell me what the minimum height from the ceiling this hood can be? I don't want to exceed 24", just want to be sure it can be adjusted.
+- Where can I get my co2 tank refilled for my kegerator
+- Is Model KCDB250G a direct replacement for Model KCDC250K2?
+- Is there a lag time after you take it out of the box before it starts to work? (No instructions included!)
+- What about a Kenmore Model 110.608.12990
+- GE Wall Oven Sensor - Model JKP14: Would this part cause this problem.
+- How long is the tail on this vent?
+- May i know does this item come together with a calibration certificate?
+- I'm looking for an electric can opener for my grandmother who has arthritis. Is this one that would be easy for her to use?
+- Is this run on propane?
+- Can you hang this on a wall?
+- does the left oven door open down or sideways?
+- does it fit left or right side interchangeably?
+- Will this work on a Fridgeidaire FFHT1817PSO ?
+- Does this come with a co2 system or do you have to use kegs with co2 like Hineken?
+- Is it removable? I would like to use it in my rental kitchen.
+- Will this fit my hotpoint vwsr3110woww model
+- I have Argenion in line which is out of business . Can I replace with Watts which looks similiar?
+- Is the outer material of this machine real wood, or plastic?
+- Will this fit matag MAV3905 AWW? THE ORIGINAL PART # FOR MINE IS AP4373022
+- what is the BTU for each burner?
+- Can you wash towels in it?
+- where can I purchase the male connector? Did not come with the filter.
+- Will it fit a model #pss26sgra ss?
+- Does this hood need to be hard-wired, or does it plug in?
+- DOES THIS REPLACE PART 5231JA2002A?
+- what are the dimensions?
+- Has anyone bought these for a Jenn-Air range? Our range is over 20 years old. Thanks!
+- Do dishes or other items ever fall off/out because it has no sides?
+- Lint filter: Does anyone knows where I can purchase the black filter behind the white filter and filter cover?
+- I purchased this filter on 12/31/14. Now there are black particle in water. What's happened. Defect products?
+- Will this latch assembly fit maytag Model #MDB6650AWW ?
+- Does either the induction top or oven make noise when in use? How loud? Constant?
+- can you provide installation instructions for this model? i am not sure I have enough room and want to check it before I buy.
+- Does one need a S9 converter device in addition to the CPAP battery pack here described
+- my frig model # is ED2CHQ*K*0 this looks like it will work but not sure. Will it work?
+- Is this product for a Ceran top?
+- I'd like to set this up with the back close to a wall. Can I fit 2 corny kegs and the CO2 bottle inside the unit so it will be more flush to the wall?
+- why only ios?
+- What is the length of this hose? I can't find it in the listing. Am I missing something or did the seller fail to state the length?
+- is the base one continuous surface or is there a ridge between the center and side burners?
+- do these fit a thermador gas stove top?
+- Looking for one that will hold 175 degree to 195 degree. will it do this when there are only low med high settings.will it hold up to 40 lb in skillet
+- What diswasher has a short cycle
+- Will this filter work in my White-Westinghouse refrigerator?
+- I have a front load whirlpool washer model # wfw9500tc01. My rear outer tub Bearing broke. I want to know if replacement part w10253866 will work/fit
+- Does this ice maker need a drain line?
+- I bought this humidifier. I cleaned up the base where the water stands and the tank with water. But how to clean up the top side openings?
+- does this cap with with whirlpool ed5vhexvb01?
+- It has a place for scent pads - does that area heat up or can I use a pad with essential oils there?
+- Will this fit MVWB880BW0?
+- Has anyone else experienced ripped jeans or pants in their Speed Queen as one reviewer mentioned? Thank you.
+- will this freezer gasket replace mdl bz22rl amana
+- Does anyone have any GOOD things to say? I just bought this but it won't be delivered for 15 biz days so I have time to cancel if necessary. I thought Maytag was a good brand until I saw all this about the control panel. Now I'm considering canceling...
+- Is it possible to use the voltage of 220 volts?
+- What's the noise factor with this item? I live in an apartment with fairly thin walls and neighbors below me.
+- The model number of the Jannair Grill-Range Model SVE47600, will this cooktop cartridge A122B work on this range?
+- does it come with griddle? wok?
+- Can i sweat a 1/2" copper pipe to the brass fittings?
+- Does this igniter replace the igniter in model number KGST3000HBL4?
+- Will this work for Kenmore model 253.6880201B?
+- Is it compatiable with whirlpool dryer# Model - WED6400SW1
+- What country is the fridge made in?
+- Can this filter work with Samsung RF4287HARS refrigerator?
+- product described as fitting DLG7188RM = my machine is model DLGX7188RM (with the extra X between the G and 7. Same thing? THANX
+- Why does amazon charge so much?
+- Does this product use wicks
+- Is this a "water softener"?
+- is this assembly fit LG dryer model DLG5988B? It is an urgent, Please let e know soon
+- Anybody try this on a Frigidaire side-by-side? My line keeps freezing and they don't have a fix for this. Driving me nuts!
+- will a whirlpool duet w/d fit on this ?
+- Can I cut these into a custom shape?
+- will this work with kenmore model 106-54563300. part # 626662?
+- how do you connect exhaust vent to the top of hood? is it round hole or square? I have round vent ttube, if its not round do you sell an adapter?
+- Could you please tell me the diameter of the knobs?
+- Does anyone have a review on how well this dishwasher works? Do you think it was a good purchase?
+- Manual for DLEX3470 has "Exhaust Test" on p29 says "Flow Sensor" icon should appear. I have none. LG says not necessary. Are they right?
+- is this a thermoelectric cooler or does it use a freon compressor unit like a standard refrigerator?
+- What can be done about the detergent spots left on the clothes? I know that you can wash them again without detergent but that is defeating the purpos
+- How do you use the timer? I have read the instructions several times but have yet to figure out out to adjust it...
+- Will this fit a Maytag Quiet Series 100?
+- can this item be used in a studio (in a house) for natural gas and does it have auto ignition? I am trying to replace something similar
+- whats the difference between this one and the nina spin dryer? same price same company. i see that this one spins faster, any difference?
+- does it have warrenty?
+- will this switch work as the freezer light switch model #511
+- Will this fit my washer WFW9200SQA12
+- I have a Whirlpool refrigerator model # ED5GHEXNQ00. I am just making sure that this replacement ice maker is the correct one for my refrigerator. Th
+- What are the loops hanging down?
+- my old filter : L 21 W 7'' . 'THIS FIT ?
+- Is there a 'sensitivity' setting to keep the heat from cycling on/off every 3 or 4 min. when the inside temp matches the thermostat setting?
+- will this work with fridgidaire oven element 316075103?
+- DOES IT FIT FRIGIDAIRE
+- Will this product fit a Kenmore Range?
+- is this part # 281282?
+- Did this fix your problem if the water line is frozen inside the door? (not just at the water dispenser) I was told by a repair man that he did not think this product would help with a frozen water line throughout the door. My water line doesn't appear...
+- can it be used with bathroom exhaust fan
+- Does this opener hang onto the can after it is done opening it hands free?
+- How long have you had your hoses and have you experienced any leaks or leaking fittings?
+- this part include glass
+- How many loads can you wash before it needs emptied?
+- how would yoy change the filter? it looks like you can!t get to it ?
+- Is there any warranty on this item?
+- Will this fit model#ed2khaxvq
+- GE Model # JBP78DOH2CC , the upper broil element per GE is WB44T10009, however your dimensions do not match , will this fit??
+- How cold does it get? Can it go down to, say, -30F?
+- Does this come in its own box? I'd like to give it as a gift and want it to look new (rather than presenting it in an Amazon box).
+- What are the overall dimensions of this range hood?
+- I have frigideaire gallery series front load model # GLTF2940ES3 SERIAL # XC70610492 LOOKING FOR MOTOR IS THIS WILL BE FINE FOR MY WASHER PLEASE LET M
+- I ordered the extension and it does not slides into the piece that comes with the hood?
+- Is Range a thermistor or thermocouple thermometer?
+- Does this Cap fit filter 4396710?
+- is this correct for a Kenmore 80 series model 66812694?
+- Does this ice maker make the nugget ice like they use at Sonic?
+- Does this fit samsung model RS575 &amp; RS577
+- does it stop making ice when you need a new water filter ?
+- Is this accurate?
+- Is this an authentic Whirlpool motor or Chinese knock off?
+- Is this the 75g size?
+- will these filters fit on GE stoves?
+- Is this strong enough to keep a tv from falling over if the tv stand it is on is being rocked/shaken by a energetic toddler?
+- Is this made in USA? I can't find any manufacturing info on it anywhere. Thanks!
+- is this the filter for the BCM658 Bionaire? is it also considered to be a permanent filter?
+- Hi, I have a Frigidaire refrigerator Model #PLHS267ZA and it says I need to get part #241681703 for my ice dispenser but will this part also work?
+- Is this for a self-cleaning oven? It looks like the right one, but then I noticed in a description of another element that it specified self cleaning.
+- My refrigerator is GE GTR18BBS - will this work?
+- Is this the same size as the older Pro333? We need to replace it and my husband wants to make sure it will fit.
+- The upper ice maker drips water through the door dispenser. Repair service has put seals all around the ice maker twice. How do you get this fixed?
+- Will it fit model GH4184XSS1 and does it come with the clips attached to the back?
+- Will this work for the FFBD2409LS model?
+- Self cleaning?
+- Based on other comments, is it accurate that the filter is smaller and does not fit as snugly as the original? Did you experience any leaking potentai
+- Is this made of plastic or metal as described?
+- Does this filter work for Model No. GEN11042FR-08
+- Can you fit a large Turkey in the lower oven?
+- Does the drain board have a raised edge all the way around to retain water in it, or is there a flat side for water to drip from it into the sink?
+- What power cord do I need to buy for this range hood
+- does this fit Kenmore model 59672252200
+- does this replace wr30x10077 ??
+- I need to know what width and depth of the chimney are and whether it can cover an 8" duct at the top
+- Direct wire or plug-in. Can this be back vented on the wall
+- Where was this washer made?
+- is this 110v or 220v ?
+- Why does fridge dispensed water smell and taste bad?
+- does it have an internal heater?
+- Will this fit a Bosch SHU5306UC-U12? It is non-vented through the dispenser.
+- Neither of the 2 humidistats I am looking at (56 and 4655) list humidifier 700M under "For use with Aprilaire models..........". So I am looking for a more specific answer.
+- Do you have replacement leds for this unit?
+- Are twist ties included?
+- Are the shelves adjustable?
+- Will this work for Kenmore 790 or 790.92413?
+- the dimension front? how many depth?
+- Is this the same part as part number 316225001 for a Kenmore stove model # 790.95313308?
+- is this for electric stoves?
+- Will this lint filter fit a model DLG3744W?
+- how long are the covers?
+- What is the measurement including the handles??
+- will this fit a frigidaire LGUI2149LPO?
+- is this really 12 volt
+- Can I connect this cooktop to a regular BBQ propane tank?
+- will these range replacement knobs fit a tappan electric stove ?
+- I want to know the height without the pedastals, and do I have to buy the pedastals?
+- Does this wringer work best attached to a steel tub? Would 20 /12, 22, or 24 inch width tub be the best size?
+- Is this hood fire rated? What about outdoor use?
+- It comes with a carbon filter?
+- Are these made in the USA?
+- what is the thermofuse?
+- Will this work to replace the Model# 316418200 or does it require the exact model?
+- Will this replace Amana model BX21VW fan part # 12442201
+- What is the warranty on this hood fan?
+- where to insert the oven temp.meat probe in the range model JGB760SEF2SS
+- Do these bags have the 4 holes to fasten to the compactor. Thank you.
+- Can someone please confirm the drawer has its own temperature guage (so i can set it to a different temp than the large top oven)?
+- Does the smooth surface scratch when you slide a pan?
+- I have a badger 5 it is leaking water at bottom near reset bottom plus does a new one came with a ss ring for inside the sink
+- How do you turn this on? I have a working battery in it. It's not turning on and no pressing of any combo of buttons makes it go on.
+- Will this fit the pss26mgpb ww? does this come assembled, can i just take out the old bucket/auger and slide this one in its place?
+- Is this good for making tortillas (cheese crisps etc.)?
+- Was this product designed to drive sufferers of OCD insane? Holds 14 eggs, and yet eggs are sold by the dozen. My eyes!
+- Is this sensor the same for my Kenmore model 66592012
+- is this the replacement for modelgsh25jsdbss
+- I just bought a GE Model GSC3500D35BB the hose is too short. Would this hose be compatiable.
+- Does this range hood come with ceiling mouint hardware, and an elbow for the first turn?
+- Does it fit the REMstar Plus System One
+- is this rated for outdoor ?
+- I am purchasing this timer for an Admiral AED4475TQ1. I noticed you provide an exhaustive list of dryers it should fit, but that was not one of them.
+- freezer temperature cold
+- Will this ductless installation kit work for a Golden Vantage 30-inch OSWRH198KZ4-30-GV Stainless Steel Wall Mount Range Hood?
+- How many decibels on high?
+- This will be the second time in 2 years I've had to replace this cheap plastic handle. Is there a stainless steel handle that is equivalent?
+- Does this incude the small pump on the bottom of the refrigerator where the water is connected to prior to going into the tray
+- Will it fit Model KUDS30IXSSA?
+- i have model # LFX28968XT DOES THIS FILTER FIT THIS MODEL
+- diameter
+- We have a chip in the paint on the basin of our washing machine. Is this the correct paint to cover it?
+- I have a GE model # GLC4400R10BB and from what I can find the part # is wd24x10042, just trying to make sure this will work on mine before ordering?
+- Are they easy to keep clean or does it require a lot scrubbing, re: the black set?
+- I have this cooktop and need a replacement, but dont have or necessarily want the stainless ring around the edge of the cooktop. Do you have a black
+- What brand under cabinet hood do you use for this oven? I don't want a microwave over my oven but a under cabinet hood. What brand?
+- Will this work on a Kenmore model 106.56544400,serial ss3233581? If not do you have one that will?
+- Will this work on my Kenmore 400 model 110.79422801 ?
+- Will it fits Kenmore Elite model# 795-51086-011
+- Is this really 5 inch diameter? Do you ship ONLY the 5 inch when ordered? Some company's send the 4 inch.
+- Does this part come with any screws?
+- how high will this raise my washer? I have a pedestal drawer and need to get 3/4" higher.
+- Will this igniter work on my GE Oven Model #JGBP80CEH2CC, Serial #VF264505P?
+- What is the recommended distance from the cook top (electric range) to the range hood?
+- will it fit model ghw9150pw0?
+- I have a Honeywell Humidifier and manual tells me to use HAC=700 filters. Are these the correct ones?
+- Do all Li-Ion batteries suck rocks? ONE year life on batteries for a $300 drill?
+- What is the hose ID?
+- will this fit my kenmore elite He3t model 110-42926-202
+- Can this beverage center maintain beverages at a temperature of 32 degrees F?
+- will this work on whirlpool model no. wtw6200sw2
+- Will this part # ADQ73214402 fit the same as Part: ADQ73214404 required for my LG LRFD21855ST ?
+- Celsius and Fahrenheit? Is possible to see temperatures in Celsius?
+- Have you used the baking drawer on the gas version? I don't quite understand what you do with it....
+- how does the self cleaning oven work?
+- Is it smudge proof?
+- Can the legs be removed, what's the overall height (including the hinge) after removing the legs? My bar counter can only fit 20.5" tall wine chillers
+- Where do find the number
+- Can the height be adjusted to 24"?
+- Is the lid where you place the soap suppose to open during the wash cycle. The one I have doesn't. but the soap is gone
+- Was told the bearings for the Whirlpool WFW9200SQ00 were serviced only with the rear tub. Can you indeed replace bearings only? Thanks
+- is this that fingerprint texture on the outside
+- If the power is down/off at your home, can you still use the burners by lighting them with a match?
+- Will this burner fit a GE oven Model JB650DFCC?
+- Want to make sure this is the ADQ36006101
+- Can the steel rack be taken off and the tower removed and mounted on top of an outdoor counter. I realize I will have to insulate the hole in the top
+- I need a thermometer for my baby bearded dragon tank and I'm having trouble finding one that gives readings above 105. What is the top temperature?
+- What is the difference between the disinfectant &amp; presoak solution?
+- Does - this thermostat have a lock out feature so you can set limits on high and low temps? Can you prevent others from tampering with it?
+- Would you recommend these for bathing a cat? (Yes, I understand that bathing a cat may not be advisable, but that decision has been made so I'm looking for something to protect my arms.)
+- What parts do I need to purchase separately to install this set? Do I need a power cord and dryer duct for the dryer? Do I need 2 washer hoses? Thks
+- What is the interior measurements?
+- Will they fit a Jenn-Air?
+- My wash-it light isn't working. We washed 3 loads and now the light will not come on. We have slowly moved the lever from standard to HE and back.
+- Can this machine wash and dry at the same time or is it one at a time? Thanks.
+- will my 5"duct size work with the 8"duct size for this model without making another hole in the wall?
+- Will this fit the Bemis humidifier...looking for part 1041 for a Bemis and this came up on my search?
+- Are these units sturdy enough to handle big pots of water for canning?
+- Will this ignitor work in a hgs435uc?
+- Can this cooktop be used with a 10 quart stainless steel pressure cooker / canner? I'm concerned about the weight damaging the cooktop.
+- Does the stainless steel trim get scratched by the cookware (vs. a model without the trim)?
+- Whats the Diameter the fingers at its widest point?
+- Will this fit Estate by Whirlpool MOD. TES325MT 4 SER. RU3410209 ? Thank you
+- i have a broan range hood model 41,000-L. i need the replacement filter # 97007696. is this it.
+- Can this be installed aftermarket on wm2050cw model? Or, are there other aftermarket solutions to keep door ajar?
+- my washer is 27.5 wide and 27 deep will my washer fit
+- what size hole do I drill?
+- Does the filter come with the filter status indicator
+- The pack consists of two 16 x 32 panels, correct? Is it possible to order a third 16 x 32 panel?
+- if my faucet doesn't fit, can i pour water directly on to the machine?
+- I have a Jinn air system with down draft, would this fit without any issue?
+- Will the fit in my range Model fgf326wgsg
+- I have a mod# IP220SS and need a ice basket for it, I cant get info on this mod.?
+- does this keep stop the vibration when load is off balance? we have unit stacked but not sure if plumber used a kit. thanks
+- My house runs on Propane from the town line, will this work with propane? What are the cut out dimensions? ?
+- I need an extension for the chimney because my ceiling is 9 ft. Looked around and have not found anything. Does anyone know of one?
+- I want to know the imput V, 110 or 220V?
+- Will this fit on Whirlpool model # WTW6400SW3?
+- Will this kit fit the model LEQ6400FS0
+- How often do you replace these things?
+- what kind/size light bulb does this use? are they replaceable when they burn?
+- I ordered the long sensor but recieved a short one . Both have the same number. Is the short one able to replace the long one or do I need to return
+- Does it make nuggett ice that you can chew?
+- Will this fit Kenmore 110.42922200?
+- is this rangehood ductless
+- Does this fit a kitchenAid?
+- Will this fit the Frigidaire model PHSC39EGSS1?
+- Do you know if it fits 5 speed Kitchen Aid ksb5bu model?
+- I have a Samsung dryer Dv407agw/xaa -- will this dryer ribbed belt work? Do I need a 4ribbed belt or a 5 ribbed belt? Pls reply. Thx!!
+- Is this OEM from Whirlpool or duplicate from some other manufacturer?
+- Will this cover also fit on the mk2?
+- i need to know, if this part is compatible with DU1015XTXS, i have the chopper blade in my hand and look the same, but i need to be secure
+- I currently have the GC2000PE3 which has a plug-in, will I be able to transer the plug to this unit?
+- is it compatible withe the kitchenaid side by side fridge
+- I have a ge model num. lss25xstb. I need a replacement motherboard will this one work for me
+- Does this icemaker fit a Kitchenaid KSRG25 model side by side ice and water in door?
+- I had the gold Argenion 20,000 gallon filter for my fridge that has 1/4 in male ends. Will this work with my 1/4 in female threaded ends I have??
+- Will cast ironcookware scratch or mar the elements?
+- Hot in Texas. Weather can drop electricity, but comes up. Will the cooler go back up by itself? Hope by itself a reasonable cooler.
+- Will this fit a GE Spacesaver dryer Model DSKS433ET0? The rubber motor isolator failed on my motor.
+- will fit a ples389dcd stove
+- does this icemaker fit roper by whirlpool model number RS22CFXTQ00
+- can you confirm maximum width, as it must fit in 30" space. thanks
+- Will this product fit a maytag model number mdb7600aww ?
+- is this price for 1 or 3 filters?
+- Is this compatible with Samsung model number RF261BEAESR
+- I haven't received my order yet but I want to know if I have to install anything on before lifting the dryer or after. Thanks in advance!
+- what about the noise level?
+- Is this the correct filter for the Thermador T361 series fridge/freezer?
+- Is there an on/off switch with this replacement ice maker?
+- Does the Speed Queen 432 have a buzzer to indicate that the wash cycle is done?
+- do I need ventilation with an induction cooktop?
+- Can you set the controls so that it just does a spin? I just want to get the rinse water out of a wool sweater.
+- The filters I received did not have the black on the outside. What is the black for?
+- will the latch work with GHW9100LQ1 ?
+- I am going to travel to Japan. How big is this converter box
+- Does this work with a KitchenAid Microwave?
+- Does this product run on natural gas or propane?
+- Is Waste King made in the USA
+- the wr55x1942,serve my glm23rewa gs?
+- Just ordered, does it fit the LG / LDF7932ST
+- Does this washer come with 2 water hoses (hot and cold) or 1, I only have one faucet for hot and cold water how would this work? Tks
+- can I put orange blossom water or roses water instead of tap water ?
+- what is the differnce between px10 and px12 model
+- Is this product certified to remove lead, I've seen it multiple areas on your website where it says it is, and isn't?
+- Does this unit spin dry?
+- Does this oven have a cooling fan to keep the electronic controls cool when baking (not the convection fan)? If so, is that fan loud?
+- how many articles of clothing. Cotton shirts and jeans or cotton pants does the unit hold per wash?
+- Are these just stainless steel tape over a plastic knob? Or solid? The original ones were the taped kind that bubbled up when the broiler was used.
+- Will this fit a Bosch double oven model HB5055A
+- I have 5 gal buckets. What size Oxygen absorber do I need?
+- Does it have a ice maker
+- Could this be used in the garage? Dryer vents into garage and cannot find anything to truly catch lint. Garage ends up being a mess.
+- Suppose I want to permanently install this to take the place of a normal dishwasher. Bad or good idea?
+- Does this work on Whirlpool Mod. ED5FHEXNS00? Thank you for your help.
+- will this fit the Bionaire BCM 7309 humidifier?
+- My range has a board that looks just like this with part number 316455520. It's a Kenmore 790.71319705, Is this board compatible?
+- Apology in advance but I'm not sure I've asked this question: Is the item interchangeable with GE Model dryer NVL333GY0WW rear drum bearing?
+- t1rfkb1
+- How often do you replace filters?
+- Will it fit whirlpool model number wed9750ww0
+- What are the dimensions for this one? It looks the same as what we currently have but have no part number to compare. Our Amana is model# NDE2335AYW.
+- Hello, We live in an apartment with the average kitchen sink. What sort of water hook-up is required? I assume the drain just vents into the sink.
+- I've noticed many people mention the time on this hood. Is your only option military time?
+- How do I remove a built in GE Monogram refrigerator to get to the valve in the back?
+- Will this filter work for a samsung model RF267AERS?
+- is it 12 volt
+- Wil this fit my frig frs6l9efss
+- Does this fit DLGX7188?
+- Why are the dimensions of this model different on this site than the LG site, Home Depot, and Lowes? I think this is a mistake.
+- Does it fit inside 10filter housing
+- HI I just wanted to check the metal thickness you say it is 23 gauge is this correct this seems very thin and can deform easy. thanks for your time.
+- Does it start making ice as soon as it is attached to power? I'd like to put it on a plug-in timer so ice is ready for my morning smoothie.
+- Does it do degrees F?
+- How many pegs does it have and are they coated with a non-slip substance such as silicone or rubber? Thank you
+- can you stack two on top of the 8in X 4in x 14.5in container? The image above seems to do exactly that, but mine won't stack up.
+- can I just throw them in trash can that has a mix of boxed and sealed foods?
+- Hi, Will the delivery folks take the doors off of the fridge to get it into the room? I have a 32" hallway...
+- This switch fit in a Kenmore model no. 79096122403? The original part number for this switch in my guide is 316121501.
+- Does it replace 641425
+- Is anyone else having trouble with the inlet hose popping off the faucet adaptor once you turn on the faucet due to the water flow?
+- How long are the hoses.?
+- I have a Jenn Air S120 stove with flat burner cartridge. Can these coil top burner replace them?
+- is it compatible to an admiral dryer part
+- Does it come with a power cord?
+- Why is this listed as 42-inch hood but product details say 45"? Which is it?
+- Are those 1/4 inch quick connect terminals?
+- Is this truly 5/8 inch? Or is it 1/2 inch?
+- It sounds as though it makes ice very quickly, but after they fall into the storage bin, they no longer stay frozen. Is this true? How much usable ice
+- Why does this not look like the same part shown on the GE website
+- How do you know when to change the filter?
+- could i use this product to avoid water spots when rinsing my car?
+- Will this work on GSL25IGXLS?
+- Can you use revere ware on induction cook tops?
+- Does it fit model # ew23cs70iw3?
+- What are the dimensions of this item?
+- I have a Norcold 633324 ice maker and it will not eject the ice cubes.
+- can it be settled on a bathtub?
+- We have Whirlpool Cabrio, Model #WED5550XW0. Need a new filter but don't know which one to order. Thx
+- Are the shelves spaced wide enough apart that cake layers could be cooked on the rack?
+- I bought this part today, but I need ASAP. I never found it the another shipping before the March 20. Could you ship over night. and the cost?
+- Can this be mounted to the ceiling or is it Wall Mount only?
+- can i blug into wall
+- how long to ship to florida?
+- would you add one more oven knob, to make it five? and how much more, thanks.
+- My frid wall oven has valve 3203702 will this valve work for my oven
+- How do we fix a Samsung fridge control panel that keeps flipping to off?
+- Has anyone used this on a Frigidaire Front Load Washer (08/2013)?
+- Will this work if I am replacing an Ultra Clarity 9000 194412 filter. I have a Bosch French door frig 6 mo old. Thanks
+- Faucet attachment giving me problems. The water coming from faucet when not connected to d/w is highly pressurized. Is this normal?
+- Do these knobs fit D-Stems? Temp reading 180 degrees(directly across) from OFF for oven? How deep is the D-slot (If these fit D-Type stems?)
+- Has anyone had a problem with the heating unit. I am concerned because the laminate baseboard under my cabinets has cracked .
+- Is this Whirlpool product made in the U.S.A.? I won't trust a "Made in China" water filter.
+- Has anyone used these on a Frigidaire stove? Our stove came with drip pans that look like this but they are in terrible shape now.
+- Will these drawers work for our Whirlpool duet washier model GHW9160PWO? And matching dryer? I do not have model number for the dryer -thank you.
+- if the duct at my house is vertical can a piece be bought so it wil fit with the round duct?
+- My model # says 106 626662. Will this unit work?
+- will these filters fit IDYLIS MOdel IHUM-10-140?
+- What is the set height between shelves? I'd like to use it for 12oz bottles, not cans.
+- Does it work with Apple HomeKit
+- Same issue with 2 of these ovens. Lower oven reads the temp I've set it to but 3 diff therms. show it goes way up, then way down. Pls help!
+- Is this for three OEM filters, or for three off brand replacements?
+- Is this valve compatible with the Whirlpool MOD SF462LXSS0?
+- Does this work on a GEGSC720Y01WH?
+- Can I see a photo of backside of knob? Need to know if opening is same as what it is replacing.
+- Are the dimensions 26.4 x 19.4 x 2 inches the rack itself or the package it comes in?
+- Will this fit a Kenmore Elite Washer #110.46747801?
+- Can this be used with a 10' ceiling?
+- Does this have auto shut off when the water gets low?
+- I need to replace a Holmes wick HWF-65T. Does this filter fit?
+- where does the Hydro-Cell go?
+- is the glass smoked?
+- Can these knobs replace the black ones provided for the JGB630REFSS (Stainless Steel) model?
+- is this pump whirlpool OEM ??
+- can this be converted to non-ducted hood?
+- have maytag washer modelmah6500aww will this valve work??
+- Would it work for Kitchenaid refrigerator, the # is the same?
+- How many shelves are in the unit?
+- How long do I cook a pot roast?
+- will thisswitch work for amana model adb 1500 awb
+- What is the difference between the model VEFSGE 365SS and VEFSGE 365NSS
+- I have a Kenmore Elite HE3T with the part number 461970201671 and 294020-M75 on it. Will this one work and fit?
+- I noticed it says that the shipping weight is 200 lbs, how hard is it to move into the house (is it bulky etc.) could you do it with one person?
+- do you still get floride in your water
+- Can this be mounted to the wall and can it be easily detached for cleaning
+- What all is included in this product? What else will I need to install this if I already have water in my refrigerator?
+- I am interested in a hot plate to use for canning both pressure and waterbath. Can this hot plate be used for that purpose?
+- Can these be recycled some way? Seems such a waste to just throw it in the trash!
+- I need to know if the inside part of the ice maker down where the water goes is stainless steel?
+- is it gray or black
+- does it come with a griddle
+- How and where do you put the filter on?
+- This product comes with cables as shown in the picture?
+- I am actually searching for a Kitchenaid part # W10353546, W10250158, or W10250159 is this the same part?
+- Will this work on a Hotpoint model # RB790S H2SA
+- Does the price include the pedestals that are pictured?
+- it will work with my Kenmore 106.7200?
+- will this part fit a GE Stove-oven-#JEG3002?
+- I need a 42 inch hood, but in the description it says that it is 45 inches wide. Do I need to make room for a 45 inch wide hood?
+- Where is this filter made?
+- I have an Admiral ADG7005AWW, will these replace my old coils? I believe this is the correct part number. Thanks
+- How long is the warranty?
+- Does this range have a down-draft?
+- What does the remote do?
+- Are the lights halogen or what?
+- One thing says the depth is 18 inches one answer says the length is 18 inches. I need one where the lenght is 18 inches, is this what this one is?
